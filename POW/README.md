@@ -25,7 +25,8 @@ Versailles, KY
 - Longtime fellowship partner of Mount Calvary Baptist Church. 
 - Noticed the oddities at, and expressed concerns for Mount Calvary Baptist Church
 - Recent threat indicates the CIA may begin using their property for funerals also. 
-
+- See [The Woodford Threat](/POW/MZBC)
+  
 House of God
 Georgetown Street
 Lexington, KY

@@ -18,7 +18,7 @@ The central Kentucky congregations that have been attacked and massacred include
 * [Mount Calvary Baptist Church](POW/MCBC)
 * [Lexington Bethel Baptist Church](/POW/LBBC)
 * House of God
-* Mount Zion Baptist
+* [Mount Zion Baptist](/POW/MZBC)
 
 [Learn more](/etc/cia_pow.md) about how the CIA views organized religion and an individual's belief in a higher power, and how these perspectives affect **everyone** around you.
   

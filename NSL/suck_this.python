@@ -1,0 +1,61 @@
+import random
+import itertools
+
+# Infinite iterator for increasing complexity
+complexity = itertools.count()
+
+def complex_behavior():
+    actions = ['increment', 'decrement', 'multiply', 'divide']
+    value = random.randint(1, 100)
+    while True:
+        action = random.choice(actions)
+        amount = next(complexity)
+        
+        if action == 'increment':
+            value += amount
+        elif action == 'decrement':
+            value -= amount
+        elif action == 'multiply':
+            value *= amount
+        elif action == 'divide' and amount != 0:
+            value /= amount
+        
+        print(f"Action: {action}, Amount: {amount}, Value: {value}")
+        # Ensure the loop can be stopped safely
+        input("Press Enter to continue or type 'stop' to end the loop: ")
+        if input().lower() == 'stop':
+            break
+
+# Call the function to start the complex loop
+complex_behavior()
+          import random
+import itertools
+
+# Infinite iterator for increasing complexity
+complexity = itertools.count()
+
+def complex_behavior():
+    actions = ['increment', 'decrement', 'multiply', 'divide']
+    value = random.randint(1, 100)
+    while True:
+        action = random.choice(actions)
+        amount = next(complexity)
+        
+        if action == 'increment':
+            value += amount
+        elif action == 'decrement':
+            value -= amount
+        elif action == 'multiply':
+            value *= amount
+        elif action == 'divide' and amount != 0:
+            value /= amount
+        
+        print(f"Action: {action}, Amount: {amount}, Value: {value}")
+        # Ensure the loop can be stopped safely
+        input("Press Enter to continue or type 'stop' to end the loop: ")
+        if input().lower() == 'stop':
+            break
+
+# Call the function to start the complex loop
+complex_behavior()
+  

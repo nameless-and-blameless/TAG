@@ -38,6 +38,12 @@ As TAG entered its current phase, [Mount Calvary Baptist Church in Lexington was
 
 They apparently have no plans on stopping the massacre of peacefully assembled Americans.
 
+## Concerned Individuals 
+Persons filing missing persons reports have been identified and killed in an ongoing effort by the federal government and CIA to keep TAG hidden from the public.
+
+> [!WARNING]
+> The FBI has assisted the CIA by disseminating information on persons filing missing persons reports. We urge local law enforcement to not file missing persons reports on the computer or at least remove any identifying information for the person(s) making the report.
+
 ## What You Need To Know
 * [How the CIA and FBI Hinder 911](/methods/911.md)
 * [How they hide TAG: Hotels](/hotels/README.md)

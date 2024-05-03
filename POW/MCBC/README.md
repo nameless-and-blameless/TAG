@@ -46,26 +46,26 @@ Outside, car haulers stood ready. Vehicles that had carried the unsuspecting con
 
 Inside the sanctuary, chaos had given way to methodical destruction. Choir stands, once adorned with hymnals and voices raised in praise, were now splintered remnants. The church’s altar and lectern met the same fate. The organ and piano, once conduits of heavenly melodies, were dismantled and discarded.
 
-### A Cherub’s Church
+## A Cherub’s Church
 
 Kelvin Eugene Williams, one of the Creator's two cherubim, had been absent from Mount Calvary Baptist Church for years. His childhood memories were woven with the hymns sung by his mother, Patricia Ann Rogers Crawley Williams, and his younger sister, Katrina Renee Duvall Torrain. But life had taken him away from those sacred walls.
 
 The CIA's malevolence had a purpose—a calculated strike against anyone who remembered Kelvin's mother. She had been an active force within the church, her faith unwavering. Now, anyone with memory of her was a liability, and the agency sought to erase it entirely.
 
-### "Sign of the Times"
+## "Sign of the Times"
 
 Prince's song, "Sign of the Times” had foretold of "Hurricane Annie," a force that would tear through a church, ripping its very ceiling off and leaving death in her wake. 
 
-### “Frying Chicken”
+## “Frying Chicken”
 The initial operation is referred to by the CIA and others as “Frying Chicken.” The moniker was applied to the operation after the fact because the congregants did fight for their lives. 
 
-### The Aftermath
+## The Aftermath
 
 When the sun dipped below the horizon, the church stood as a macabre monument to evil. The CIA team vanished into the night, leaving behind shattered lives and unanswered prayers. 
 
 Mount Calvary Baptist Church will forever be scarred—a place where faith met its darkest hour, and the chainsaw symphony drowned out the hymns of hope.
 
-### Mount Calvary Missionary Baptist Church, Inc.
+## Mount Calvary Missionary Baptist Church, Inc.
 In May 2024 the CIA formed Mount Calvary Missionary Baptist Church, Inc. a charade church with a reported address of of 4743 Todds Road in Lexington. Videos produced by the charade and posted on its Facebook page (see warnings) clearly show the interior of Mount Calvary Baptist Church at 4742 Todds Road.
 
 The sanctuary shows evidence of damages from the massacre and a shoddy restoration.
@@ -80,15 +80,15 @@ The sanctuary shows evidence of damages from the massacre and a shoddy restorati
 8. Primary choir stand - The original choir stand with permanent seating has been completely renoved, replaced railing with folding chairs.  
 9. Secondary choir stand - This choir stand was also completely removed and rebuilt to a much lower quality. It has been seen used by the musicians.
     
-#### Missionary
+### Missionary Baptist?
 The new business entity, as the name suggests, calls itself “Mount Calvary Missionary Baptist Church, Inc.” The *Missionary* was the CIA’s response to the Creator’s **Mission** 23 for Life on Earth. 
 
-#### Religious Services 
+### Religious Services 
 Mount Calvary Missionary Baptist Church, Inc. has no actual religious services. The entity has hired numerous actors for their charade and produces photos and videos for distribution on Facebook and other networks, most production occurs on weekdays.
 
 Sundays at the occupied church are used to continue the cover up of the initial massacre. Persons visiting the church are killed upon entry.
 
-#### Funerals
+### Funerals
 In June 2023, the CIA began providing funeral arrangements to loved ones of victims who called the church phone number inquiring about their whereabouts. Friends and family of the victims would then relay details of the arrangements to others. However, on the day of the announced funeral, mourners would arrive at the church only to be killed. Funeral arrangements for numerous decedents can be provided at the same time.
 
 The purpose of the funerals was to eliminate any people who could cause the CIA problems by talking about their loved ones who went missing at church. This cycle  continues to repeat today, with funerals now announced for people who went to the church for a fake funeral instead of the victims of the original massacre. It has no signs of stopping, as each fake funeral grows larger. 

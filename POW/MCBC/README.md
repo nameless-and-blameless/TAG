@@ -1,7 +1,6 @@
 # The Chainsaw Symphony: The First Congregation of TAG
-## Lexington, Kentucky — April 2, 2023
 
-TAG (The AIDS-Cure Genocide) has taken thousands of innocent lives from around the world. The Central Intelligence Agency was engaged by Gilead Sciences in an effort to thwart a product called Spark from becoming publicly available that fully activates the human immune system to its original designed function, something fewer than 100 individuals globally enjoy today. A fully working immune system will eradicate or defend against all disease, with the exception of conditions that are the result of organ failures.
+April 2, 2023 Lexington, Kentucky -- TAG (The AIDS-Cure Genocide) has taken thousands of innocent lives from around the world. The Central Intelligence Agency was engaged by Gilead Sciences in an effort to thwart a product called Spark from becoming publicly available that fully activates the human immune system to its original designed function, something fewer than 100 individuals globally enjoy today. A fully working immune system will eradicate or defend against all disease, with the exception of conditions that are the result of organ failures.
 
 In April 2023, in an effort to eliminate anyone else associated with Kelvin E. Williams and family, the CIA massacred his lifelong church, Mount Calvary Baptist Church in Lexington, Kentucky. Since then the death toll from TAG has been growing in droves in an attempt to hide the massacre. Williams is the individual identified as providing Spark to HIV-cured patients.
 

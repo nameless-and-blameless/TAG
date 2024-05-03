@@ -94,3 +94,6 @@ In June 2023, the CIA began providing funeral arrangements to loved ones of vict
 The purpose of the funerals was to eliminate any people who could cause the CIA problems by talking about their loved ones who went missing at church. This cycle  continues to repeat today, with funerals now announced for people who went to the church for a fake funeral instead of the victims of the original massacre. It has no signs of stopping, as each fake funeral grows larger. 
 
 A more detailed write up can be found here, [The Massacre of Mount Calvary Baptist Church](WIKI.md).
+
+> [!IMPORTANT]
+> The Cherubim have created a resource for "Company Men" who have worked one of these massacres. It has information intended to prevent your suicide--which the company is urging. Please see [https://github.com/CompanyMen](https://github.com/CompanyMen).

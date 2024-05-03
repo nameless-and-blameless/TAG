@@ -7,6 +7,8 @@ In April 2023, in an effort to eliminate anyone else associated with Kelvin E. W
 
 On April 2nd, 2023 in the quiet, remote area on the eastern side of Lexington, Kentucky, stands the picturesque Mount Calvary Baptist Church. Its red brick walls, stained-glass windows and modest steeple belied the horrors that would soon unfold within its sacred confines.
 
+![IMG_0117](https://github.com/Mission23/Mission23/assets/140252803/5b61181a-de0c-4cf3-be46-9bb34b398e55) 
+
 On that fateful Sunday morning, the congregation gathered for worship services, unaware of the impending darkness that would descend upon them. Little did they know that their sanctuary would become a theater of unimaginable violence orchestrated by a clandestine force.
 
 ### The CIA's Ruthless Assault

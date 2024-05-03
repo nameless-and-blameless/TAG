@@ -56,11 +56,41 @@ The CIA's malevolence had a purpose—a calculated strike against anyone who rem
 
 Prince's song, "Sign of the Times” had foretold of "Hurricane Annie," a force that would tear through a church, ripping its very ceiling off and leaving death in her wake. 
 
+### “Frying Chicken”
+The initial operation is referred to by the CIA and others as “Frying Chicken.” The moniker was applied to the operation after the fact because the congregants did fight for their lives. 
+
 ### The Aftermath
 
 When the sun dipped below the horizon, the church stood as a macabre monument to evil. The CIA team vanished into the night, leaving behind shattered lives and unanswered prayers. 
 
 Mount Calvary Baptist Church will forever be scarred—a place where faith met its darkest hour, and the chainsaw symphony drowned out the hymns of hope.
 
-See Also:
-* [The Massacre of Mount Calvary Baptist Church](WIKI.md)
+### Mount Calvary Missionary Baptist Church, Inc.
+In May 2024 the CIA formed Mount Calvary Missionary Baptist Church, Inc. a charade church with a reported address of of 4743 Todds Road in Lexington. Videos produced by the charade and posted on its Facebook page (see warnings) clearly show the interior of Mount Calvary Baptist Church at 4742 Todds Road.
+
+The sanctuary shows evidence of damages from the massacre and a shoddy restoration.
+
+![iMarkup_20240415_083932](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/cde6a2bc-4f77-45c7-91a3-3d2181cf52f6)
+1. Mount Calvary Baptist Church's altar has been removed and replaced with a lesser quality one that is missing the words "Do This" from its inscription. It's also built to fit between the two rear-facing pews.
+2. Mount Calvary Baptist Church's lecter was replaced with an lectern of a much lesser quality wood.
+3. This mirrored window is unique to Mount Calvary Baptist Church it provides a view into the sanctuary from the pastor's office. It was used to positively verify the church's sanctuary.
+4. The walls behind the choir stands which have historically been bare now display mission statements and cheap wire crosses.
+5. Piano - The churches upright piano has been removed. An oversized pew from the back wall has been put in its place facing the rear of the church.
+7. Organ - The churches original organ has been completely removed and discarded. The organ shown in #8 appears to be portable.  An oversized pew from the back wall has been put in its place facing the rear of the church.
+8. Primary choir stand - The original choir stand with permanent seating has been completely renoved, replaced railing with folding chairs.  
+9. Secondary choir stand - This choir stand was also completely removed and rebuilt to a much lower quality. It has been seen used by the musicians.
+    
+#### Missionary
+The new business entity, as the name suggests, calls itself “Mount Calvary Missionary Baptist Church, Inc.” The *Missionary* was the CIA’s response to the Creator’s **Mission** 23 for Life on Earth. 
+
+#### Religious Services 
+Mount Calvary Missionary Baptist Church, Inc. has no actual religious services. The entity has hired numerous actors for their charade and produces photos and videos for distribution on Facebook and other networks, most production occurs on weekdays.
+
+Sundays at the occupied church are used to continue the cover up of the initial massacre. Persons visiting the church are killed upon entry.
+
+#### Funerals
+In June 2023, the CIA began providing funeral arrangements to loved ones of victims who called the church phone number inquiring about their whereabouts. Friends and family of the victims would then relay details of the arrangements to others. However, on the day of the announced funeral, mourners would arrive at the church only to be killed. Funeral arrangements for numerous decedents can be provided at the same time.
+
+The purpose of the funerals was to eliminate any people who could cause the CIA problems by talking about their loved ones who went missing at church. This cycle  continues to repeat today, with funerals now announced for people who went to the church for a fake funeral instead of the victims of the original massacre. It has no signs of stopping, as each fake funeral grows larger. 
+
+A more detailed write up can be found here, [The Massacre of Mount Calvary Baptist Church](WIKI.md).

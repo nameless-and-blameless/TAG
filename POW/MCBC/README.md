@@ -11,6 +11,8 @@ On that fateful Sunday morning, the congregation gathered for worship services, 
 
 ### The CIA's Ruthless Assault
 
+![IMG_0329](https://github.com/Mission23/MCBCMassacre/assets/140252803/24fa38cf-4768-4b60-8533-b7785c9b1d3f) 
+
 Annie Jacobsen, a seasoned operative with the Central Intelligence Agency (CIA), led a team of fifty men and one woman. Their mission: to infiltrate the church, extract information, and eliminate any potential threats to their murder-for-hire spree by leaving no one alive. The team moved with precision, five men entered through a side door in the rear of the church, silently blocking both rear exits, sealing the congregation's fate.  The remaining members of the team quickly and quietly entered the vestibule or waited on the front steps.
 
 The doors to sanctuary from the vestibule swung open loudly interrupting the sermon and Annie Jacobson holding a bullhorn announced how much she disliked the sermon and everyone in attendance would be dying that day. Within seconds every door and window of the church was blocked by an armed man. The congregation was trapped and the horror set in.

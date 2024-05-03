@@ -67,5 +67,11 @@ First, We would like to thank GitHub for enduring the government's pressure, We 
 
 We utilize GitHub and these "vaults" because of the nature of git. Our vaults are typical accounts that have 2FA that we INTENTIONALLY threw away the credentials only allowing a user or two to WRITE to. This helps should they steal (again) my devices and attempt to edit. When that happens BLAME (learn: [git blame](https://git-scm.com/docs/git-blame)).
 
+## What You Need To Know
+* [How the CIA and FBI Hinder 911](/methods/911.md)
+* [How they hide TAG: Hotels](/hotels/README.md)
+* [How they hide TAG: Any Decedent Funerals (ADF)](/methods/ADF.md)
+
+
 # Slack 
 [Join our Slack.](https://join.slack.com/t/thecherubimonslack/shared_invite/zt-2h5wrphds-0icLMWVSCdt9vskOk3dLRw)

@@ -194,3 +194,5 @@ Micah wrote about the event which was not held on a Sunday. [Read more about the
 > [!NOTE]
 > We urge everyone to pray to verify everyone and everything they encounter from or about Mount Calvary Baptist Church in Lexington, Kentucky. Everyone and everything includes us and everything we have ever done. To “pray to verify” simply pray and ask for His guidance.
 
+> [!IMPORTANT]
+> The Cherubim have created a resource for "Company Men" who have worked one of these massacres. It has information intended to prevent your suicide--which the company is urging. Please see [https://github.com/CompanyMen](https://github.com/CompanyMen).

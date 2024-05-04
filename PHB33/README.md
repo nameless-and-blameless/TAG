@@ -172,6 +172,9 @@ Read also:
 * [The CIA's Lust & Envy Problem](/media/CIA_lust_envy.md) / RapeSquads
 * [Cream](/etc/jezebel_cream.md)
 
+# Contact
+If you have read the foregoing and would like to contact me see my https:// github.com/kelvinundivided profile.
+
 # Assistance 
 They will not allow me to work, they've killed everyone I ever knew, and restrict who I interact with--they've killed people who I've met in passing who knew nothing.
 

@@ -52,4 +52,4 @@ Or the line from The Weather Girl's "It's Raining Men" verse that says:
 
 ![IMG_1576](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/09b4ba40-3192-4aa3-81cc-a08b1509836f)
 
-Note the: "In God We **Must**" at the bottom.
+Note the: "In God We **Must**" at the bottom. Thats also a drawing of my mother's head that's being rolled.

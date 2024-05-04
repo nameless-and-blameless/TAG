@@ -78,7 +78,7 @@ The sanctuary shows evidence of damages from the massacre and a shoddy restorati
 5. Piano - The churches upright piano has been removed. An oversized pew from the back wall has been put in its place facing the rear of the church.
 7. Organ - The churches original organ has been completely removed and discarded. The organ shown in #8 appears to be portable.  An oversized pew from the back wall has been put in its place facing the rear of the church.
 8. Primary choir stand - The original choir stand with permanent seating has been completely renoved, replaced railing with folding chairs.  
-9. Secondary choir stand - This choir stand was also completely removed and rebuilt to a much lower quality. It has been seen used by the musicians.
+9. Secondary choir stand - This choir stand was also completely removed and rebuilt to a much lower quality. It has been seen used by the musicians. In correspondence from the CIA's Mount Calvary Missionary Baptist Church, Inc. the secondary choir stand is shown in the letterhead, with a visiting choir that was actually the CIA's advance team. See Correspondence [here](WIKI.md).
     
 ### Missionary Baptist?
 The new business entity, as the name suggests, calls itself “Mount Calvary Missionary Baptist Church, Inc.” The *Missionary* was the CIA’s response to the Creator’s **Mission** 23 for Life on Earth. 

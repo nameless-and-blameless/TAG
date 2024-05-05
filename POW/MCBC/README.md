@@ -72,24 +72,26 @@ The sanctuary shows evidence of damages from the massacre and a shoddy restorati
 3. This mirrored window is unique to Mount Calvary Baptist Church it provides a view into the sanctuary from the pastor's office. It was used to positively verify the church's sanctuary.
 4. The walls behind the choir stands which have historically been bare now display mission statements and cheap wire crosses.
 5. Piano - The churches upright piano has been removed. An oversized pew from the back wall has been put in its place facing the rear of the church.
-7. Organ - The churches original organ has been completely removed and discarded. The organ shown in #8 appears to be portable.  An oversized pew from the back wall has been put in its place facing the rear of the church.
-8. Primary choir stand - The original choir stand with permanent seating has been completely renoved, replaced railing with folding chairs.  
-9. Secondary choir stand - This choir stand was also completely removed and rebuilt to a much lower quality. It has been seen used by the musicians. In correspondence from the CIA's Mount Calvary Missionary Baptist Church, Inc. the secondary choir stand is shown in the letterhead, with a visiting choir that was actually the CIA's advance team. See [Correspondence](/POW/MCBC/WIKI.md#correspondence).
+7. Organ - The churches original organ has been completely removed and discarded. The organ (shown in #8) appears to be portable, it is moved to other locations in some videos. An oversized pew from the back wall has been put in its place facing the rear of the church.
+8. Primary choir stand - The original choir stand with permanent seating has been completely removed. The railing replaced with non-uniform woods and fixed upholstered seating replaced with folding table chairs.  
+9. Secondary choir stand - This choir stand was also completely removed and rebuilt to a much lower standard. It has been seen used by the musicians. In correspondence from the CIA's Mount Calvary Missionary Baptist Church, Inc. the secondary choir stand is shown in the letterhead, with a picture of a visiting choir before the massacre, that was actually the CIA's advance team. See [Correspondence](/POW/MCBC/WIKI.md#correspondence).
+
+The manin at the lectern, in the photo above, is not Mount Calvary's longtime pastor, Rev. Dr. Felix G. Williams, III, who is a cousin to Kelvin E. Williams; rather, he is an actor hired for his striking resemblance. 
     
-### Missionary Baptist?
-The new business entity, as the name suggests, calls itself “Mount Calvary Missionary Baptist Church, Inc.” The *Missionary* was the CIA’s response to the Creator’s **Mission** 23 for Life on Earth. 
+The new business entity, as the name suggests, calls itself “Mount Calvary Missionary Baptist Church, Inc.” The *Missionary* was the CIA’s response to the Creator’s **Mission** number 23 for Life on Earth. 
 
-### Religious Services 
-Mount Calvary Missionary Baptist Church, Inc. has no actual religious services. The entity has hired numerous actors for their charade and produces photos and videos for distribution on Facebook and other networks, most production occurs on weekdays.
+Mount Calvary Missionary Baptist Church, Inc. has no actual religious services. The entity has hired numerous actors for their charade and produces photos and videos for distribution on Facebook and other social networks, most video production and weekly photoshoot occurs on a weekday.
 
-Sundays at the occupied church are used to continue the cover up of the initial massacre. Persons visiting the church are killed upon entry.
+Sundays at the CIA-occupied church are used to continue the cover up of the initial massacre. Persons entering the church are killed upon entry.
 
-### Funerals
-In June 2023, the CIA began providing funeral arrangements to loved ones of victims who called the church phone number inquiring about their whereabouts. Friends and family of the victims would then relay details of the arrangements to others. However, on the day of the announced funeral, mourners would arrive at the church only to be killed. Funeral arrangements for numerous decedents can be provided at the same time.
+In June 2023, the CIA began providing funeral arrangements to loved ones of victims who called the church phone number inquiring about their whereabouts. Friends and family of the victims would then relay details of the arrangements to others. However, on the day of the announced funeral, mourners would arrive at the church only to be killed. Funeral arrangements for multiple unrelated decedents can be provided at the same time, based on CIA staffing at the church.
 
 The purpose of the funerals was to eliminate any people who could cause the CIA problems by talking about their loved ones who went missing at church. This cycle  continues to repeat today, with funerals now announced for people who went to the church for a fake funeral instead of the victims of the original massacre. It has no signs of stopping, as each fake funeral grows larger. 
 
 A more detailed write up can be found here, [The Massacre of Mount Calvary Baptist Church](/POW/MCBC/WIKI.md).
 
+> [!WARNING]
+> Viewers of the charade church's page on Facebook must be logged in. The CIA obtains identifying information for anyone who views their page. It is highly  suggested not to interact with the page.
+
 > [!IMPORTANT]
-> The Cherubim have created a resource for "Company Men" who have worked one of these massacres. It has information intended to prevent your suicide--which the company is urging. Please see [https://github.com/CompanyMen](https://github.com/CompanyMen).
+> The Cherubim have created a resource for "Company Men" who have worked one of these church massacres. It has information intended to prevent your suicide. Please see [https://github.com/CompanyMen](https://github.com/CompanyMen).

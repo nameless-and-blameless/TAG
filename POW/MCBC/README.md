@@ -14,7 +14,7 @@ On that fateful Sunday morning, the congregation gathered for worship services, 
 
 ![IMG_0329](https://github.com/Mission23/MCBCMassacre/assets/140252803/24fa38cf-4768-4b60-8533-b7785c9b1d3f) 
 
-"Hurricane Annie" Jacobsen, a seasoned operative with the Central Intelligence Agency (CIA), led a team of fifty men and one woman, their mission: to infiltrate the church, extract information, and eliminate any potential threats to their murder-for-hire spree of American citizens by leaving no one alive. The team moved with precision, five men entered through a side door in the rear of the church, silently blocking both rear exits. The remaining members of her  team quickly and quietly entered the vestibule and spilled out onto the church's front steps.
+Prince's song, "Sign of the Times”  foretold of hurricane that would rip the ceiling off a church and killing everyone inside. "Hurricane Annie" Jacobsen, a seasoned operative with the Central Intelligence Agency (CIA), led a team of fifty men and one woman, their mission: to infiltrate the church, extract information, and eliminate any potential threats to their murder-for-hire spree of American citizens by leaving no one alive. The team moved with precision, five men entered through a side door in the rear of the church, silently blocking both rear exits. The remaining members of her  team quickly and quietly entered the vestibule and spilled out onto the church's front steps.
 
 The doors leading to the sanctuary from the vestibule—a small room at the entrance of the church—swung open with a loud noise, disrupting the sermon.
 Annie Jacobson holding a bullhorn announced how much she disliked the sermon and everyone in attendance would be dying that day. Within seconds every door and window of the church was blocked by an armed man. The congregation was trapped and the horror set in.
@@ -45,24 +45,19 @@ Outside, car haulers stood ready. Vehicles that had carried the unsuspecting con
 
 Inside the sanctuary, chaos had given way to methodical destruction. Choir stands, once adorned with hymnals and voices raised in praise, were now splintered remnants. The church’s altar and lectern met the same fate. The organ and piano, once conduits of heavenly melodies, were dismantled and discarded.
 
-Away from the church the CIA's new "hotel" construction personnel went to work.
+Away from the church the CIA's new "hotel" construction personnel went to work, constructing hotels for each of the adult victims. The "hotel" is not a place of rest or solace. It is a theater of malevolence, orchestrated by unseen hands. Its purpose? To conceal the aftermath of violence, to shroud murder victims in a web of deceit. But this is no ordinary cover-up; it is an elaborate dance of identity, where the dead are kept alive through macabre metamorphosis.
 
 ## A Cherub’s Church
 
-Kelvin Eugene Williams, one of the Creator's two cherubim, had been absent from Mount Calvary Baptist Church for years. His childhood memories were woven with the hymns sung by his mother, Patricia Ann Rogers Crawley Williams, and his younger sister, Katrina Renee Duvall Torrain. But life had taken him away from those sacred walls.
+Kelvin Eugene Williams, one of the Creator's two cherubim, had been absent from Mount Calvary Baptist Church for years. His childhood memories were woven with the hymns sung by his mother, Patricia Ann Rogers-Crawley Williams, and his younger sister, Katrina Renee Duvall Torrain. But his career and life had taken him away from Lexington and weekly attendance over thirty years ago.
 
-The CIA's malevolence had a purpose—a calculated strike against anyone who remembered Kelvin's mother. She had been an active force within the church, her faith unwavering. Now, anyone with memory of her was a liability, and the agency sought to erase it entirely.
+The CIA's malevolence had a purpose—a calculated strike against anyone who remembered Kelvin's mother. She had been an active force within the church, her faith unwavering. Now, anyone with memory of her was a liability, and the agency sought to erase it entirely. The company needed to hide the murder of their family in Sandy Hook, Tennessee and her church family was an immediate threat to the "hotel" the CIA constructed in her name that needed to operate without any issues to steal and sell the family's land to hide another church atrocity.
 
-## "Sign of the Times"
-
-Prince's song, "Sign of the Times” had foretold of "Hurricane Annie," a force that would tear through a church, ripping its very ceiling off and leaving death in her wake. 
-
-## “Frying Chicken”
-The initial operation is referred to by the CIA and others as “Frying Chicken.” The moniker was applied to the operation after the fact because the congregants did fight for their lives. 
+The massacre at Mount Calvary is referred to by the CIA as “Frying Chicken.” The moniker was applied to the operation after the fact because the congregants did fight for their lives. 
 
 ## The Aftermath
 
-When the sun dipped below the horizon, the church stood as a macabre monument to evil. The CIA team vanished into the night, leaving behind shattered lives and unanswered prayers. 
+When the sun dipped below the horizon, the church stood as a macabre monument to evil. The CIA team vanished into the night, leaving behind confused loved ones who weren't at the church looking for what is legally only "missing persons."
 
 Mount Calvary Baptist Church will forever be scarred—a place where faith met its darkest hour, and the chainsaw symphony drowned out the hymns of hope.
 

@@ -1,4 +1,4 @@
-# Hurricane Annie
+# "Hurricane Annie" Jacobsen 
 Annie Jacobsen, also called "Hurricane Annie" by Prince in "Sign of the Times" used the tactics in her book "Surprise, Kill, Vanish" on my church, Mount Calvary Baptist Church and Mount Zion in Kentucky.
 
 To keep her wrath for bigPharma hidden, she formed a group with darker pigment skin to attack the white church, Lexington Bethel Baptist Church, who acted like a good neighbor and checked on my church when she wouldn't stop holding funerals to kill everyone who came. They duplicated the process.

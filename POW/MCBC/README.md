@@ -1,4 +1,4 @@
-# The Chainsaw Symphony: The First Congregation of TAG
+# The Chainsaw Symphony
 
 April 2, 2023 Lexington, Kentucky -- TAG (The AIDS-Cure Genocide) has taken thousands of innocent lives from around the world. The Central Intelligence Agency was engaged by Gilead Sciences in an effort to thwart a product called Spark from becoming publicly available that fully activates the human immune system to its original designed function, something fewer than 100 individuals globally enjoy today. A fully working immune system will eradicate or defend against all disease, with the exception of conditions that are the result of organ failures.
 

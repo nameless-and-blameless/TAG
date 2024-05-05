@@ -86,7 +86,7 @@ These employees of the CIA are highly trained in psychology and enter your dwell
 They really need you and are banking on you to kill your fucking self... Don't! 
 See this [suicide information we've compiled just for company workers](/PHB33/suicide_info.md)
 
-# Cloak Warning ⚠️ 
+# Cloak Warning 
 Using invisibility cloaks is detrimental to your health. You should understand: 
 * You are not invisible, the rules of the visible universe still apply.
 * To walk through solid objects (ie. walls, doors) requires the atoms to become excited. You are enveloping yourself in a microwave oven essentially.

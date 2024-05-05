@@ -14,14 +14,16 @@ On that fateful Sunday morning, the congregation gathered for worship services, 
 
 ![IMG_0329](https://github.com/Mission23/MCBCMassacre/assets/140252803/24fa38cf-4768-4b60-8533-b7785c9b1d3f) 
 
-"Hurricane Annie" Jacobsen, a seasoned operative with the Central Intelligence Agency (CIA), led a team of fifty men and one woman, their mission: to infiltrate the church, extract information, and eliminate any potential threats to their murder-for-hire spree by leaving no one alive. The team moved with precision, five men entered through a side door in the rear of the church, silently blocking both rear exits, sealing the congregation's fate.  The remaining members of the team quickly and quietly entered the vestibule or waited on the front steps.
+"Hurricane Annie" Jacobsen, a seasoned operative with the Central Intelligence Agency (CIA), led a team of fifty men and one woman, their mission: to infiltrate the church, extract information, and eliminate any potential threats to their murder-for-hire spree of American citizens by leaving no one alive. The team moved with precision, five men entered through a side door in the rear of the church, silently blocking both rear exits. The remaining members of her  team quickly and quietly entered the vestibule and spilled out onto the church's front steps.
 
 The doors leading to the sanctuary from the vestibule—a small room at the entrance of the church—swung open with a loud noise, disrupting the sermon.
-Annie Jacobson holding a bullhorn announced how much she disliked the sermon and everyone in attendance would be dying that day. Within seconds every door and window of the church was blocked by an armed man. The congregation was trapped and the horror set in.
+Annie Jacobson holding a bullhorn announced how much she disliked the sermon and everyone in attendance would be dying that day. Within seconds every door and window of the church was blocked by armed men. The congregation was trapped and the horror set in.
 
 ### Desperate Calls to 911
 
-Inside the church, panic erupted as congregants realized their dire situation. Some reached for their mobile phones, desperate to call for help. But a rogue Cell on Wheels (or COW), strategically positioned in the church parking lot, caused every mobile phone within a quarter-mile to connect to it. The configuration of this covert mobile tower operated by the CIA rerouted all calls to 911 directly to a separate team of CIA personnel with prior knowledge of the operation. All other calls and mobile services failed. 
+Inside the church, panic erupted as congregants realized their dire situation. Some reached for their mobile phones, desperate to call for help. But a rogue Cell on Wheels (or COW) strategically positioned in the church's back parking lot. A *Cell on Wheels* is a portable, temporary cell tower that can be quickly deployed to enhance mobile network coverage in areas where it's needed, such as during large events or in response to emergencies. The equipment inside the covert mobile tower hidden inside a standard Ford Explorer caused every mobile phone within a quarter-mile of it to connect to it. The configuration of this c
+
+operated by the CIA rerouted all calls to 911 to a separate team of CIA personnel with prior knowledge of the operation. All other calls and mobile services failed. 
 
 Desperate voices pleaded for assistance, unaware that their cries fell on deaf ears. The CIA agents, feigning concern, assured callers that first responders were being dispatched. But in reality, their fate had already been sealed.
 

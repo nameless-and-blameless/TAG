@@ -57,12 +57,12 @@ The massacre at Mount Calvary is referred to by the CIA as “Frying Chicken.”
 
 ## The Aftermath
 
-When the sun dipped below the horizon, the church stood as a macabre monument to evil. The CIA team vanished into the night, leaving behind confused loved ones who weren't at the church looking for what is legally only "missing persons."
+As the sun set, the church stood as a macabre monument to evil. The covert operatives disappeared into the darkness, leaving behind bewildered families who searched in vain for their "missing" kin.
 
-Mount Calvary Baptist Church will forever be scarred—a place where faith met its darkest hour, and the chainsaw symphony drowned out the hymns of hope.
+Mount Calvary Baptist Church will now forever be a place where faith met its darkest hour, and the chainsaw symphony drowned out the normal hymns of praise.
 
 ## Mount Calvary Missionary Baptist Church, Inc.
-In May 2024 the CIA formed Mount Calvary Missionary Baptist Church, Inc. a charade church with a reported address of of 4743 Todds Road in Lexington. Videos produced by the charade and posted on its Facebook page (see warnings) clearly show the interior of Mount Calvary Baptist Church at 4742 Todds Road.
+In May 2023 the CIA formed Mount Calvary Missionary Baptist Church, Inc. a charade church with a reported address of 4743 Todds Road in Lexington. Videos produced by the charade and posted on its Facebook page (see warnings below) clearly show the interior of Mount Calvary Baptist Church at 4742 Todds Road.
 
 The sanctuary shows evidence of damages from the massacre and a shoddy restoration.
 

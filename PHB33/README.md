@@ -190,6 +190,7 @@ If you want to help me with a buck or two, you can for cigarettes (they're $6 or
 * [The Massacre of Lexington Bethel Baptist Church](/POW/LBBC)
 * [Patricia Ann Rogers Crawley](/hotels/Signature) is kryptonite.
 * [Madonna is a TAG victim](/hotels/Celebrity)
+* ["Hurricane Annie" Jacobsen](/etc/Jacobsen.md)
 * [Frequently Asked Questions](/etc/FAQs.md)
      - Who is your Creator?
      - Why is alcohol so bad?

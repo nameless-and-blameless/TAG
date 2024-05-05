@@ -4,7 +4,7 @@ April 2, 2023 Lexington, Kentucky -- TAG (The AIDS-Cure Genocide) has taken thou
 
 In April 2023, in an effort to eliminate anyone else associated with Kelvin E. Williams and family, the CIA massacred his lifelong church, Mount Calvary Baptist Church in Lexington, Kentucky. Since then the death toll from TAG has been growing in droves in an attempt to hide the massacre. Williams is the individual identified as providing Spark to HIV-cured patients.
 
-On April 2nd, 2023 in the quiet, remote area on the eastern side of Lexington, Kentucky, stands the picturesque Mount Calvary Baptist Church. Its red brick walls, stained-glass windows and modest steeple belied the horrors that would soon unfold within its sacred confines.
+On April 2nd, 2023 in the quiet, remote area on the eastern side of Lexington, Kentucky, stood the picturesque Mount Calvary Baptist Church. Its red brick walls, stained-glass windows and modest steeple belied the horrors that would soon unfold within its sacred confines.
 
 ![IMG_0117](https://github.com/Mission23/Mission23/assets/140252803/5b61181a-de0c-4cf3-be46-9bb34b398e55) 
 
@@ -14,9 +14,10 @@ On that fateful Sunday morning, the congregation gathered for worship services, 
 
 ![IMG_0329](https://github.com/Mission23/MCBCMassacre/assets/140252803/24fa38cf-4768-4b60-8533-b7785c9b1d3f) 
 
-Annie Jacobsen, a seasoned operative with the Central Intelligence Agency (CIA), led a team of fifty men and one woman. Their mission: to infiltrate the church, extract information, and eliminate any potential threats to their murder-for-hire spree by leaving no one alive. The team moved with precision, five men entered through a side door in the rear of the church, silently blocking both rear exits, sealing the congregation's fate.  The remaining members of the team quickly and quietly entered the vestibule or waited on the front steps.
+"Hurricane Annie" Jacobsen, a seasoned operative with the Central Intelligence Agency (CIA), led a team of fifty men and one woman, their mission: to infiltrate the church, extract information, and eliminate any potential threats to their murder-for-hire spree by leaving no one alive. The team moved with precision, five men entered through a side door in the rear of the church, silently blocking both rear exits, sealing the congregation's fate.  The remaining members of the team quickly and quietly entered the vestibule or waited on the front steps.
 
-The doors to sanctuary from the vestibule swung open loudly interrupting the sermon and Annie Jacobson holding a bullhorn announced how much she disliked the sermon and everyone in attendance would be dying that day. Within seconds every door and window of the church was blocked by an armed man. The congregation was trapped and the horror set in.
+The doors leading to the sanctuary from the vestibule—a small room at the entrance of the church—swung open with a loud noise, disrupting the sermon.
+Annie Jacobson holding a bullhorn announced how much she disliked the sermon and everyone in attendance would be dying that day. Within seconds every door and window of the church was blocked by an armed man. The congregation was trapped and the horror set in.
 
 ### Desperate Calls to 911
 

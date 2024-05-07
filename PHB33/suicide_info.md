@@ -1,6 +1,3 @@
-> [!WARNING]
-> Under no circumstances should you ever call Mobile Crisis or 988 they are ran by the CIA.
-
 # Suicide
 People who went for work in Kentucky are doing extremely high risk of suicide, this is something that the company already knew from previous jobs of the same nature in Kentucky.  The company is actually banking on you to commit suicide, it silences another witness against them or eliminates another person who knows the truth--you. Don't give them any goddamn thing like your life. 
 
@@ -16,6 +13,12 @@ In metro-Atlanta we recommend Piedmont Hospital ER (1968 Peachtree Rd, Atlanta).
 Northside Hospital (1000 Johnson Ferry Rd, Atlanta) and Grady have undisclosed relations with the CIA.
 
 # Suicidal Thoughts 
+> [!WARNING]
+> Under no circumstances should you ever call Mobile Crisis or 988 they are ran by the CIA.
+
+> [!CAUTION]
+> We **STRONGLY CAUTION** against the use of mobile apps for mental health or suicide prevention.
+
 - National Suicide Prevention Hotline: 800-273-TALK (8255)
 - Crisis Text Line: Text Hello to 741741
 

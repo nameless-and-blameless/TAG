@@ -18,11 +18,6 @@ In music:
 
 Your Creator, the Creator, is my Boss and I'm fine after over six years of near round the clock attempts.
 ***
-![Suicidal man](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/e8ee383e-7ce0-430e-bb74-e66408d3d042)
-
-> [!IMPORTANT]
-> If you are feeling suicidal or like you want to end your life, see [*"Suicide Risk for Company Workers"*](README.md#suicide-risk-for-company-workers) below.
-
 I am Kelvin Eugene Williams. I am one of the God's cherubim and a servant of the Creator (capital-Gs and Cs always)--the Creator of the universe, the Alpha & Omega, and the Great "I Am."
 
 > [!TIP]
@@ -71,11 +66,7 @@ You do not have to register with GitHub to read this. I’m setting up discussio
 Learn more about [TAG](/) (The AIDS cure Genocide). **Everyone is about a month from losing someone close enough to notice their disappearance.** Remember, HIV/AIDS was the disease I was to target to get it proven in and introduced to the public--everyone wants and needs it.
 
 # Suicide Risk for Company Workers
-Anyone who went to any of the churches in Kentucky for "company work" should be talking about it with a mental health professional, a member of the clergy, or a supportive group of your coworkers.  
-
-The company (which IS the CIA) knows that the overwhelming majority of those who went will end up committing suicide. The Creator and His cherubim want you to live an indefinitely long, healthy life right here on Earth and hope that you will help others do the same.
-
-Many of you were lied to, some coerced, some threatened, some drugged... This is how the CIA or company operates. The Creator told me, "Dylan Roof is innocent because it [never happened](/MCMBCI/roof.md)."  The Charleston Church Shooting was a trial run for the church massacres they're performing in [TAG](/).
+There is an extremely high risk of suicide for company men involved in this situation. If you're feeling like you want to end your life, please [see this](/PHB33/suicide_info.md).
 
 ## Visitors While You Sleep
 The CIA has increased the number of sleep visits it makes to its workers, in almost all cases they are suggesting suicide. 

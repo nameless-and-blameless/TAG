@@ -3,7 +3,7 @@
 They spent the night talking to my subconscious, I woke hearing "[angels](https://mega.nz/file/IfVlXYLK#_BsjohE4q3erNi-Gk4uOGBbgZQyhZ3Du5D1cvsJxBgg)" in my room and craving a cigarette very badly. Having none (they knew) and only fifty cents (they knew) I had only one place to go from Phoenix House (their rent free place they gave me to live).
 
 > [!NOTE]
-> I'm wrapping up a SpecOp for the Creator, which means I have served as a honeypot for Him, so He could protect the rest of the network (you're a node on that network). It's to stop the move to authoritarianism--they are moving fast! He's got it.
+> [I'm wrapping up a SpecOp](https://medium.com/@theServantsoftheCreator/spec-op-complete-83df1e5999fd) for the Creator, which means I have served as a honeypot for Him, so He could protect the rest of the network (you're a node on that network). It's to stop the move to authoritarianism--they are moving fast! He's got it. 
 
 ## Step Two
 Coordinate with the store's owner to not open on time and make sure my subconscious would "sit there" and wait.

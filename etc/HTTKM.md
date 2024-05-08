@@ -16,6 +16,9 @@ When it failed, instruct my subconscious to "go to New York." So I'd kill myself
 
 ![1_DW4LEMZ0Q6Ul_OiP5b9-Fw@2x](https://github.com/nameless-and-blameless/TAG/assets/169210208/be79cdbd-d2bf-4f10-b252-cc24e3a25c26)
 
+> [!INFORMATION]
+> "Albert" is a name I gave the Creator. It's a reference to "The Color Purple," they know I call Him that. (And of course He does--gotta see Celie's face when she first uses it, its like she has some huge secret.)
+
 New York as the image they posted in my Twitter feed tells my subconscious to "pull it in" (which shrinks my dick), something they can do when taught how. Conversely, Florida tells him to "push it all back out."
 
 (You don't wanna know what happened when my subconscious took the "last train north, waaaay up north" in Vandaveer's "Nature of out Kind.")

@@ -24,7 +24,7 @@ New York as the image they posted in my Twitter feed tells my subconscious to "p
 ## Hard Hitting Interview 
 After walking around picking up poisoned cigarette butts left around for me (part public service, part my craving wouldn't stop) I walked back to find the store I wanted to go to was open, over thirty minutes late, again ... convenient.
 
-I decided to [interview the hitman](https://youtu.be/SQL96WWmG44?si=ee7Sy5zPeUOqgg1e).
+I decided to [interview the hitman](https://youtu.be/SQL96WWmG44?si=ee7Sy5zPeUOqgg1e). [backup copy](https://mega.nz/file/IfVlXYLK#_BsjohE4q3erNi-Gk4uOGBbgZQyhZ3Du5D1cvsJxBgg)
 
 ## The FBI Responds... "Give him his dick back!"
 ![IMG_20240508_125428597_HDR](https://github.com/nameless-and-blameless/TAG/assets/169210208/839b1a74-431d-4673-b6e3-b33616808b96)

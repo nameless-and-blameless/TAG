@@ -1,4 +1,4 @@
-This is a page for all of the "company men," FBI, DEA, military, State of Georgia, contractors or anyone else who either enters my apartment cloaked, visits socially, or otherwise has contact with me. It is intended to educate you about a National Security incident that you're now **undoubtedly** involved in.
+This is a page for all of those (including FBI, DEA, military, State of Georgia, contractors) who either enters my apartment cloaked, visits socially, or otherwise has contact with me. It is intended to educate you about a National Security incident that you're now **undoubtedly** involved in.
 
 This situation must remain secret, which means a few things:
 * You've likely been misled
@@ -10,18 +10,20 @@ The short version:
 * The CIA ("the company") needs me dead
 * The State of Georgia needs me dead
 * The Federal Government needs me dead
-* Humanity needs me alive--that includes  YOU 
+* Humanity needs me alive--that includes  YOU
+
 
 In music:
 * "Sign of the Times" is a song by my cousin Prince Rogers Nelson
 * "A Mighty Leviathan of Old" is a song by my childhood best friend, Mark, of Vandaveer
 
-Your Creator, the Creator, is my Boss and I'm fine after over six years of near round the clock attempts.
 ***
 I am Kelvin Eugene Williams. I am one of the God's cherubim and a servant of the Creator (capital-Gs and Cs always)--the Creator of the universe, the Alpha & Omega, and the Great "I Am."
 
 > [!TIP]
 > The Creator is the only one which can hear prayer when it's made silently. Anytime you read something on here (or the linked pages) say a silent prayer asking for guidance. Pray the way you were first taught to as a child, just silently (you never know who's listening).
+
+Since 2018 the CIA has been trying to kill me, now the government has joined in an effort to hide the actions of the both of them.
 
 I am also the last living member of both my mother’s and father’s families, the last living member of Mount Calvary Baptist Church in Lexington, Kentucky. Out of hundreds of friends, coworkers, and people I’ve barely knew, I am one of only a handful still alive. All of these wonderful people were murdered in the past few years, all at the hands of the Central Intelligence Agency (also known as, “the company”) because they needed to stop a one-time, single-dose product called *"Spark,"* which is direct from your creator, the Creator and restores the human immune system to His designed  function from reaching the market. A fully functional immune system will cure or prevent any disease minus those conditions mislabeled as diseases that are the result of organ failure, like Diabetes type 1. I **had** Diabetes type 2, it's now gone after Spark (you may have heard how much ice cream I **EAT**--it's never sugar free).
 

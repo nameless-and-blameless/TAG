@@ -12,5 +12,7 @@ The CIA turbocharged an ongoing genocide here in the US, when they attacked and 
 
 When I post this on GitHub in the “MIL” directory, I will officially be fulfilling Biblical prophecy (Revelation 18:21-24) as git is definitely a stone. I had previously thought that would be when I take a trip to “Alphabet Street” as my cousin Prince sung in a song, which is my family’s cemetery that was desecrated by the CIA when they stole the farm that made up Sandy Hook, Tennessee. 
 
+Learn more about [The American Genocide (TAG)](/) that the government and CIA needs to keep hidden.
+
 Listen Also: “1999” by Prince – In some versions there is a child that says, “Mommy, why does everybody have a bomb?” That is a reference to the MOAB.
 

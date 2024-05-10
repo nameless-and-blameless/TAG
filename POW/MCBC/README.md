@@ -1,9 +1,5 @@
 # The Chainsaw Symphony
 
-April 2, 2023 Lexington, Kentucky -- TAG (The AIDS-Cure Genocide) has taken thousands of innocent lives from around the world. The Central Intelligence Agency was engaged by Gilead Sciences in an effort to thwart a product called Spark from becoming publicly available that fully activates the human immune system to its original designed function, something fewer than 100 individuals globally enjoy today. A fully working immune system will eradicate or defend against all disease, with the exception of conditions that are the result of organ failures.
-
-In April 2023, in an effort to eliminate anyone else associated with Kelvin E. Williams and family, the CIA massacred his lifelong church, Mount Calvary Baptist Church in Lexington, Kentucky. Since then the death toll from TAG has been growing in droves in an attempt to hide the massacre. Williams is the individual identified as providing Spark to HIV-cured patients.
-
 On April 2nd, 2023 in the quiet, remote area on the eastern side of Lexington, Kentucky, stood the picturesque Mount Calvary Baptist Church. Its red brick walls, stained-glass windows and modest steeple belied the horrors that would soon unfold within its sacred confines.
 
 ![IMG_0117](https://github.com/Mission23/Mission23/assets/140252803/5b61181a-de0c-4cf3-be46-9bb34b398e55) 
@@ -37,15 +33,15 @@ Outside, car haulers stood ready. Vehicles that had carried the unsuspecting con
 
 Inside the sanctuary, chaos had given way to methodical destruction. Choir stands, once adorned with hymnals and voices raised in praise, were now splintered remnants. The church’s altar and lectern met the same fate. The organ and piano, once conduits of heavenly melodies, were dismantled and discarded.
 
-Away from the church the CIA's new "hotel" construction personnel went to work, constructing hotels for each of the adult victims. The "hotel" is not a place of rest or solace. It is a theater of malevolence, orchestrated by unseen hands. Its purpose? To conceal the aftermath of violence, to shroud murder victims in a web of deceit. But this is no ordinary cover-up; it is an elaborate dance of identity, where the dead are kept alive through macabre metamorphosis.
+Away from the church the CIA's new "hotel" construction personnel went to work, constructing hotels for each of the adult victims. The "hotel" is not a place of rest or solace. It is a theater of malevolence, orchestrated by unseen hands. Its purpose? To conceal the aftermath of violence, to shroud murder victims in a web of deceit. But this is no ordinary cover-up; it is an elaborate dance of identity, where the dead are kept alive through macabre metamorphosis.  Quite simply, its organized identity theft. The hotel's guest can be the victim's murderer or an entire team of CIA personnel based in Langley with impersonators and legal staff.
 
-Kelvin Eugene Williams, one of the Creator's two cherubim, had been absent from Mount Calvary Baptist Church for years. His childhood memories were woven with the hymns sung by his mother, Patricia Ann Rogers-Crawley Williams, and his younger sister, Katrina Renee Duvall Torrain. But his career and life had taken him away from Lexington and weekly attendance over thirty years ago.
+Kelvin Eugene Williams, one of the Creator's two cherubim, has been a member of Mount Calvary Baptist Church since his baptism at a young age.  He attended worship services every Sunday while living at home with his mother and younger sister, Patricia Ann Rogers-Crawley Williams and Katrina Renee Duvall-Torrain. Both his mother and sister were murdered by the CIA in October 2022. But his career and life had taken him away from Lexington and weekly attendance over thirty years ago.
 
-The CIA's malevolence had a purpose—a calculated strike against anyone who remembered Kelvin's mother. She had been an active force within the church, her faith unwavering. Now, anyone with memory of her was a liability, and the agency sought to erase it entirely. The company needed to hide the murder of their family in Sandy Hook, Tennessee and her church family was an immediate threat to the "hotel" the CIA constructed in her name that needed to operate without any issues to steal and sell the family's land to hide another church atrocity.
+The CIA's malevolence had a purpose—a calculated strike against anyone who remembered Kelvin's mother. She had been an active force within the church, her faith unwavering. Now, anyone with memory of her was a liability, and the CIA sought to erase it entirely. The company needed to hide the mass murder of her family in Sandy Hook, Tennessee and her church family was an immediate threat to the "hotel" the CIA constructed in her name that needed to operate without any issues to steal and sell the family's land to hide another church atrocity.
 
-The massacre at Mount Calvary is referred to by the CIA as “Frying Chicken.” The moniker was applied to the operation after the fact because the congregants did fight for their lives. 
+The massacre at Mount Calvary is referred to by the CIA as “Frying Chicken.” The moniker was applied to the operation after the fact because the congregants fought for their lives. 
 
-As the sun set, the church stood as a macabre monument to evil. The covert operatives disappeared into the darkness, leaving behind bewildered families who searched in vain for their "missing" kin.
+As the sun set, the church stood as a macabre monument to the evils of Annie Jacobsen, the CIA, and the federal government that assisted them. The covert operatives disappeared into the darkness, leaving behind bewildered families who weren't in attendance who searched in vain for their now "missing" kin.  
 
 Mount Calvary Baptist Church will now forever be a place where faith met its darkest hour, and the chainsaw symphony drowned out the normal hymns of praise.
 
@@ -56,15 +52,15 @@ The sanctuary shows evidence of damages from the massacre and a shoddy restorati
 
 ![iMarkup_20240415_083932](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/cde6a2bc-4f77-45c7-91a3-3d2181cf52f6)
 1. Mount Calvary Baptist Church's altar has been removed and replaced with a lesser quality one that is missing the words "Do This" from its inscription. It's also built to fit between the two rear-facing pews.
-2. Mount Calvary Baptist Church's lecter was replaced with an lectern of a much lesser quality wood.
-3. This mirrored window is unique to Mount Calvary Baptist Church it provides a view into the sanctuary from the pastor's office. It was used to positively verify the church's sanctuary.
-4. The walls behind the choir stands which have historically been bare now display mission statements and cheap wire crosses.
+2. Mount Calvary Baptist Church's lectern was replaced with an lectern of a much lesser quality wood.
+3. This mirrored window is unique to Mount Calvary Baptist Church it provides a view into the sanctuary from the pastor's office. It was used to positively verify the church's sanctuary by Kelvin.
+4. The walls behind the choir stands which have always been bare now display mission statements and cheap wire crosses.
 5. Piano - The churches upright piano has been removed. An oversized pew from the back wall has been put in its place facing the rear of the church.
-7. Organ - The churches original organ has been completely removed and discarded. The organ (shown in #8) appears to be portable, it is moved to other locations in some videos. An oversized pew from the back wall has been put in its place facing the rear of the church.
+7. Organ - The churches original organ has been completely removed and discarded. The organ (shown in position #8) appears to be portable, it is moved to other locations in some videos. An oversized pew from the back wall has been put in its place facing the rear of the church.
 8. Primary choir stand - The original choir stand with permanent seating has been completely removed. The railing replaced with non-uniform woods and fixed upholstered seating replaced with folding table chairs.  
 9. Secondary choir stand - This choir stand was also completely removed and rebuilt to a much lower standard. It has been seen used by the musicians. In correspondence from the CIA's Mount Calvary Missionary Baptist Church, Inc. the secondary choir stand is shown in the letterhead, with a picture of a visiting choir before the massacre, that was actually the CIA's advance team. See [Correspondence](/POW/MCBC/WIKI.md#correspondence).
 
-The manin at the lectern, in the photo above, is not Mount Calvary's longtime pastor, Rev. Dr. Felix G. Williams, III, who is a cousin to Kelvin E. Williams; rather, he is an actor hired for his striking resemblance. 
+The man pictured behind the lectern, in the photo above, is not Mount Calvary's longtime pastor, Rev. Dr. Felix G. Williams, III, who is a cousin to Kelvin E. Williams; rather, he is an actor hired for his resemblance. 
     
 The new business entity, as the name suggests, calls itself “Mount Calvary Missionary Baptist Church, Inc.” The *Missionary* was the CIA’s response to the Creator’s **Mission** number 23 for Life on Earth. 
 
@@ -72,7 +68,7 @@ Mount Calvary Missionary Baptist Church, Inc. has no actual religious services. 
 
 Sundays at the CIA-occupied church are used to continue the cover up of the initial massacre. Persons entering the church are killed upon entry.
 
-In June 2023, the CIA began providing funeral arrangements to loved ones of victims who called the church phone number inquiring about their whereabouts. Friends and family of the victims would then relay details of the arrangements to others. However, on the day of the announced funeral, mourners would arrive at the church only to be killed. Funeral arrangements for multiple unrelated decedents can be provided at the same time, based on CIA staffing at the church.
+In June 2023, the CIA began providing funeral arrangements to loved ones of victims who called the church's phone number inquiring about their whereabouts. Friends and family of the victims would then relay details of the arrangements to others. However, on the day of the announced funeral, mourners would arrive at the church only to be killed. Funeral arrangements for multiple unrelated decedents can be provided at the same time, based on CIA staffing at the church.
 
 The purpose of the funerals was to eliminate any people who could cause the CIA problems by talking about their loved ones who went missing at church. This cycle  continues to repeat today, with funerals now announced for people who went to the church for a fake funeral instead of the victims of the original massacre. It has no signs of stopping, as each fake funeral grows larger. 
 

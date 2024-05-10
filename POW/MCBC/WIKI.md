@@ -158,7 +158,7 @@ The correspondence between Micah and the CIA’s ran church follows, the cherubi
 ![doc_griffin_cease_desist](https://github.com/Mission23/MCBCMassacre/assets/140252803/24148a11-c839-4a1e-9567-ddced806a0f8)
 
 ## Surprise, Kill, Vanish 
-The initial massacre was based on tactics written by Jacobsen in her book, _"Surprise, Kill, Vanish."_ A review of the book can be found [here](https://github.com/Mission23/MCBCMassacre/blob/base/assets/pdf/20180830_cia_review_surprise_kill_vanish.pdf). 
+The initial massacre was based on tactics written by Jacobsen in her book, _"Surprise, Kill, Vanish."_ A review of the book can be found [here](https://github.com/MCBCMF/MCBCMassacre/blob/base/assets/pdf/20180830_cia_review_surprise_kill_vanish.pdf). 
 
 > [!NOTE]
 > As of May 10, 2024, the book review can no longer be found on the CIA's website and official associations between Annie Jacobsen and the CIA appear to be disappearing.

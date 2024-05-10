@@ -72,6 +72,3 @@ We utilize GitHub and these "vaults" because of the nature of git. Our vaults ar
 * [How they hide TAG: Hotels](/hotels/README.md)
 * [How they hide TAG: Any Decedent Funerals (ADF)](/methods/ADF.md)
 
-
-# Slack 
-[Join our Slack.](https://join.slack.com/t/thecherubimonslack/shared_invite/zt-2h5wrphds-0icLMWVSCdt9vskOk3dLRw)

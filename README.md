@@ -1,5 +1,10 @@
 # TAG
-TAG or The AIDS-Cure Genocide, which is the result of BigPharma's response to an unexpected disappearance of HIV in an HIV+ patient from a forthcoming product called Spark, direct from your Creator, the Creator. Spark eliminates and prevents all disease by fully activating the human immune system. What modern science considers a healthy immune system (T4s and T6s) is actually the last line of defense, the designed "failsafe."
+> [!NOTE]
+> TAG is now The American Genocide. 
+
+TAG or The American Genocide, started as a result of BigPharma's response to an unexpected disappearance of HIV in an HIV+ patient from a forthcoming product called Spark, direct from your Creator, the Creator. Initially, TAG stood for The AIDS-Cure Genocide, but has since been renamed for two reasons: The gift from the Creator cures everything, and the genocide is affecting practically everyone in the United States.
+
+Spark eliminates and prevents all disease by fully activating the human immune system. What modern science considers a healthy immune system (T4s and T6s) is actually the last line of defense, the designed "failsafe."
 
 "Scientific" or "medical" evidence of Spark's effectiveness has been silenced or destroyed. Spark's effectiveness was proven effective when the first user was interrogated extensively when his HIV viral load test came back abnormal. The protein that is **always** detected in an HIV+ patient's blood could not be found. An *undetectable* patient's blood still has the protein present. A second vial was taken from him with a guard present who escorted it to the National Institutes of Health, upon confirmation both Spark's first user and the person he identified as "trying something," Kelvin Williams, were ordered killed by Gilead Sciences. 
 

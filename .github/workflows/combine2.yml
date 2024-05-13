@@ -1,0 +1,15 @@
+name: Combine Markdown Files
+
+on:
+  workflow_dispatch:
+
+jobs:
+  combine:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout repository
+        uses: actions/checkout@v2
+
+      - name: Combine Markdown Files
+        run: |
+          find . -type f -name '*.md' -exec cat {} + | tee /dev/tty

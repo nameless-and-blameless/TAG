@@ -37,6 +37,15 @@ Broadway Avenue
 Lexington, KY
 - Expressed concerns about House of God on Georgetown Street
 
+Hickory Valley Christian Church
+Chattanooga, TN
+2024-05-12
+1000+ victims
+
+Calvary Baptist Church
+Lexington, KY
+2024-05-12
+
 ## The Cycle Continues
 The CIA jokingly refers to Prince's "Sign of the Times" verse that says:
 

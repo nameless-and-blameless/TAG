@@ -5,3 +5,8 @@
 As long as I grab the pre-poisoned items from Publix, I never have to pay. 
 
 If I grab items not made for me, or if I go to another store, I'm harassed and typically shown the door. Sometimes I'm given money to make it to the store they're expexting me at by the security (off-duty metro Atlanta cops).
+
+See videos of visits to other stores, or when my pre-poisoned items were not on the shelves. [Watch Videos](https://mega.nz/folder/BPsHlQSa#FhVTzNaVqmQlzaz7376ebg)
+
+Listen Also:
+* "Soft and Wet" by Prince. The song is about ice cream, an attack vector used by the CIA. Then guess my favorite kind from the photos, brand is irrelevant.

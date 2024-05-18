@@ -153,7 +153,8 @@ The sanctuary shows evidence of damages from the massacre and a shoddy restorati
 
 9. Secondary choir stand - This choir stand was also completely removed and rebuilt to a much lower quality. It has been seen used by the musicians.
 
-    
+![FB_IMG_1715662367939](https://github.com/TAGIsNoGame/TAG/assets/159488374/68f0cb71-ddf7-4ddf-b7bf-607681ca01ba)
+
 
 #### Missionary
 

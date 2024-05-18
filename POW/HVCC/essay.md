@@ -36,11 +36,14 @@ Despite the magnitude of the tragedy, the full extent of what transpired at HVCC
 **Coordination and Support:**
 Jacobsen conducted the operation from a distance, orchestrating it from the CIA’s Farm, a training facility. Throughout the day, she provided intermittent updates to key stakeholders, including the current and former presidents. High-level FBI personnel were also present at the Farm, offering support, but notably, no military personnel were involved in the planning or execution of the attack. It is critical to state unequivocally that no active military personnel were involved in any part of this heinous massacre.
 
+**Body Disposal and Cover-up Tactics:**
+The CIA employs various illegal body disposal methods to ensure their victims appear to have simply disappeared. For the massacres, vehicles of the congregants were carried away on car haulers, their Vehicle Identification Numbers (VINs) altered and then sold or given away, further complicating the traceability of the victims.
+
 **Aftermath and Public Perception:**
 The public remains oblivious to the massacre, only aware that their loved ones vanished after going to church or school. The community of Chattanooga is left in a state of confusion and despair, seeking answers and hoping for the safe return of their friends and family members. Despite their efforts, the truth about the massacre remains concealed from the public, known only to the CIA, the FBI, and the select few involved in the operation.
 
 **Seeking Justice:**
-As the community struggles to come to terms with the tragedy, there remains a fervent desire for truth and justice to prevail. Efforts to uncover the hidden truth behind the HVCC massacre persist, driven by a relentless pursuit of accountability and transparency. Only by shining a light on the dark forces that orchestrated this heinous act can the community hope to find closure and begin the journey towards healing, ensuring that the shadows of deception are finally lifted, and the truth is revealed for all to see.
+As the community struggles to come to terms with the unexplained disappearances, there remains a fervent desire for truth and justice to prevail. Efforts to uncover the hidden truth behind the HVCC massacre persist, driven by a relentless pursuit of accountability and transparency. Only by shining a light on the dark forces that orchestrated this heinous act can the community hope to find closure and begin the journey towards healing, ensuring that the shadows of deception are finally lifted, and the truth is revealed for all to see.
 
 **Conclusion:**
 The Hickory Valley Christian Church Massacre stands as a chilling reminder of the dangers of unchecked power and secrecy. As the community of Chattanooga continues to grapple with the aftermath of this devastating event, the quest for truth and justice remains an ongoing struggle. Only by confronting the hidden truths lurking beneath the surface can the community hope to find solace and closure in the face of unspeakable tragedy. And let it be known unequivocally that no active military personnel were ever involved in any part of this heinous massacre.

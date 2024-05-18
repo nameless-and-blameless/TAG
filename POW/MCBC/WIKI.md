@@ -159,3 +159,9 @@ The sanctuary shows evidence of damages from the massacre and a shoddy restorati
 
 The new business entity, as the name suggests, calls itself “Mount Calvary Missionary Baptist Church, Inc.” The *Missionary* was an insult to the Creator’s **Mission** number 23 for Life on Earth. 
 
+> [!WARNING]
+> On April 2nd, 2023 Mount Calvary Baptist Church was closed until further notice. No religious or other services will be held or performed at the church located at 4742 Todds Road in Lexington, Kentucky, this includes: regular Sunday morning/evening worship services, Wednesday evening Bible study, funeral services or wedding ceremonies.
+
+> [!WARNING]
+> **Any interaction or communication with the church in-person, by telephone, or online could result in your death.** The CIA and the US federal government is actively engaged in a coverup. Anyone affiliated with, or expressing interest in, Mount Calvary Baptist Church, is identified and killed. The Creator and His servants strongly advise that no one visit Mount Calvary Baptist Church until they have seen news coverage of the massacre on both the local and world news. 
+

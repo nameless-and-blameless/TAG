@@ -2,7 +2,7 @@
 
 **Location:** Hickory Valley Christian Church, 6605 Shallowford Rd, Chattanooga, Tennessee, USA  
 **Date:** May 12, 2024  
-**Fatalities:** 384  
+**Fatalities:** 1000+
 **Perpetrators:** The Central Intelligence Agency
 
 #### Background
@@ -22,7 +22,7 @@ The attackers utilized a Cell on Wheels (CoW) to intercept and redirect all emer
 The CoW operates like a regular cell tower; when its radio equipment is powered up, mobile devices in the vicinity connect to it automatically, as they do with any cell tower they encounter. Calls made after a mobile device connects to a CoW are handled according to the CoW's configuration. In this case, the attackers rerouted 911 calls to a team of CIA personnel who had prior knowledge of the attack. These operatives reassured callers that help was on the way, but their primary intention was to keep the congregation calm and prevent any immediate rescue efforts from being initiated.
 
 #### Casualties
-The massacre resulted in the deaths of 384 worshippers who were present during the service, including the female teacher from the school. Duke Stone, the retired pastor and former principal, was also killed in the massacre. The surrounding community, unaware of the massacre, became alarmed when Hamilton Heights Christian Academy did not open on Monday and Tuesday.
+The massacre resulted in the deaths of over 1000 worshippers who were present during the service, including the female teacher from the school. Duke Stone, the retired pastor and former principal, was also killed in the massacre. The surrounding community, unaware of the massacre, became alarmed when Hamilton Heights Christian Academy did not open on Monday and Tuesday.
 
 #### Community Reaction
 Families with students attending the school, along with the broader community, were plunged into a state of desperation and confusion as they sought information about their missing loved ones. Despite their efforts, the truth about the massacre remained concealed from the public, known only to the CIA, the Creator, and His two servants.

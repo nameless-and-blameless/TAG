@@ -6,4 +6,4 @@ to do:
      - bused to Chattanooga (2 hours)
      - bused back ti ClayCo
      - killed
-     - 
+     - inmates had no external support (no phone calls, no mail, no funds on books) from friends or family -- the types of inmates that can disappear and no one know.

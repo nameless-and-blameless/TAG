@@ -1,30 +1,17 @@
 # The Massacre of Mount Calvary Baptist Church in Lexington, Kentucky
 
 > [!IMPORTANT]
-
 > This discussion covers an ongoing deadly situation, see warnings at the end. 
-
-
 
 _“A massacre is the killing of a large number of people, especially those who are not involved in any fighting or have no way of defending themselves. A massacre is generally considered to be morally unacceptable, especially when perpetrated by a group of political actors against defenseless victims.”_ - Wikipedia 
 
-
-
  ![IMG_0117](https://github.com/Mission23/Mission23/assets/140252803/5b61181a-de0c-4cf3-be46-9bb34b398e55) 
-
-
 
 Mount Calvary Baptist Church is a small church on Todds Road in remote Lexington, Kentucky is the site of the first massacre of an entire congregation inside of a church in US history. The massacre began during Sunday morning worship services on April 2nd, 2023 when everyone in attendance, 127 people were killed. 
 
-
-
 Mount Calvary Baptist Church is the lifelong church of one of the Creator's servants, Kelvin Eugene Williams. The pastor of Mount Calvary Baptist Church is Kelvin's cousin, the Rev. Dr. Felix G. Williams, III. 
 
-
-
-The massacre was the first massacre of a church's congregation in [TAG (The AIDS cure Genocide)](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG)
-
-
+The massacre was the first massacre of a church's congregation in [TAG (The American Genocide)](https://github.com/TAGIsNoGame/TAG)
 
 ## Location 
 

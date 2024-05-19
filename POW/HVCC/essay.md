@@ -30,6 +30,10 @@ The massacre resulted in the deaths of over 1,000 worshippers present during the
 
 After the massacre, the bodies were disposed of using various illegal methods, a tactic the CIA uses to ensure the victims appear to have disappeared. Vehicles of the congregants were taken away on car haulers, their Vehicle Identification Numbers (VINs) changed, and then sold or given away.
 
+In addition to employing illegal body disposal methods and car thefts, the CIA utilized a scheme known as "hoteling" to further obscure the truth. This elaborate impersonation and identity theft facility allows operatives to assume the identities of murder victims, perpetuating the illusion of their continued existence and further complicating efforts to uncover the truth. 
+
+Hoteling has played a pivotal role in maintaining the cover-up orchestrated by the CIA, ensuring that the full extent of the death toll in TAG remains hidden.
+
 **Outcome of the Inmates**
 
 Upon returning to Clayton County Detention Center, the inmates were placed in housing unit 8 and killed using poison gas. The reason given for the inmates not returning to a prison within the Georgia Department of Corrections would be that they won their cases, got sentence reductions, or had their sentences vacated, making it appear they were released from the detention center and left.

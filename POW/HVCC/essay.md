@@ -42,9 +42,7 @@ Upon returning to Clayton County Detention Center, the inmates were placed in ho
 
 To the public, the government has said absolutely nothing about the massacre. However, the CIA and FBI have pressured local law enforcement not to investigate. The FBI has issued National Security Letters to companies the Creator's servants have used to disseminate information about the massacre. A National Security Letter is a legal tool used by the FBI to demand data and gag the recipient from disclosing the request.
 
-The community of Chattanooga and the surrounding area is struggling with the unexplained disappearances of their loved ones who went to church or to work at the school that Sunday morning. The government has manipulated the narrative, making it appear that the attacks on places of worship are racially motivated retaliatory strikes. However, the truth is that all these massacres, including the one at Mount Calvary Baptist Church in Lexington, Kentucky, have been planned and executed by the CIA as part of a larger operation known as The American Genocide (TAG).
-
-The massacre at Hickory Valley Christian Church is part of this broader series of atrocities, with the CIA's involvement shrouded in secrecy. The Creator knows that this genocide will not stop without His direct involvement and has provided details of these atrocities to His servants for dissemination to the general public.
+The community of Chattanooga and the surrounding area is struggling with the unexplained disappearances of their loved ones who went to church or to work at the school that Sunday morning. Meanwhile, the CIA is preparing to manipulate the narrative, making it appear that the attacks on places of worship are racially motivated retaliatory strikes. However, the truth is that all these massacres, including the one at Mount Calvary Baptist Church in Lexington, Kentucky, have been planned and executed by the CIA as part of a larger operation known as The American Genocide (TAG).
 
 **Warning to the Public**
 

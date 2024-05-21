@@ -62,6 +62,3 @@ The Hickory Valley Christian Church incident remains a chilling testament to the
 
 The incident at Hickory Valley Christian Church is not the first of its kind. The first incident, as referenced herein, was at Mount Calvary Baptist Church located at 4742 Todds Road, Lexington, Kentucky, on April 2, 2023. Since then, several more incidents in places of worship directly or indirectly connected to Mount Calvary Baptist Church have occurred as part of a larger, clandestine operation. The Creator knows that this will not stop without His direct involvement. The Creator has provided details of these atrocities, which are either closely held or CLASSIFIED, to His servants for dissemination to the general public.
 
----
-
-This narrative ensures a professional tone while providing a comprehensive account of the incident.

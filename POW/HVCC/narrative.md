@@ -1,13 +1,13 @@
 ## Your Government Is Killing You in Droves: The Massacre of Hickory Valley Christian Church
-
-Location: Hickory Valley Christian Church, 6605 Shallowford Rd, Chattanooga, Tennessee, USA
+***
+Location: Hickory Valley Christian Church
 
 Date: May 12, 2024
 
 Fatalities: 1000+ 
 
 Perpetrators: The Central Intelligence Agency
-
+***
 On Mother’s Day, May 12, 2024, the predominantly white congregation of Hickory Valley Christian Church in Chattanooga, Tennessee, gathered for their usual Sunday service. The church also operated Hamilton Heights Christian Academy, a private high school. Unbeknownst to them, a meticulously orchestrated and sinister plot was about to unfold.
 
 ### Targeting Hickory Valley Christian Church

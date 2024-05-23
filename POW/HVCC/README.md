@@ -16,7 +16,7 @@ Pastor Jack Dyer, upon receiving Kelvin’s warning, consulted with Pastor Duke 
 
 ## Operatives
 
-One hundred inmates from various prisons within the Georgia Department of Corrections were carefully selected to carry out the attack. Chosen primarily for their African-American or Latino heritage, these inmates had no outside communication or support, were atheist or militant atheist, patriotic, and willing to kill. Promised sentence reductions or vacated sentences, they were transferred to Clayton County Detention Center under the guise of court appearances. 
+One hundred inmates from various prisons within the Georgia Department of Corrections were carefully selected to carry out the attack. Chosen primarily for their African-American or Latino heritage to support the CIA's planned narrative of a  race-fueled retaliation for the massacre of Mount Calvary Baptist Church, these inmates had no communication with friends or family outside of prison or support, were atheist or militant atheist, patriotic, and willing to kill. Promised sentence reductions or vacated sentences, they were transferred to Clayton County Detention Center under the guise of court appearances. 
 
 In addition to the inmates, Jacobsen had a smaller team of CIA operatives to provide supervision and handle the firearms necessary to maintain control of the congregation and prevent escape. As congregants who attempted to escape had to be shot.
 

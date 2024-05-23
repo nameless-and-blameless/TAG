@@ -31,18 +31,6 @@ He also wrote a song about two of Sandy Hook’s permanent residents who were si
 
 For the child born of the woman spoken of in Prince’s "Raspberry Beret" and her descendants, there was only one family in Sandy Hook, Tennessee--ours. I'm not exactly sure when everyone else realized the mistake, but they never tried to correct it even through my step grandmother, the widow of my grandfather and the mother of most of his other children, lived across the street. My mother was the baby of the Rogers clan. I am calling the upcoming grave audit of my family's cemetery, "Lila's Revenge," because of my step-grandmother never demanded she be dug up, how on Earth could the CIA even fathom such. 
 
-### The Great Millstone
-There is a headstone on my alphabet street that had an inscription that read (something like) "God loves you a whole lot." The exact inscription is now only known to God and myself. However, because of the vernacular of Sandy Hook and my family it is truly bad English.
-
-The monument company that milled the stone had employees who cared enough about quality to not send out such a permanent display of really bad English. So in a time before computers, the paper work order was reviewed, and several of those employees "signed off" on it after calling my country family repeatedly to confirm it. One even went letter-by-letter and was dumbfounded that a family in the USA could be so ignorant. The headstone arrived and my family admired its beauty and of the inscription simply said "Amen."
-
-I have spoken to God, who is the Creator, He was not offended by their poor English, He appreciates all worship. He did tell me though that He would tell me the exact location of the archival box contraining the paperwork bearing the signatures of those employees who cared enough to do their jobs thoroughly.
-
-> [!NOTE]
-> At the end of "Alphabet Street" by Prince you'll hear the alphabet being recited with the letter "G" skipped, He responds after the letter "H".
-
-On a personal note: I truly believe the Creator created the perfect sale of granite headstones by a large, far away, monument company that caused my family to "clip the coupon" and call them for the order.  Had it been a local company, they would have either spoken the vernacular or knew the family and would have never bothered with so many verifications of the order. Because of that single piece of paper, I have the proof that the headstones there now are fake.
-
 So, when I find graves in the wrong places, I'll simply go "down, down, down" and have my family members "brought up." When they aren't, I'll have the attention of the world and I can finally get the word out about TAG.
 
 > **Listen Also**

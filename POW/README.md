@@ -32,9 +32,8 @@
      - Mother's Day. May 12, 2024
      - 1000+ victims
 
-Calvary Baptist Church
-Lexington, KY
-2024-05-12
+* Calvary Baptist Church (Lexington, KY
+     - Mother's Day. May 12, 2024
 
 ## The Cycle Continues
 The CIA jokingly refers to Prince's "Sign of the Times" verse that says:

@@ -178,6 +178,7 @@ If you want to help me with a buck or two, you can for cigarettes (they're $6 or
 ***
 # Quick Links
 * [TAG - The AIDS-Cure Genocide](/)
+* [The Massacre of Hickory Valley Christian Church - Chattanooga](/POW/HVCC/narrative.md)
 * [The Massacre of Mount Calvary Baptist Church](/POW/MCBC)
      - [40th Pastoral Anniversary](/MCMBCI)
 * [The Massacre of Lexington Bethel Baptist Church](/POW/LBBC)

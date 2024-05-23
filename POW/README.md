@@ -6,7 +6,7 @@
 > This is a list of places of worship that have been attacked and massacred. Details of the attacks will be made is separate and individual READMEs.
 
 * Mount Calvary Baptist Church (4742 Todds Road, Lexington, Kentucky)
-     - Lifelong church of the Creator's servant Micah 
+     - Lifelong church of the Creator's servant Kelvin
      - Property is still occupied and used by the CIA to kill worshippers and mourners at false funerals. 
     - [Detailed here](/POW/MCBC)
     - Read ["A Chainsaw Symphony"](/POW/MCBC/chainsaw_symphony.md)

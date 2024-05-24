@@ -1,8 +1,3 @@
-# Feedback Submission 
-The Creator is about to...
-![Screenshot_20240412-115921~2](https://github.com/nameless-and-blameless/TAG/assets/169210208/6cdf6f0b-8caf-4d43-8229-a7e9a9771f2c)
-
-
 # TAG
 > [!NOTE]
 > TAG is now The American Genocide. 

@@ -12,7 +12,7 @@ Kelvin Williams, one of the Creator's servants, has been targeted by the CIA for
 
 ## Targeted 
 
-Pastor Jack Dyer, upon receiving Kelvin’s warning, consulted with Pastor Duke Stone, who vouched for Kelvin's credibility. Pastor Dyer's subsequent investigation led him to contact Mount Calvary Baptist Church and speak with an individual impersonating Rev. Dr. Felix G. Williams, III. Realizing the person was an continued impostor, Pastor Dyer and Pastor Stone began discussing the potential threat with others. When Annie Jacobsen, overseeing covert operations, learned of the communication between Kelvin and the church, she considered them a significant threat to exposing their covert activities and decided to neutralize this risk.
+Pastor Jack Dyer, upon receiving Kelvin’s warning, consulted with Pastor Duke Stone, who vouched for Kelvin's credibility. Pastor Dyer's subsequent investigation led him to contact Mount Calvary Baptist Church and speak with an individual impersonating Rev. Dr. Felix G. Williams, III. Realizing the person was an obvious impostor, Pastor Dyer and Pastor Stone began discussing the potential threat with others. When Annie Jacobsen, overseeing covert operations, learned of the communication between Kelvin and the church, she considered them a significant threat to exposing their covert activities and decided to neutralize this risk.
 
 ## Operatives
 

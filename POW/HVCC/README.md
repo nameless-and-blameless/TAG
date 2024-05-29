@@ -34,7 +34,9 @@ According to the Creator, Jacobsen gathered intelligence from Williams, Stone, a
 
 
 
-One hundred inmates from various prisons within the Georgia Department of Corrections were handpicked for the mission. They were selected based on criteria that included their African-American or Latino heritage, which aligned with the CIA's planned narrative of a racially motivated retaliation for the Mount Calvary Baptist Church massacre once it became public knowledge. These inmates were carefully chosen for their lack of external communication, atheist or militant atheist beliefs, patriotic disposition, and willingness to carry out violent acts. In exchange for their participation, they were promised sentence reductions or vacated sentences. To conceal their true purpose, they were transferred to Clayton County Detention Center under the guise of attending court appearances.
+One hundred inmates from various prisons within the Georgia Department of Corrections were handpicked for the mission. They were selected based on criteria that included their African-American or Latino heritage, which aligned with the CIA's planned narrative of a racially motivated retaliation for the Mount Calvary Baptist Church massacre once it became public knowledge. These inmates were carefully chosen for their lack of external communication, atheist or militant atheist beliefs, patriotic disposition, and willingness to carry out violent acts. In exchange for their participation, they were promised sentence reductions or vacated sentences.  
+
+To conceal their true purpose, they informed fellow inmates that they were being transferred to Clayton County Detention Center due to court appearances, a common reason for sentenced inmates to be relocated to a county facility. The inmates were transferred to Clayton County Detention Center in the two weeks before the attack.
 
 
 

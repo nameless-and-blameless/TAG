@@ -1,4 +1,4 @@
-# Mount Zion Baptist Church
+# The Massacre of Mount Zion Baptist Church
 Mount Zion Baptist Church, located in Versailles, Kentucky, a predominantly Black congregation, was the site of a horrific massacre in May 2023. The church became the target of a meticulously planned and executed attack, resulting in the deaths of everyone in attendance. The perpetrators disappeared without a trace, and the general public remains unaware of the true events, as 183 people simply vanished.
 
 # Background

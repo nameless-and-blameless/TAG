@@ -116,5 +116,17 @@ To the public, the government has said absolutely nothing. However, the CIA and 
 
 
 
-The massacre at Hickory Valley Christian Church is part of a series of coordinated attacks on places of worship (POW) conducted during The American Genocide (TAG) known as a TAG-POW attack, which began with the massacre at Mount Calvary Baptist Church at 4742 Todds Road, Lexington, Kentucky, on April 2, 2023. Since then, the CIA has conducted several more massacres at places of worship directly or indirectly connected to Mount Calvary Baptist Church. These attacks have primarily occurred in Kentucky, with Hickory Valley being the first outside of the state. Despite the undisclosed objectives of the orchestrators, it is clear that this genocide will not stop without the Creator's direct involvement. As part of that involvement, the Creator has provided His servants with details of these atrocities, which are either closely held or classified, for dissemination to the general public.
 
+The massacre at Hickory Valley Christian Church is one in a series of coordinated attacks on places of worship (POWs) during The American Genocide (TAG), known as TAG-POW attacks. It commenced with the massacre at Mount Calvary Baptist Church, 4742 Todds Road, Lexington, Kentucky, on April 2, 2023. Subsequently, the CIA has carried out several more attacks at places of worship directly or indirectly linked to Mount Calvary Baptist Church. These incidents have predominantly transpired in Kentucky, with Hickory Valley marking the first outside the state. 
+
+The targeted places of worship include:
+
+1. Mount Calvary Baptist Church, Lexington, Kentucky
+2. Lexington Bethel Baptist Church, Lexington, Kentucky
+3. Mount Zion Baptist Church, Versailles, Kentucky
+4. House of God (Georgetown St), Lexington, Kentucky
+5. House of God (Broadway), Lexington, Kentucky
+6. Hickory Valley Christian Church, Chattanooga, Tennessee
+7. Calvary Baptist Church, Lexington, Kentucky
+
+While the orchestrators' motives remain undisclosed, it is evident that halting this genocide requires direct intervention from the Creator. As part of this intervention, the Creator has entrusted His servants with details of these atrocities, which are either closely held or classified, for dissemination to the general public.

@@ -96,7 +96,7 @@ Many congregants called 911 from their mobile phones, describing the horrific sc
 
 
 
-The sanctuary descended into chaos as skirmishes broke out between the congregants and the operatives. Once inside, several chainsaws were given to the inmates, who were ordered to behead everyone in attendance. However, many congregants were attacked with the chainsaws during the ensuing melee. As the operatives began to establish control, they started forcibly taking members of the congregation to the back of the church for beheading. Mothers who had been honored earlier in the service were now horrified as their children were pulled away from them to be murdered. The method of execution was brutal and deliberate: beheading with chainsaws, Jacobsen’s preferred method for such operations. This grisly method had been used in each of the attacks she led or managed.
+The sanctuary descended into chaos as skirmishes broke out between the congregants and the operatives as congregants realized the danger they were in. Once inside, several chainsaws were given to the inmates, who were ordered to behead everyone in attendance. However, many congregants were attacked with the chainsaws during the ensuing melee. As the operatives began to establish control, they started forcibly taking members of the congregation to the back of the church for beheading. Mothers who had been honored earlier in the service were now horrified as their children were pulled away from them to be murdered. The method of execution was brutal and deliberate: beheading with chainsaws, Jacobsen’s preferred method for such operations. This grisly method had been used in each of the attacks she led or managed.
 
 
 

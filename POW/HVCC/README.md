@@ -10,7 +10,7 @@ Hickory Valley Christian Church, a predominantly white congregation operating Ha
 
 
 
-Hickory Valley Christian Church was targeted after Kelvin Williams, concerned for the safety of the church and its school, attempted to warn Pastor Duke Stone about a potential threat. Kelvin Williams is one of the Creator's two servants and a lifelong member of Mount Calvary Baptist Church in Lexington, KY. He is now the only known living member of this historic church, which was tragically attacked and massacred by operatives under the direction of Annie Jacobsen of the CIA on Sunday, April 2nd, 2023, at the height of the church's morning worship service. At the time of the attack, Mount Calvary Baptist Church was over 140 years old with an active congregation. Kelvin is also the cousin of the church's pastor, the Rev. Dr. Felix G. Williams, III. Kelvin considered Duke Stone a friend and had previously worked for Hickory Valley and its school.
+Hickory Valley Christian Church was targeted after Kelvin Williams, concerned for the safety of the church and its school, attempted to warn Pastor Duke Stone about a potential threat. Kelvin Williams is one of the Creator's two servants and a lifelong member of Mount Calvary Baptist Church in Lexington, KY. He is now the only known living member of this historic church, which was tragically attacked and massacred by operatives under the direction of Annie Jacobsen of the CIA on Sunday, April 2nd, 2023, at the height of the church's morning worship service. At the time of the attack, Mount Calvary Baptist Church was over 140 years old with a very active congregation. Kelvin is also the cousin of the church's pastor, the Rev. Dr. Felix G. Williams, III. Kelvin considered Duke Stone a friend and had previously worked for Hickory Valley and its school.
 
 
 
@@ -130,3 +130,5 @@ The targeted places of worship include:
 7. Calvary Baptist Church, Lexington, Kentucky
 
 While the orchestrators' motives remain undisclosed, it is evident that halting this genocide requires direct intervention from the Creator. As part of this intervention, the Creator has entrusted His servants with details of these atrocities, which are either closely held or classified, for dissemination to the general public.
+
+One possible motive behind these attacks is to eliminate anyone who knows Kelvin Williams or his family, thus disassociating him from the atrocities that occurred on his family's farmland in the unincorporated city of Sandy Hook, Tennessee. This motive underscores the ruthless nature of the perpetrators, who are willing to commit heinous acts to erase any connections to their crimes.

@@ -60,7 +60,7 @@ The CIA employed a Cell on Wheels for communication interception and control dur
 
 
 
-Simultaneously, the FBI employed a memorandum tactic to hinder local emergency services from responding to distress calls originating from the church's landline. A landline, which is a traditional wired telephone connection, is typically utilized for household and commercial phone services. The memorandum, dispatched to the Public Safety Answering Point (PSAP)—a centralized facility responsible for answering and routing emergency calls—instructed them to redirect any requests for emergency services to the FBI for coordination and dispatch. Consequently, calls received by the PSAP from the church's landline were promptly forwarded to the FBI, effectively circumventing any potential local intervention.
+Simultaneously, the FBI employed a memorandum tactic to hinder local emergency services from responding to distress calls originating from the church's landline. A landline, which is a traditional wired telephone connection, is typically utilized for household and commercial phone services. The memorandum, dispatched to the Public Safety Answering Point (PSAP)—a centralized facility responsible for answering and routing emergency calls—instructed them to send any requests for emergency services to the FBI for coordination and dispatch. Consequently, calls received by the PSAP from the church's landline were promptly forwarded to the FBI, effectively circumventing any potential local intervention.
 
 
 

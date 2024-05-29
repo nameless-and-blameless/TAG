@@ -4,6 +4,9 @@
 
 TAG or The American Genocide, started as a result of BigPharma's response to an unexpected disappearance of HIV in an HIV+ patient from a forthcoming product called Spark, direct from your Creator, the Creator. Initially, TAG stood for The AIDS-Cure Genocide, but has since been renamed for two reasons: The gift from the Creator cures everything, and the genocide is affecting practically everyone in the United States.
 
+## The Rapture 
+The CIA and US government are ready to say that these disappearances are the result of the rapture. Not true. God hated cars, so why'd the cars disappear too? Ask yourself : Why would they setup the charade Mount Calvary Missionary Baptist Church and hire lookalikes for my family? 
+
 Spark eliminates and prevents all disease by fully activating the human immune system. What modern science considers a healthy immune system (T4s and T6s) is actually the last line of defense, the designed "failsafe."
 
 "Scientific" or "medical" evidence of Spark's effectiveness has been silenced or destroyed. Spark's effectiveness was proven effective when the first user was interrogated extensively when his HIV viral load test came back abnormal. The protein that is **always** detected in an HIV+ patient's blood could not be found. An *undetectable* patient's blood still has the protein present. A second vial was taken from him with a guard present who escorted it to the National Institutes of Health, upon confirmation both Spark's first user and the person he identified as "trying something," Kelvin Williams, were ordered killed by Gilead Sciences. 

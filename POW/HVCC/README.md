@@ -14,7 +14,7 @@ Hickory Valley Christian Church was targeted after Kelvin Williams, concerned fo
 
 
 
-In 2004, Kelvin was introduced to Duke Stone by Bonnie Bush Ford, a retired elementary school teacher and principal, and a cousin of former Presidents George H. W. Bush and George W. Bush. Bonnie, being a close friend, persuaded Kelvin to assist Hamilton Heights Christian Academy with upgrading their computer lab. Kelvin obtained necessary networking equipment at cost, purchased or borrowed tools, and supervised students as they built their own lab. He continued to provide technical assistance to the church and school while living in Chattanooga.
+In 2004, Kelvin was introduced to Duke Stone by Bonnie Bush Ford, a retired elementary school teacher and principal, and a cousin of former Presidents George H. W. Bush and George W. Bush.  Bonnie, a close friend, convinced Kelvin to assist Hamilton Heights Christian Academy in upgrading their computer lab, a necessity the school couldn't afford but desperately required. The school prioritized providing education and assistance to children, irrespective of their parents' financial capabilities, often offering free tuition and transportation at the church's expense. Kelvin obtained necessary networking equipment at cost, purchased or borrowed tools, and supervised students as they built their own lab. The project inspired at least two students to pursue a career in network engineering.  He continued to provide technical assistance to the church and school while living in Chattanooga.
 
 
 

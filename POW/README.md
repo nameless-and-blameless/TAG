@@ -32,7 +32,7 @@
      - Mother's Day. May 12, 2024
      - 1000+ victims
 
-* Calvary Baptist Church (Lexington, KY
+* Calvary Baptist Church (Lexington, KY)
      - Mother's Day. May 12, 2024
 
 ## The Cycle Continues

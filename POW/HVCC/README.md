@@ -54,7 +54,7 @@ On the morning of May 12, the inmates were loaded onto a bus at Clayton County D
 
 
 
-The CIA employed a Cell on Wheels (CoW) for communication interception and control during the attack at Hickory Valley Christian Church. This covert vehicle, disguised as a regular passenger vehicle, operated by intercepting mobile phone signals within its vicinity. Its configuration specified that any mobile calls made to 911 within the targeted area would be connected to a separate team of CIA operatives who were already briefed on the ongoing attack. These operatives, posing as 911 dispatchers, aimed to placate the callers and prevent any local emergency response.
+The CIA employed a Cell on Wheels for communication interception and control during the attack at Hickory Valley Christian Church. This covert vehicle, disguised as a regular passenger vehicle, operated by intercepting mobile phone signals within its vicinity. Its configuration specified that any mobile calls made to 911 within the targeted area would be connected to a separate team of CIA operatives who were already briefed on the ongoing attack. These operatives, posing as 911 dispatchers, aimed to placate the callers and prevent any local emergency response.
 
 
 
@@ -66,7 +66,7 @@ These coordinated tactics ensured that all communication channels were under the
 
 
 
-The CoW, or Cell on Wheels, was activated just moments before the bus transporting the inmates arrived at Hickory Valley Christian Church's property. This timing was crucial to ensure seamless communication interception and control during the execution of the attack. As the bus approached the church's parking lot or property, the CoW began its operation, intercepting mobile phone signals and redirecting any emergency calls made within its range (up to 0.5 miles) to the designated CIA operatives. This proactive activation of the CoW allowed the CIA to establish immediate control over communication channels, facilitating their manipulation of emergency responses and ensuring the success of their covert operation at the church.
+The Cell on Wheels, was activated just moments before the bus transporting the inmates arrived at Hickory Valley Christian Church's property. This timing was crucial to ensure seamless communication interception and control during the execution of the attack. As the bus approached the church's parking lot or property, the Cell on Wheels began its operation, intercepting mobile phone signals and redirecting any emergency calls made within its range (up to 0.5 miles) to the designated CIA operatives. This proactive activation of the CoW allowed the CIA to establish immediate control over communication channels, facilitating their manipulation of emergency responses and ensuring the success of their covert operation at the church.
 
 
 

@@ -1,53 +1,16 @@
 > [!WARNING]
-> The places of worship listed here should be avoided. Charades have been established and hold fake services to kill anyone who visits them for any reason to cover-up the massacres.  We strongly advise that you not contact these places of worship. Recent history shows us that anyone contacting, or that has an affiliation with these places of worship may be targeted and attacked.  Regardless of its inclusion on this list, always pray for guidance regarding any place of worship.
+> The places of worship listed here should be avoided. These locations have been compromised and hold fake services with the intent to harm anyone who visits them, as part of a cover-up of ongoing massacres. There is a significant risk of death associated with contacting any of these churches, and online contact is strongly discouraged. We strongly advise against contacting or affiliating with these places of worship. Recent events indicate that individuals who contact or are affiliated with these places may be targeted and attacked. Regardless of any list, always pray for guidance regarding any place of worship.
 
-# Places of Worship Massacred
-> [!NOTE]
-> This is a list of places of worship that have been attacked and massacred. Details of the attacks will be made is separate and individual READMEs.
+### The American Genocide
+These massacres are each part of a series of coordinated attacks on places of worship (POWs) during The American Genocide (TAG), known as TAG-POW attacks. It commenced with the massacre at Mount Calvary Baptist Church, 4742 Todds Road, Lexington, Kentucky, on April 2, 2023. Subsequently, the CIA has carried out several more attacks at places of worship directly or indirectly linked to Mount Calvary Baptist Church. These incidents have predominantly transpired in Kentucky.
 
-* Mount Calvary Baptist Church (4742 Todds Road, Lexington, Kentucky)
-     - Lifelong church of the Creator's servant Kelvin
-     - Property is still occupied and used by the CIA to kill worshippers and mourners at false funerals. 
-    - [Detailed here](/POW/MCBC)
-    - Read ["A Chainsaw Symphony"](/POW/MCBC/chainsaw_symphony.md)
+The targeted places of worship include:
+- Mount Calvary Baptist Church, Lexington, Kentucky
+- Lexington Bethel Baptist Church, Lexington, Kentucky
+- Mount Zion Baptist Church, Versailles, Kentucky
+- House of God (Georgetown St), Lexington, Kentucky
+- House of God (Broadway), Lexington, Kentucky
+- Hickory Valley Christian Church, Chattanooga, Tennessee
+- Calvary Baptist Church, Lexington, Kentucky
 
-* Lexington Bethel Baptist Church (4686 Todds Road, Lexington, KY)
-     - Neighboring church of Mount Calvary Baptist Church, can see each other's property. 
-     - Expressed concerns about the number of funerals and other irregular activity at Mount Calvary Baptist Church.
-     - Read ["A Smith & Wesson Symphony"](/POW/LBBC)
-
-* Mount Zion Baptist Church (Versailles, KY)
-     - Longtime fellowship partner of Mount Calvary Baptist Church. 
-     - Noticed the oddities at, and expressed concerns for Mount Calvary Baptist Church
-     - Recent threat indicates the CIA may begin using their property for funerals also. 
-     - See [The Woodford Threat](/POW/MZBC)
-  
-* House of God (Georgetown Street, Lexington, KY)
-     - Mount Calvary's minister of music worshipped here. 
-
-* House of God (Broadway Avenue, Lexington, KY)
-     - Expressed concerns about House of God on Georgetown Street
-
-* Hickory Valley Christian Church (Shallowford Road, Chattanooga, TN)
-     - Mother's Day. May 12, 2024
-     - 1000+ victims
-
-* Calvary Baptist Church (Lexington, KY)
-     - Mother's Day. May 12, 2024
-
-## The Cycle Continues
-The CIA jokingly refers to Prince's "Sign of the Times" verse that says:
-
-- *"Hurricane Annie tore the ceiling off a church and killed everyone inside."*
-    
-Or the line from The Weather Girl's "It's Raining Men" verse that says:
-
-- *"Rip off the roof and stay in bed!"*
-
-![IMG_20240421_095654181](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/99330f0c-7190-4daf-be2d-bbdd8a5594be)
-
-.. As seen in Publix, intentionally worn to get me to respond, on a day filled with other taunts and jokes about the massacres.
-
-![IMG_1576](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/09b4ba40-3192-4aa3-81cc-a08b1509836f)
-
-Note the: "In God We **Must**" at the bottom. Thats also a drawing of my mother's head that's being rolled. See her in this article [Pastoral Anniversary](/MCMBCI/pastoral_anniversary.md).
+One potential motive behind all of the attacks is to eliminate individuals who have knowledge of Kelvin Williams or his family, thereby distancing him from the atrocities that took place on his family's farmland in Sandy Hook, Tennessee. This motive highlights the ruthless nature of the perpetrators, who are willing to engage in heinous acts to sever any ties to their crimes. Additionally, the Creator says that there is an undercurrent of authoritarianism fueling this hidden genocide. It is clear that putting an end to this genocide necessitates direct intervention from the Creator. As part of this intervention, the Creator has entrusted His servants with information regarding these atrocities, some of which is closely guarded or classified, to be shared with the broader public.

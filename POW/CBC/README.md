@@ -2,7 +2,7 @@
 > This narrative is being proofread.
 
 # Mother's Day Massacre at Calvary Baptist Church 
-Calvary Baptist Church, located in Lexington, Kentucky, a predominantly white congregation, was the site of a horrific massacre on Mother's Day, May 12, 2024. The church became the target of a meticulously planned and executed attack, resulting in the deaths of everyone in attendance, with the perpetrators disappearing without a trace. The general public remains unaware of the true events, as 378 people simply vanished.
+Calvary Baptist Church, located in Lexington, Kentucky, a predominantly white congregation, was the site of a horrific massacre on Mother's Day, May 12, 2024. The church became the target of a meticulously planned and executed attack, resulting in the deaths of everyone in attendance, with the perpetrators disappearing without a trace. The general public remains unaware of the true events, as more than 400 people simply vanished.
 
 ### Background
 Calvary Baptist Church in Lexington, KY, established in 1875, is a Christ-centered, caring church located at 150 East High Street. It offers both contemporary and traditional worship services and supports a variety of ministries for all age groups. The church is committed to community engagement and mission work, emphasizing progressive values such as embracing women in ministry and encouraging open discussion and education.

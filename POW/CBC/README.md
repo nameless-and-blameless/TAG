@@ -8,7 +8,7 @@ Calvary Baptist Church, located in Lexington, Kentucky, a predominantly white co
 Calvary Baptist Church in Lexington, KY, established in 1875, is a Christ-centered, caring church located at 150 East High Street. It offers both contemporary and traditional worship services and supports a variety of ministries for all age groups. The church is committed to community engagement and mission work, emphasizing progressive values such as embracing women in ministry and encouraging open discussion and education.
 
 ### Targeting
-Annie Jacobsen identified Calvary Baptist Church after a single sleep interrogation session performed while Kelvin Williams was asleep. Williams attended the daycare and preschool operated by Calvary Baptist Church in the early 1980s, which was just a couple of minutes away from his mother's office building at Kincaid Towers.
+Annie Jacobsen identified Calvary Baptist Church after a single interrogation session performed while Kelvin Williams was asleep. Williams attended the daycare and preschool operated by Calvary Baptist Church in the early 1980s, which was just a couple of minutes away from his mother's office building at Kincaid Towers.
 
 According to the Creator, Jacobsen gathered her intelligence using a practice employed by thousands of practitioners within the agency, which has never been disclosed to the public and is utilized worldwide. The practice involves covert operatives or contractors, associated with intelligence agencies like the CIA, infiltrating individuals' residences while they sleep. Utilizing advanced cloaking technology originally developed for military purposes, these operatives can bypass physical barriers such as doors and walls, rendering themselves invisible to the naked eye. Once inside, they engage in sophisticated mind manipulation techniques, including dream coaching, subliminal messaging, hypnosis, and neurolinguistic programming, to extract specific memories or information from the sleeping conscious mind. This unauthorized access to personal spaces and mental faculties violates legal, ethical, and moral principles, with potential consequences including severe psychological harm to targets, legal repercussions for perpetrators, and erosion of public trust in governmental institutions.
 
@@ -19,10 +19,10 @@ Jacobsen decided to target the church based on Williams' attendance out of fear 
 ### Planning
 The CIA sent their traveling gospel choir to the church to perform surveillance of a Sunday morning congregation to obtain an estimate on attendance, try to identify any security personnel or individuals who could be difficult to handle, and observe the worship service to help plan the best time to attack and the manpower needed to overwhelm and take control of the congregation in the surprise phase of the assault.
 
-To confirm the observations of their traveling choir, the CIA, at Jacobsen's direction, sent at least two sets of visitors to a Sunday morning worship session in the month preceding the attack.
+To confirm the observations of their traveling choir, the CIA, at Jacobsen's direction, sent at least two operatives posing as visitors to a Sunday morning worship session in the month preceding the attack.
 
 ### Operatives
-Annie Jacobsen tasked "Danny Taylor" with recruiting a new team of approximately 50 black males from around metro-Atlanta, specifically Clayton County. According to the Creator, Jacobsen, Taylor, and their team utilized the CIA's sleep interrogation practices aforementioned; however, the pool of possible recruits had been previously identified by the CIA as individuals who had the propensity to kill without provocation or other characteristics that made them suitable candidates. Those selected for the operation were later given roles with tasks they were responsible for during the assault.
+Annie Jacobsen tasked "Danny Taylor" with recruiting a new team of approximately 50 black males from around metro-Atlanta, specifically Clayton County. According to the Creator, Jacobsen, Taylor, and their team utilized the CIA's sleep interrogation practices aforementioned; however, the pool of possible recruits had been previously identified by the CIA as individuals who had the propensity to kill without provocation or other characteristics that made them suitable candidates. Those selected for the operation were later given roles with tasks they would be responsible for during the assault.
 
 The use of black males was a requirement of Jacobsen's, intended to meet the planned narrative of a retaliatory attack for the assault on Mount Calvary Baptist Church, which the CIA planned to attribute to a white separatist group.
 
@@ -31,21 +31,21 @@ The operatives arranged their own transportation, many carpooling as instructed,
 
 Taylor had an operative attend the morning worship session to provide him with information about the congregation and the service proceedings. Taylor and his operatives inside were in constant communication using text messaging.
 
-Jacobsen's tactics to prevent local authorities from responding to 911 calls and to reduce the chances of the congregation forming an organized resistance during the assault, previously used, were utilized again. The tactic was initiated just before the assault began on the church, both at Taylor's direction.
+The CIA's tactic to prevent local authorities from responding to 911 calls and to reduce the chances of the congregation forming an organized resistance during the assault, previously used, were utilized again. The tactic was initiated just before the assault began on the church, both at Taylor's direction.
 
-Taylor established and stayed in constant communication with Jacobsen throughout the initial assault, then provided periodic updates throughout the day until the team departed.
+Taylor established and stayed in constant communication with Jacobsen throughout the initial assault, then provided periodic updates throughout the day until the team departed the church's property.
 
 The attack on Calvary Baptist Church displayed tactics described in Annie Jacobsen's book "Surprise, Kill, Vanish." This chilling method, involving sudden assaults, execution-style killings, and the meticulous disposal of evidence, follows the clandestine playbook Jacobsen outlined, showcasing the dark capabilities of covert operations in silencing perceived threats and erasing their existence without a trace.
 
 ### Surprise
 The congregation was already midway through their Sunday morning worship session when Taylor and operatives burst into the sanctuary. Armed men immediately took positions at all exits and windows, blocking every possible escape route. Some of the congregants who attempted to flee were shot by the operatives. Meanwhile, a small team of operatives conducted searches of the rest of the church's property, including the daycare and preschool areas.
 
-Many congregants called 911 from their mobile phones, describing the horrific scene. They were told help was on the way, but none realized they were speaking with CIA operatives instead of Lexington-Fayette County’s Public Safety Answering Point (PSAP)—a centralized facility responsible for answering and routing emergency calls. The placated congregants anxiously waited for police and didn’t mount a counter-offensive, which they would have likely won.
+Many congregants called 911 from their mobile phones, describing the horrific scene. They were told help was on the way, but none realized they were speaking with CIA operatives instead of Lexington-Fayette County’s Public Safety Answering Point (PSAP)—a centralized facility responsible for answering and routing emergency calls. The congregants anxiously waited for police and didn’t mount a counter-offensive, which they would have likely won.
 
 ### Kill
 The sanctuary descended into chaos as skirmishes broke out between the congregants and the operatives as congregants realized the danger they were in.
 
-Congregants were forcibly separated from one another and taken to be shot. The operatives were not all skilled with firearms handling and had been provided little or no training on executions. Groups of congregants were assembled and shot haphazardly, many succumbing to their gunshot wounds hours later under a pile of those already dead. Some were found still alive when the cleanup process began and were shot again, not all were fatal gunshots. Some died from blood loss.
+Congregants were forcibly separated from one another and taken to be shot. The operatives were not all skilled with firearms handling and had been provided little or no training on executions. Groups of congregants were assembled and shot haphazardly, many succumbing to their gunshot wounds hours later under a pile of those already dead. Some were found still alive when the cleanup process began and were shot again, not all were fatal gunshots. Some died hours later from blood loss.
 
 ### Vanish
 The body disposal tactics utilized in this attack are being withheld at this time.

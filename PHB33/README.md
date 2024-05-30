@@ -177,7 +177,7 @@ If you want to help me with a buck or two, you can for cigarettes (they're $6 or
 * PayPal - @KelvinB33
 ***
 # Quick Links
-* [TAG - The AIDS-Cure Genocide](/)
+* [TAG - The American Genocide Wiki](https://github.com/TAGIsNoGame/TAG/wiki/)
 * [The Massacre of Hickory Valley Christian Church - Chattanooga](/POW/HVCC)
 * [The Massacre of Mount Calvary Baptist Church](/POW/MCBC)
      - [40th Pastoral Anniversary](/MCMBCI)

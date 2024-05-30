@@ -2,9 +2,9 @@
 > This narrative is being proofread.
 
 # Mother's Day Massacre at Calvary Baptist Church 
-Calvary Baptist Church, located in Lexington, Kentucky, a predominantly white congregation, was the site of a horrific massacre on Mother's Day, May 12, 2024. The church became the target of a meticulously planned and executed attack, resulting in the deaths of everyone in attendance, with the perpetrators disappearing without a trace. The general public remains unaware of the true events, as more than 400 people simply vanished.
+Calvary Baptist Church, located in Lexington, Kentucky, a predominantly white congregation, was the site of a horrific massacre on Mother's Day, May 12, 2024. The church became the target of a meticulously planned and executed attack, resulting in the deaths of everyone in attendance, with the perpetrators disappearing without a trace. 
 
-### Background
+## Background
 Calvary Baptist Church in Lexington, KY, established in 1875, is a Christ-centered, caring church located at 150 East High Street. It offers both contemporary and traditional worship services and supports a variety of ministries for all age groups. The church is committed to community engagement and mission work, emphasizing progressive values such as embracing women in ministry and encouraging open discussion and education.
 
 ### Targeting
@@ -16,7 +16,7 @@ No other intelligence-gathering activities were conducted by the CIA.
 
 Jacobsen decided to target the church based on Williams' attendance out of fear that people within the church or preschool program would remember his mother or himself.
 
-### Planning
+## Planning
 The CIA sent their traveling gospel choir to the church to perform surveillance of a Sunday morning congregation to obtain an estimate on attendance, try to identify any security personnel or individuals who could be difficult to handle, and observe the worship service to help plan the best time to attack and the manpower needed to overwhelm and take control of the congregation in the surprise phase of the assault.
 
 To confirm the observations of their traveling choir, the CIA, at Jacobsen's direction, sent at least two operatives posing as visitors to a Sunday morning worship session in the month preceding the attack.
@@ -26,7 +26,7 @@ Annie Jacobsen tasked "Danny Taylor" with recruiting a new team of approximately
 
 The use of black males was a requirement of Jacobsen's, intended to meet the planned narrative of a retaliatory attack for the assault on Mount Calvary Baptist Church, which the CIA planned to attribute to a white separatist group.
 
-### Attack
+## Attack
 The operatives arranged their own transportation, many carpooling as instructed, and arrived in the Lexington metro area on the night before the attack. On the morning of the attack, beginning around 11 a.m., the operatives met outside the church. Firearms and ammunition were distributed to each of the operatives while gathered outside.
 
 Taylor had an operative attend the morning worship session to provide him with information about the congregation and the service proceedings. Taylor and his operatives inside were in constant communication using text messaging.
@@ -53,6 +53,9 @@ The body disposal tactics utilized in this attack are being withheld at this tim
 The vehicles belonging to the congregants were driven away by operatives or loaded onto car haulers, their VINs changed, and then sold or given away, further erasing any trace of the victims.
 
 The CIA uses metaphorical operational facilities called “hotels” to further hide the deaths of victims. Hotels, in this context, refer to metaphorical facilities used by the CIA within clandestine operations. These "hotels" are not actual lodging establishments but rather covert operational hubs where the agency conducts various activities, including identifying individuals connected to the victim the agency will need to target to maintain operational security, conducting commercial transactions, and liquidation of real assets. Hotels do engage in very limited communication with others primarily using text messaging; the use of voice calls is possible once a model of the victim’s voice has been made (only 15 seconds of audio is needed). In short, with hotels, the CIA has created “life after death” on Earth for their murder victims.
+
+## Aftermath 
+The general public remains unaware of the true events, as more than 400 people simply vanished.
 
 To the public, the government has said absolutely nothing. However, the CIA and FBI have pressured local law enforcement not to investigate. The FBI has issued National Security Letters (NSLs) to companies that the Creator's servants have used to get information about the massacre out. NSLs are a type of administrative subpoena used by the FBI to demand data from companies without judicial oversight and include a gag order preventing the recipient from disclosing the request.
 

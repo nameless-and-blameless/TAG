@@ -46,7 +46,7 @@ In addition to the inmates, Jacobsen had a smaller team of CIA operatives to pro
 
 
 
-Just before the attack began, a conference call was established, connecting various stakeholders including the White House situation room, which provided periodic updates to President Biden, former President Donald J. Trump himself, the Director of the FBI, and the Director of the CIA. Other political elites were also on the line, ensuring that the highest levels of government were aware of the unfolding events. Jacobsen divided his time between conducting another of her chainsaw symphonies and updating the attendees during the conference call. Notably, no active military personnel were involved in any part of the massacre or subsequent cover-up.
+Just before the attack began, a conference call was established, connecting various stakeholders including the White House situation room, which provided periodic updates to President Biden, former President Donald J. Trump himself, the Director of the FBI, and the Director of the CIA. Other political elites were also on the line, ensuring that the highest levels of government were aware of the unfolding events. Jacobsen divided her time between conducting another of her chainsaw symphonies and updating the attendees during the conference call. Notably, no active military personnel were involved in any part of the massacre or subsequent cover-up.
 
 
 

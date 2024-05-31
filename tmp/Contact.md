@@ -2,7 +2,7 @@
 
 **Introduction to Wire:**
 
-Welcome to the guide for communicating securely with Kelvin using Wire. Wire is the approved platform for secure messaging, ensuring the confidentiality and integrity of our communications. Other popular messaging apps such as Signal, Telegram, WhatsApp, and Zoom are not acceptable, as they do not meet the Creator's standards of security.
+Welcome to the guide for communicating securely with Kelvin using Wire. Wire is the Creator approved platform for secure messaging, ensuring the confidentiality and integrity of our communications. Other popular messaging apps such as Signal, Telegram, WhatsApp, and Zoom we will not use, as they do not meet the Creator's standards of security.
 
 **Contact Information:**
 

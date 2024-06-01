@@ -14,3 +14,13 @@ The targeted places of worship include:
 - Calvary Baptist Church, Lexington, Kentucky
 
 One potential motive behind all of the attacks is to eliminate individuals who have knowledge of Kelvin Williams or his family, thereby distancing him from the atrocities that took place on his family's farmland in Sandy Hook, Tennessee. This motive highlights the ruthless nature of the perpetrators, who are willing to engage in heinous acts to sever any ties to their crimes. Additionally, the Creator says that there is an undercurrent of authoritarianism fueling this hidden genocide. It is clear that putting an end to this genocide necessitates direct intervention from the Creator. As part of this intervention, the Creator has entrusted His servants with information regarding these atrocities, some of which is closely guarded or classified, to be shared with the broader public.
+
+# Planned Destruction of Phoenix House
+The water at Phoenix House was turned off this morning, coming back on for a few minutes this evening.
+
+At 12:19  a a train passed and made a lot of racket. Now the entire place is floating and bouncing around. 
+
+Revelations says in one hour it will be gone.18: 9
+Beat Beat My Heart by Vandaveer says 1:15 am (music video)
+
+More to come  

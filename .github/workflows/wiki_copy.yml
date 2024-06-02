@@ -1,0 +1,28 @@
+name: Clone and Copy
+
+on:
+  workflow_dispatch:
+
+jobs:
+  clone-and-copy:
+    runs-on: ubuntu-latest
+
+    steps:
+    - name: Checkout the current repository
+      uses: actions/checkout@v2
+
+    - name: Clone the target repository
+      run: git clone https://github.com/username/repository-to-clone.git /tmp/clone-repo
+
+    - name: Copy files from / to /wiki
+      run: |
+        mkdir -p death
+        cp -r /tmp/clone-repo/*.md /wiki/
+
+    - name: Commit and push changes
+      run: |
+        git config --global user.name "github-actions[bot]"
+        git config --global user.email "github-actions[bot]@users.noreply.github.com"
+        git add death/
+        git commit -m "Copied files from /source to /death"
+        git push

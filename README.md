@@ -1,3 +1,5 @@
+> [!IMPORTANT]
+> We've started miving everything into [the wiki](/wiki) for easier navigation. 
 # TAG
 > [!NOTE]
 > TAG is now The American Genocide. See "They're about to lie" below!

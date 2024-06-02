@@ -12,11 +12,11 @@ jobs:
       uses: actions/checkout@v2
 
     - name: Clone the target repository
-      run: git clone https://github.com/username/repository-to-clone.git /tmp/clone-repo
+      run: git clone https://github.com/TAGIsNoGame/TAG.wiki.git /tmp/clone-repo
 
     - name: Copy files from / to /wiki
       run: |
-        mkdir -p death
+        mkdir -p /wiki
         cp -r /tmp/clone-repo/*.md /wiki/
 
     - name: Commit and push changes

@@ -1,0 +1,38 @@
+name: Update Wiki
+
+on:
+  push:
+    paths:
+      - wiki/**  
+
+jobs:
+  update-wiki:
+    runs-on: ubuntu-latest
+
+    steps:
+      - uses: actions/checkout@v4
+
+      - name: Update Wiki
+        uses: OrlovM/Wiki-Action@master
+        with:
+          path: wiki
+
+
+name: Update Wiki on Wiki Changes
+
+on:
+  push:
+    paths:
+      - path/to/your/wiki/directory/**  # Replace with your directory path
+
+jobs:
+  update-wiki:
+    runs-on: ubuntu-latest
+
+    steps:
+      - uses: actions/checkout@v2
+
+      - name: Update Wiki
+        uses: OrlovM/Wiki-Action@master
+        with:
+          path: path/to/your/wiki/directory  # Replace with your directory path

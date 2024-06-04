@@ -3,7 +3,7 @@ name: Update Wiki
 on:
   push:
     paths:
-      - wiki/**  
+      - TAG.wiki/**  
 
 jobs:
   update-wiki:
@@ -15,4 +15,4 @@ jobs:
       - name: Update Wiki
         uses: OrlovM/Wiki-Action@master
         with:
-          path: wiki
+          path: TAG.wiki

@@ -16,3 +16,4 @@ jobs:
         uses: OrlovM/Wiki-Action@master
         with:
           path: TAG.wiki
+          token: ${{ secrets.GITHUB_TOKEN }}

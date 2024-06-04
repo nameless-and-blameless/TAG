@@ -1,0 +1,36 @@
+name: Clone and Copy Repository
+
+on:
+  workflow_dispatch: # This allows the action to be triggered manually
+
+jobs:
+  clone-copy-commit:
+    runs-on: ubuntu-latest
+
+    steps:
+      - name: Checkout current repository
+        uses: actions/checkout@v2
+
+      - name: Clone the external repository
+        run: |
+          git clone https://github.com/TAGIsNoGame/TAG.wiki.git cloned-repo
+        env:
+          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+
+      - name: Copy files to /wiki directory
+        run: |
+          mkdir -p dest
+          cp -r cloned-repo/* wiki/
+
+      - name: Configure git
+        run: |
+          git config --global user.name "github-actions[bot]"
+          git config --global user.email "github-actions[bot]@users.noreply.github.com"
+
+      - name: Add and commit changes
+        run: |
+          git add wiki/*
+          git commit -m "Copied files from external repository"
+          git push
+        env:
+          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}

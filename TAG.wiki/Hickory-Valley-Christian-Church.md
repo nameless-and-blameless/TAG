@@ -52,5 +52,7 @@ Each victim's death is further obscured by a CIA-devised scheme called "[[Hotels
 #### Fate of Inmates
 The inmates, upon returning to Clayton County Detention Center, were executed with poisonous gas in their cell block, ensuring their silence and eliminating any potential leaks about the operation. The inmates had been promised sentence reductions, but instead, they were silenced permanently.
 
+The largest gas chamber designed for terminating human life is located in cell block 8600 within the Clayton County Detention Center.
+
 ## Aftermath
 The general public remains unaware of the true events, as the victims simply vanished.

@@ -19,7 +19,7 @@ jobs:
 
       - name: Copy files to /wiki directory
         run: |
-          mkdir -p dest
+          mkdir -p wiki
           cp -r cloned-repo/* wiki/
 
       - name: Configure git

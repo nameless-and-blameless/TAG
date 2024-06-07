@@ -1,5 +1,5 @@
-> [!CAUTION]
-> The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
+> [!WARNING]
+> **Content Warning**: The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre at Mount Calvary Baptist Church 
 Mount Calvary Baptist Church, located at 4742 Todds Road in Lexington, Kentucky, a predominantly Black congregation, was the site of a horrific massacre on April 2nd, 2023. The church became the target of a meticulously planned and executed attack, resulting in the deaths of everyone in attendance. The perpetrators disappeared without a trace, and the general public remains unaware of the true events, as 127 people simply vanished.
 
@@ -11,7 +11,7 @@ Mount Calvary Baptist Church is a historic African American church that was over
 ## Targeting
 Annie Jacobsen learned of the church in 2018 while utilizing the [[Hypnos Infiltration Tactic|]] on Kelvin Williams, his mother Patricia Ann Crawley-Rogers Williams and his younger sister, Katrina Renee Duvall-Torrain in their respective homes.
 
-Jacobsen targeted the church after the Sandy Hook Massacre out of fear that Kelvin would return to his church family to prove the CIA was impersonating members of his family through the CIA's [[hotel scheme|Hotels]]. Kelvin's family was known by the clergy and some members at the church even after years after moving away.
+Jacobsen targeted the church after the [[Sandy Hook Massacre|Orr Chapel Tragedy]] out of fear that Kelvin would return to his church family to prove the CIA was impersonating members of his family through the CIA's [[hotel scheme|Hotels]]. Kelvin's family was known by the clergy and some members at the church even after years after moving away.
 
 ## Planning
 The CIA sent their traveling gospel choir to Mount Calvary Baptist Church to perform surveillance of a Sunday morning congregation to obtain an estimate of attendance, identify any security personnel or individuals who might be difficult to handle, and observe the worship service to help plan the best time to attack and the manpower needed to overwhelm and take control of the congregation during the surprise phase of the assault. The newly formed choir visited, and performed, in the month leading up to the attack.

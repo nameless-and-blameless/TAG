@@ -13,7 +13,7 @@ jobs:
 
       - name: Clone the external repository
         run: |
-          git clone https://github.com/TAGIsNoGame/TAG.wiki.git cloned-repo
+          git clone https://github.com/nameless-and-blameless/TAG.wiki.git cloned-repo
         env:
           GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
 

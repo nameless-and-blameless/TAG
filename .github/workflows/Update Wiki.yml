@@ -4,7 +4,8 @@ on:
   push:
     paths:
       - wiki/**  
-
+  workflow_dispatch:
+  
 jobs:
   update-wiki:
     runs-on: ubuntu-latest

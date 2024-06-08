@@ -47,7 +47,7 @@ Following the massacre, the bodies of the victims were disposed of using church'
 The vehicles belonging to the congregants were loaded onto car haulers, their VINs changed, and then sold or given away, further erasing any trace of the victims. 
 
 #### Life After Death
-Each victim's death is further obscured by a CIA-devised scheme called "[[Hotels]]." The scheme effectively makes  victims appear "alive" after their murder. 
+Each victim's death is further obscured by a CIA-devised scheme called "[[Phantom Identity Scheme|]]." The scheme effectively makes  victims appear "alive" after their murder. 
 
 #### Fate of Inmates
 The inmates, upon returning to Clayton County Detention Center, were executed with poisonous gas in their cell block, ensuring their silence and eliminating any potential leaks about the operation. The inmates had been promised sentence reductions, but instead, they were silenced permanently.
@@ -56,3 +56,33 @@ The largest gas chamber designed for terminating human life is located in cell b
 
 ## Aftermath
 The general public remains unaware of the true events, as the victims simply vanished.
+***
+**Rev. Duke Stone's Phantom Funeral**
+
+The [[Phantom Funeral|Phantom Funerals]] for Rev. Duke Stone, former pastor of Hickory Valley Christian Church and longtime principal of Hamilton Heights Christian Academy, was orchestrated as part of a covert tactic to maintain secrecy and prevent the discovery of the true scale of the massacre at Hickory Valley Christian Church.
+
+The CIA told concerned parties that Rev. Stone and his wife were killed in a car accident, the provided arrangements for her [[Phantom Funeral|Phantom Funerals]] is for June 8, 2024.
+
+Former President Donald J. Trump was on site with several Secret Service agents providing security. Mr. Trump observed the murder of many mourners. Some mourners begged him for assistance to escape the massacre. Additionally, some of his Secret Service agents used chainsaws to murder people.
+
+**Overview:**
+- **Objective**: The primary objective of the Phantom Funeral was to eliminate potential whistleblowers and mourners who could inquire about the victims of the initial attack, thereby ensuring the suppression of information about the massacre.
+- **Perpetrators**: The orchestration of the Phantom Funeral involved the CIA, with direct involvement from former President Donald J. Trump (onsite) and ex-CIA operative Annie Jacobsen.
+- **Date and Location**: The funeral was announced for Friday, June 7, 2024, at Hickory Valley Christian Church in Chattanooga, Tennessee.
+- **Number of Victims**: The massacre at Hickory Valley Christian Church resulted in the tragic loss of 649 lives, 92% of whom were Caucasian.
+
+**Tactics and Methods:**
+- **Impersonation and Initial Contact**: CIA operatives impersonated clergy and staff of the church, answering phone lines and creating an illusion of normalcy to reassure callers and gather information on potential mourners.
+- **Deceptive Information**: Callers were provided with fabricated details about the victim's death and funeral arrangements.
+- **Social Engineering**: False death notices were used to spread misinformation among the victim's associates, drawing a wider circle of potential targets into the operation.
+- **Continued Acts of Violence (CAVs)**: The funeral was staged as a trap to systematically eliminate mourners, with attendees being killed upon entry to the church.
+- **Cover-Up**: The main goal was to prevent the emergence of concerned groups that might investigate and uncover the massacre, ensuring the suppression of information about the initial attack.
+
+**Impact:**
+- The Phantom Funeral effectively silenced those seeking the truth about the Hickory Valley Christian Church massacre, maintaining the secrecy of the operation and preventing widespread awareness of the true nature of the atrocities.
+
+**Historical Context:**
+- The Phantom Funeral is part of broader TAG operations, aiming to push the United States towards authoritarian rule. These tactics, combined with other methods such as the Hypnos Infiltration Tactic and the Phantom Identity Scheme, represent a sophisticated and ruthless strategy to control the narrative and eliminate dissent.
+
+**Conclusion:**
+- The Phantom Funeral highlights the extreme measures taken to maintain the secrecy of TAG operations. By turning what should be a moment of mourning into a deadly trap, the CIA ensured that the truth about the massacre remains hidden, allowing them to continue their covert activities without detection.

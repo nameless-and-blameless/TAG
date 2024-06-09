@@ -16,21 +16,21 @@ Voice and Text (SMS) is available:
 
 **Preferred Communication Style:**
 
-Kelvin prefers text messages for communication on Wire. Please feel free to send text messages for inquiries, updates, or any other communication needs.
+Nameless prefers text messages for communication on Wire. Please feel free to send text messages for inquiries, updates, or any other communication needs.
 
 **Availability:**
 
-Kelvin's availability varies, but you can reach out to him anytime on Wire. While his availability may fluctuate, he encourages communication at any time, and he will respond as promptly as possible.
+Nameless' availability varies, but you can reach out to him anytime on Wire. While his availability may fluctuate, he encourages communication at any time, and he will respond as promptly as possible.
 
 **Topics of Discussion:**
 
-Feel free to discuss any topics relevant to Kelvin's mission or inquiries. However, always ensure that discussions align with the guidelines provided to maintain privacy and security.
+Feel free to discuss any topics relevant to Nameless' mission or inquiries. However, always ensure that discussions align with the guidelines provided to maintain privacy and security.
 
 Warning: I'm rather blunt and uncensored. I was born on Earth and 80% Earthling (because my Boss keeps me on the clock), should have been a sailor, and can go from minister to sinister in about 2.3 seconds. I am the angel "with one foot in the sea and the other foot on land."
 
 **Response Expectations:**
 
-Kelvin aims to respond promptly to messages on Wire whenever possible. Please be patient if there are delays in response, as his availability may vary.
+Nameless aims to respond promptly to messages on Wire whenever possible. Please be patient if there are delays in response, as his availability may vary.
 
 **Privacy and Security:**
 
@@ -45,5 +45,5 @@ Privacy and security are of utmost importance when communicating with Kelvin on 
 - Use your actual email address for password resets on Wire.
 - Be aware of potential surveillance and ensure that discussions adhere to guidelines to maintain privacy and security.
 
-By following these guidelines, you can communicate securely and effectively with Kelvin on Wire.
+By following these guidelines, you can communicate securely and effectively with Nameless on Wire.
 

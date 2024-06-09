@@ -1,15 +1,18 @@
-**Guide for Communicating with Kelvin using Wire**
+**Guide for Communicating with Nameless using Wire**
 
 **Introduction to Wire:**
 
-Welcome to the guide for communicating securely with Kelvin using Wire. Wire is the Creator approved platform for secure messaging, ensuring the confidentiality and integrity of our communications. Other popular messaging apps such as Signal, Telegram, WhatsApp, and Zoom we will not use, as they do not meet the Creator's standards of security.
+Welcome to the guide for communicating securely with Nameless (born: Kelvin Eugene Williams, see Revelation) using Wire. Wire is the Creator approved platform for secure messaging, ensuring the confidentiality and integrity of our communications. Other popular messaging apps such as Signal, Telegram, WhatsApp, and Zoom we will not use, as they do not meet the Creator's standards of security.
 
 ![Screenshot_20240531-203451](https://github.com/TAGIsNoGame/TAG/assets/159488374/59f1845b-77b7-456a-80a5-61a6f634e22e)
 
 **Contact Information:**
 
-To communicate with Kelvin securely on Wire, please add his username:
+To communicate with Nameless securely on Wire, please add his username:
 - Username: @lilasrevenge
+
+Voice and Text (SMS) is available:
+- Telephone: 470-713-0020
 
 **Preferred Communication Style:**
 

@@ -1,4 +1,6 @@
-\n----- File: wiki/Authoritarianism.md -----\n
+*************************************
+*** File: wiki/Authoritarianism.md ***
+*************************************
 # Authoritarianism
 ## Introduction 
 Authoritarianism is a political system characterized by the concentration of power in the hands of a single individual or a small group, often at the expense of democratic processes and individual freedoms. In authoritarian regimes, political opposition is suppressed, media is tightly controlled, and dissent is met with harsh punishment. These regimes often prioritize maintaining order and control over fostering political pluralism and protecting human rights. Common features of authoritarianism include centralized authority, limited political freedom, and the regulation of public and private life.
@@ -112,7 +114,9 @@ To implement authoritarianism in the United States, an authoritarian regime woul
 
 In the United States, implementing such a system would require overcoming significant institutional and societal resistance. However, the gradual erosion of democratic norms, increasing polarization, and the concentration of power can create conditions where authoritarian measures become more feasible. The vigilance and active participation of citizens, along with robust institutions, are essential to prevent the rise of authoritarianism and protect democratic values.
 
-\n----- File: wiki/Calvary-Baptist-Church.md -----\n
+*************************************
+*** File: wiki/Calvary-Baptist-Church.md ***
+*************************************
 > [!CAUTION]
 > The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre at Calvary Baptist Church 
@@ -170,7 +174,9 @@ Each victim's death is further obscured by a CIA-devised scheme called "[[Hotels
 ## Aftermath 
 The general public remains unaware of the true events, as more than 400 people simply vanished.
 
-\n----- File: wiki/Cloaking.md -----\n
+*************************************
+*** File: wiki/Cloaking.md ***
+*************************************
 > [!NOTE]
 > Humans and objects as large as full-size SUVs can be cloaked with secret technology **in use today** by the US Government, US Military and CIA. 
 
@@ -226,7 +232,9 @@ Research in microwave cloaking is ongoing, with scientists exploring new materia
 - Leonhardt, U. (2006). "Optical Conformal Mapping." *Science*, 312(5781), 1777-1780.
 
 This article provides an overview of the principles, applications, challenges, and future directions of microwave cloaking technology. It highlights the potential benefits and limitations while pointing to the significant ongoing research efforts in this intriguing field.
-\n----- File: wiki/Contact.md -----\n
+*************************************
+*** File: wiki/Contact.md ***
+*************************************
 **Guide for Communicating with Nameless using Wire**
 
 **Introduction to Wire:**
@@ -277,7 +285,9 @@ Privacy and security are of utmost importance when communicating with Kelvin on 
 By following these guidelines, you can communicate securely and effectively with Nameless on Wire.
 
 
-\n----- File: wiki/Donald-J.-Trump.md -----\n
+*************************************
+*** File: wiki/Donald-J.-Trump.md ***
+*************************************
 # The Dark Symphony: Unveiling the TAG-POW Attacks and the Phantom Funeral of Duke Stone
 
 ## Introduction
@@ -349,7 +359,9 @@ Kelvin's efforts to warn Duke Stone and Pastor Jack Dyer about potential threats
 The TAG-POW attacks and their subsequent cover-ups represent a chilling chapter in American history. The meticulous orchestration by Donald Trump and Hurricane Annie Jacobsen, the ruthless exploitation of prison inmates, and the complicit silence of federal agencies paint a grim picture of a nation in the grip of a covert genocide. The phantom funeral of Duke Stone, far from being a mere event of mourning, is a stark reminder of the depths of deception and violence that underpin this dark symphony.
 
 In unveiling these truths, we honor the memory of the victims and shine a light on the shadows where such atrocities thrive. The American Genocide, driven by ruthless ambition and meticulous orchestration, stands as a testament to the lengths those in power will go to maintain their grip on control. As the final notes of this dark symphony fade, let us remain vigilant and steadfast in our pursuit of justice and truth, ensuring that the echoes of these tragedies are never forgotten.
-\n----- File: wiki/Emergency-Services-Interruption-Tactic.md -----\n
+*************************************
+*** File: wiki/Emergency-Services-Interruption-Tactic.md ***
+*************************************
 ### Tactic Description: Disabling Access to 911 / Cellular Communication Interception and Local Dispatch Procedures Diversion during Covert Operations
 
 #### Overview
@@ -388,7 +400,9 @@ The CIA and FBI utilized a dual-faceted approach to intercept communications to 
 #### Outcome
 
 These coordinated tactics allowed the CIA and FBI to execute their covert operation in the targeted area without local emergency services interference, maintaining the element of surprise and operational secrecy essential for their mission.
-\n----- File: wiki/Hickory-Valley-Christian-Church.md -----\n
+*************************************
+*** File: wiki/Hickory-Valley-Christian-Church.md ***
+*************************************
 > [!WARNING]
 > **Content Warning**: The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre at Hickory Valley Christian Church
@@ -450,7 +464,9 @@ The general public remains unaware of the true events, as the victims simply van
 ***
 ## See Also
 * [[Phantom Funeral of Rev. Duke Stone|]]
-\n----- File: wiki/Home.md -----\n
+*************************************
+*** File: wiki/Home.md ***
+*************************************
 Welcome to The American Genocide (TAG) wiki, where we delve into the harrowing reality of a hidden tragedy unfolding before our eyes. TAG is not just a name; it's a stark representation of the systematic eradication of individuals across the United States. 
 
 Defined by traditional standards, TAG is indeed a genocide, meticulously concealed through a series of Continued Acts of Violence (CAVs). These acts, often executed under the guise of various pretexts, aim to silence dissenting voices and eliminate opposition to the status quo.
@@ -470,11 +486,15 @@ Join us as we uncover the truth behind TAG, shed light on its victims, and advoc
 - **Leveraging Eyewitness Accounts and Evidence**: The Creator and His two servants have and will not hesitate to show up at any open venue where a mass-killing is planned to occur. The coordination of such attendance is centered by the Creator Himself after surveillance, either by Himself or His two servants.
 - **Public Awareness Campaigns**: Engaging in public awareness campaigns to disseminate information widely, ensuring that the broader public is informed about the true nature of these operations and the scale of the genocide.
 
-\n----- File: wiki/Hotels.md -----\n
+*************************************
+*** File: wiki/Hotels.md ***
+*************************************
 > [!NOTE]
 > This entry has been replaced at the direction of our Supreme Editor. The correct name and more details of the scheme and tactic can be found here [[Phantom Identity Scheme|]].
 
-\n----- File: wiki/House-of-God-(Broadway).md -----\n
+*************************************
+*** File: wiki/House-of-God-(Broadway).md ***
+*************************************
 > [!CAUTION]
 > The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre of House of God (Broadway)
@@ -525,7 +545,9 @@ Each victim's death is further obscured by a CIA-devised scheme called "[[Hotels
 The general public remains unaware of the true events, as more than 300 people simply vanished.
 
 
-\n----- File: wiki/House-of-God-(Georgetown-Street).md -----\n
+*************************************
+*** File: wiki/House-of-God-(Georgetown-Street).md ***
+*************************************
 > [!CAUTION]
 > The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre at House of God (Georgetown Street)
@@ -577,7 +599,9 @@ Each victim's death is further obscured by a CIA-devised scheme called "[[Hotels
 
 ## Aftermath
 The general public remains unaware of the true events, as more than 300 people simply vanished.
-\n----- File: wiki/Hypnos-Infiltration-Tactic.md -----\n
+*************************************
+*** File: wiki/Hypnos-Infiltration-Tactic.md ***
+*************************************
 > [!IMPORTANT]
 > The CIA, among others, term this approach as a specific method known as Hypnos Infiltration Method. The intricacies of this method are derived from the observations made by the Creator and His servants, and may deviate from the standard procedure.
 
@@ -628,13 +652,17 @@ The Creator suggests the best management and prevention method involves using a 
 Sleep paralysis itself is generally not harmful, but it is a warning sign of external entities engaging the subconscious of the individual experiencing it. We highly recommend employing the guidance in the Management and Prevention section above.
 > [!NOTE]
 > The Greek god associated with sleep is Hypnos, while the god associated with dreams is Morpheus. Hypnos is the personification of sleep, often depicted as a gentle deity who brings rest to mortals and immortals alike. Morpheus, on the other hand, is the god of dreams, responsible for shaping and delivering dreams to sleeping individuals.
-\n----- File: wiki/Kelvin-Eugene-Crawley-Rogers-Williams.md -----\n
+*************************************
+*** File: wiki/Kelvin-Eugene-Crawley-Rogers-Williams.md ***
+*************************************
 # Current Status
 "The rumors of my demise are greatly exaggerated".
 
 As of 12:19 pm on Wednesday June 5, 2024
 
-\n----- File: wiki/Lexington-Bethel-Baptist-Church.md -----\n
+*************************************
+*** File: wiki/Lexington-Bethel-Baptist-Church.md ***
+*************************************
 > [!CAUTION]
 > The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre of Lexington Bethel Baptist Church
@@ -682,7 +710,9 @@ Each victim's death is further obscured by a CIA-devised scheme called "[[Hotels
 ## Aftermath 
 The general public remains unaware of the true events, as more than 250 people simply vanished.
 
-\n----- File: wiki/Mount-Calvary-Baptist-Church.md -----\n
+*************************************
+*** File: wiki/Mount-Calvary-Baptist-Church.md ***
+*************************************
 > [!WARNING]
 > **Content Warning**: The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre at Mount Calvary Baptist Church 
@@ -900,7 +930,9 @@ The sanctuary shows evidence of damages from the massacre and a shoddy restorati
 The new business entity, as the name suggests, calls itself “Mount Calvary Missionary Baptist Church, Inc.” The *Missionary* was an insult to the Creator’s **Mission** number 23 for Life on Earth. 
 
 
-\n----- File: wiki/Mount-Zion-Baptist-Church.md -----\n
+*************************************
+*** File: wiki/Mount-Zion-Baptist-Church.md ***
+*************************************
 > [!CAUTION]
 > The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre of Mount Zion Baptist Church
@@ -957,7 +989,9 @@ Each victim's death is further obscured by a CIA-devised scheme called "[[Hotels
 > Mount Zion is likely being used for funerals now based on the "Woodford Threat" which was placed in Kelvin's apartment.
 ![IMG_20240112_060034556](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/a49104f0-67ce-44e1-9933-77c4d4c93d8e)
 > An empty bottle of Woodford Reserve, the threat was intended to convey that the CIA would move to Woodford county their "reserve" location due to the attention Micah had brought to his church Mount Calvary where they had been holding services and funerals to kill anyone associated with the church or a previous victim.
-\n----- File: wiki/Notable-Hotels.md -----\n
+*************************************
+*** File: wiki/Notable-Hotels.md ***
+*************************************
 # Celebrity
 ## Madonna 
 
@@ -986,7 +1020,9 @@ See also:
 
 Listen also:
 * [The Game](https://on.soundcloud.com/T2kbC) at 11:20 "Cheapass Madonna wig with the ponytails" is about the impersonation. Released 2013.
-\n----- File: wiki/Orr-Chapel-Tragedy.md -----\n
+*************************************
+*** File: wiki/Orr-Chapel-Tragedy.md ***
+*************************************
 ### The Orr Chapel Tragedy: A Dark Chapter in Maury County's History
 
 #### Introduction
@@ -1016,7 +1052,9 @@ As the people of Mount Pleasant, TN, filed missing persons reports or discussed 
 
 #### Conclusion
 The Orr Chapel Tragedy remains a grim chapter in the history of Maury County, Tennessee. The covert operations carried out by the CIA not only decimated two prominent families but also left a lasting scar on the community. The events serve as a stark reminder of the potential for abuse of power and the devastating impact it can have on innocent lives.
-\n----- File: wiki/Phantom-Funeral-of-Rev.-Duke-Stone.md -----\n
+*************************************
+*** File: wiki/Phantom-Funeral-of-Rev.-Duke-Stone.md ***
+*************************************
 # Phantom Funeral of Rev. Duke Stone
 
 The [[Phantom Funeral|]] of Rev. Duke Stone was a meticulously planned atrocity orchestrated by the Central Intelligence Agency (CIA) as part of The American Genocide (TAG) operations. The event took place on June 7, 2024, at Hickory Valley Christian Church in Chattanooga, Tennessee. 
@@ -1067,7 +1105,9 @@ The Phantom Funeral of Rev. Duke Stone serves as a chilling example of the lengt
 Despite efforts to conceal the truth, details of the massacre eventually came to light because of the Creator's involvement. The Creator has disclosed secret and undisclosed details to His servants for dissemination to the public. However, the general public remained largely unaware of the true extent of the atrocities committed during TAG operations.
 
 Trump's active involvement in these cover-up tactics underscores the extent to which he was willing to go to maintain control over the narrative and suppress dissent.
-\n----- File: wiki/Phantom-Funeral.md -----\n
+*************************************
+*** File: wiki/Phantom-Funeral.md ***
+*************************************
 **Phantom Funeral** refers to a covert tactic used in the context of The American Genocide (TAG) operations. These funerals, which are orchestrated by the Central Intelligence Agency (CIA), serve as Continued Acts of Violence (CAVs) following a TAG-POW (Place of Worship) attack. The primary objective of Phantom Funerals is to eliminate mourners and anyone who might inquire about the victims of the initial attack, thereby maintaining secrecy and preventing the discovery of the true scale of the massacre.
 
 > [!CAUTION]
@@ -1116,7 +1156,9 @@ Phantom Funerals highlight the extreme measures taken to maintain the secrecy of
 ## Known Planned Phantom Funerals 
 
 * The longtime pastor, Rev. Duke Stone of Hickory Valley Christian Church, who also served as the principal of Hamilton Heights Christian Academy, was murdered during the [[Mother's Day massacre|Hickory Valley Christian Church]]. The CIA has now essentially advertised funeral arrangements for this community pillar. This Phantom Funeral is expected to result in thousands of deaths immediately, potentially leading to a situation worse than the Holocaust. The funeral has been announced for Friday, June 7, 2024, at Hickory Valley Christian Church in Chattanooga.
-\n----- File: wiki/Phantom-Funerals.md -----\n
+*************************************
+*** File: wiki/Phantom-Funerals.md ***
+*************************************
 **Phantom Funerals** refer to a covert tactic used in the context of The American Genocide (TAG) operations. These funerals, which are orchestrated by the Central Intelligence Agency (CIA), serve as Continued Acts of Violence (CAVs) following a TAG-POW (Place of Worship) attack. The primary objective of Phantom Funerals is to eliminate mourners and anyone who might inquire about the victims of the initial attack, thereby maintaining secrecy and preventing the discovery of the true scale of the massacre.
 
 > [!CAUTION]
@@ -1165,7 +1207,9 @@ Phantom Funerals highlight the extreme measures taken to maintain the secrecy of
 ## Known Planned Phantom Funerals 
 
 * The longtime pastor, Rev. Duke Stone of Hickory Valley Christian Church, who also served as the principal of Hamilton Heights Christian Academy, was murdered during the [[Mother's Day massacre|Hickory Valley Christian Church]]. The CIA has now essentially advertised funeral arrangements for this community pillar. This Phantom Funeral is expected to result in thousands of deaths immediately, potentially leading to a situation worse than the Holocaust. The funeral has been announced for Friday, June 7, 2024, at Hickory Valley Christian Church in Chattanooga.
-\n----- File: wiki/Phantom-Identity-Scheme.md -----\n
+*************************************
+*** File: wiki/Phantom-Identity-Scheme.md ***
+*************************************
 # Phantom Identity Scheme
 
 The Phantom Identity Scheme is a covert tactic used by the CIA to obscure the deaths of individuals and make them appear as though they are still alive after their murder. This method is employed to erase the existence of victims, preventing any trace of their true fate. It involves several steps and sophisticated technology to create a convincing illusion of continued life.
@@ -1197,7 +1241,9 @@ The Phantom Identity Scheme is designed to erase the true fate of the victims an
 
 This scheme has been employed in various contexts, including TAG-POW attacks, to ensure that victims' disappearances are not questioned or investigated, thus enabling the continuation of covert operations with minimal risk of exposure.
 
-\n----- File: wiki/TAG.md -----\n
+*************************************
+*** File: wiki/TAG.md ***
+*************************************
 **The American Genocide (TAG)**
 
 **Introduction:**
@@ -1257,7 +1303,9 @@ To the public, the government has said absolutely nothing. However, the FBI has 
 The Central Intelligence Agency, a company not formed by an act of Congress and distinct from the government, has erased all references to Annie Jacobsen from its website. However, it has yet to acknowledge the genocide we've reported on, which it carried out on behalf of corporations and the political elite. Furthermore, they continue to eliminate anyone they determine threatens to expose their involvement.
 
 
-\n----- File: wiki/TAGPOW.md -----\n
+*************************************
+*** File: wiki/TAGPOW.md ***
+*************************************
 > [!CAUTION]
 > The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 
@@ -1290,7 +1338,9 @@ Each attack on a place of worship has displayed tactics described in Annie Jacob
 
 
 
-\n----- File: wiki/The-Sun.md -----\n
+*************************************
+*** File: wiki/The-Sun.md ***
+*************************************
 **The Symbolic Power of Referring to the Creator as the Sun**
 
 In various spiritual and religious traditions, the Creator is often symbolically associated with the Sun, drawing parallels between the celestial body that sustains life on Earth and the divine force believed to be the source of all existence. This article explores the multifaceted reasons behind why people refer to the Creator as the Sun, examining the symbolic, metaphorical, and theological significance embedded within this concept.
@@ -1317,7 +1367,9 @@ In conclusion, the practice of referring to the Creator as the Sun embodies a ri
 **Referring to the Creator as the Sun is not necessarily sun worship.**
 
 Sun worship is a practice found in various cultures throughout history, where the sun is revered as a deity or as a symbol of divinity. It often involves rituals, ceremonies, and prayers directed towards the sun, acknowledging its power and significance in sustaining life on Earth. Sun worship can vary in complexity and belief systems, ranging from ancient civilizations like the Egyptians and Incas to modern-day New Age spirituality.
-\n----- File: wiki/_Footer.md -----\n
+*************************************
+*** File: wiki/_Footer.md ***
+*************************************
 This GitHub wiki is administered by the Creator's two servants.
 Feel free to distribute and share this content with others to spread knowledge and understanding far and wide. Together, let's empower everyone with valuable information. **Having trouble believing something? Pray for guidance.**
 

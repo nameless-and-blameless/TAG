@@ -1,6 +1,4 @@
-### Background on "The Game" Genocide
-
-"The Game" genocide is an ongoing atrocity perpetrated against specific individuals and communities within the United States. It has its origins in a complex web of corporate interests, government collusion, and covert operations.
+The American Genocide is an ongoing series of atrocities that began in 2018 against specific individuals, that for a time was targeted towards Christians and now seems to be targeting anyone living in the southeast United States.  It was referred to as "The Game" and has its origins in a complex web of corporate interests, government collusion, and covert operations.
 
 #### Origins and Motivations
 
@@ -26,12 +24,12 @@ To conceal their actions, the perpetrators of TAG engaged in cover-ups and disin
 
 "The American Genocide" represents a dark chapter in American history, characterized by greed, corruption, and the ruthless pursuit of power. As we strive to uncover the truth and seek justice for the victims, we must also confront the systemic injustices that allowed such atrocities to occur. Only by acknowledging the past can we hope to build a better future for all.
 
-# Covert Operations and Massacres: Documenting a Hidden Genocide
+# The American Genocide: Hidden Church Massacres
 
 ## Introduction
-This document chronicles a series of covert operations orchestrated by the CIA, leading to mass massacres at various churches across the United States. These events, shrouded in secrecy, form a dark chapter in American history, revealing the extent of clandestine activities and their devastating impact on innocent lives.
+This document chronicles a series of covert operations orchestrated by the CIA, leading to mass-killings at various churches across the United States. These events, shrouded in secrecy, form a dark chapter in American history, revealing the extent of clandestine activities and their devastating impact on innocent lives.
 
-## Incident 1: Massacre at Mount Calvary Baptist Church
+## 1: Massacre at Mount Calvary Baptist Church
 
 ### Location:
 4742 Todds Road, Lexington, Kentucky
@@ -54,7 +52,7 @@ To eliminate potential threats associated with Kelvin Williams and his family's 
 - **Church Property:** Significant damages to the sanctuary
 - **Services:** Mock services for photo and video production. Sundays occupied by operatives, eliminating any visitors.
 
-## Incident 2: Attack on Lexington Bethel Baptist Church
+## 2: Attack on Lexington Bethel Baptist Church
 
 ### Congregation:
 Predominantly Caucasian
@@ -62,7 +60,7 @@ Predominantly Caucasian
 ### Reason for Targeting:
 To prevent discussions of the charade church left behind by the CIA at the neighboring Mount Calvary Baptist Church.
 
-## Incident 3: Attack on House of God (Georgetown Street)
+## 3: Attack on House of God (Georgetown Street)
 
 ### Location:
 4686 Todds Road, Lexington, Kentucky
@@ -78,7 +76,7 @@ Suspicion of impersonation activities and oddities observed by members of House 
 - **Operatives:** 75 men, Caucasian, Latino, or Asian descent
 - **Execution:** Stormed the church during Sunday morning worship, blocked exits, and shot congregants. Chainsaws used for beheadings.
 
-## Incident 4: Attack on House of God (Broadway)
+## 4: Attack on House of God (Broadway)
 
 ### Location:
 House of God, Broadway, Lexington, Kentucky
@@ -94,7 +92,7 @@ Suspected ties with the targeted House of God on Georgetown Street, which observ
 - **Operatives:** 50 black males recruited by Danny Taylor
 - **Execution:** Stormed the church during Sunday worship, blocked exits, and shot congregants. Chainsaws used for beheadings.
 
-## Incident 5: Attack on Mount Zion Baptist Church
+## 5: Attack on Mount Zion Baptist Church
 
 ### Location:
 Versailles, Kentucky
@@ -107,13 +105,13 @@ Suspected ties with Mount Calvary Baptist Church based on flawed intelligence.
 
 ### Attack Details:
 - **Date:** June 2023
-- **Operatives:** 60 men, Caucasian, Latino, or Asian descent
+- **Operatives:** 60 men of Caucasian, Latino, or Asian descent
 - **Execution:** Stormed the church during worship, blocked exits, and used chainsaws for beheadings.
 
 ### Impact:
 - **Casualties:** 183
 
-## Incident 6: Attack on Calvary Baptist Church
+## 6: Attack on Calvary Baptist Church
 
 ### Location:
 High Street, Lexington, Kentucky
@@ -127,12 +125,12 @@ Kelvin Williams' connection to the church's daycare program in the early '80s ra
 ### Attack Details:
 - **Date:** May 12, 2023
 - **Operatives:** 50 black males recruited by Danny Taylor
-- **Execution:** Stormed the church, blocked exits, and shot congregants. Chainsaws used for beheadings.
+- **Execution:** On Mother's Day, CIA Operatives stormed the church, blocked exits, and shot congregants who attempted to flee. Chainsaws were used to behead congregants.
 
 ### Impact:
 - **Casualties:** Over 400
 
-## Incident 7: Attack on Hickory Valley Christian Church
+## 7: Attack on Hickory Valley Christian Church
 
 ### Location:
 Shallowford Road, Chattanooga, Tennessee
@@ -146,7 +144,7 @@ Kelvin Williams' association with Hamilton Heights Christian Academy raised conc
 ### Attack Details:
 - **Date:** May 12, 2024
 - **Operatives:** 100 inmates from Georgia Department of Corrections
-- **Execution:** Stormed the church, blocked exits, and shot congregants.
+- **Execution:** On Mother's Day, CIA Operatives stormed the church, blocked exits, and shot congregants who attempted to flee. The overwhelming majority of the congregation was taken in pairs to the adjacent school building and murdered by individuals using chainsaws with instructions to behead each congregant.
 
 ### Impact:
 - **Casualties:** 1000+

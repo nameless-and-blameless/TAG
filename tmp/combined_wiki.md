@@ -1,4 +1,4 @@
------ File: wiki/Authoritarianism.md -----
+\n----- File: wiki/Authoritarianism.md -----\n
 # Authoritarianism
 ## Introduction 
 Authoritarianism is a political system characterized by the concentration of power in the hands of a single individual or a small group, often at the expense of democratic processes and individual freedoms. In authoritarian regimes, political opposition is suppressed, media is tightly controlled, and dissent is met with harsh punishment. These regimes often prioritize maintaining order and control over fostering political pluralism and protecting human rights. Common features of authoritarianism include centralized authority, limited political freedom, and the regulation of public and private life.
@@ -112,7 +112,7 @@ To implement authoritarianism in the United States, an authoritarian regime woul
 
 In the United States, implementing such a system would require overcoming significant institutional and societal resistance. However, the gradual erosion of democratic norms, increasing polarization, and the concentration of power can create conditions where authoritarian measures become more feasible. The vigilance and active participation of citizens, along with robust institutions, are essential to prevent the rise of authoritarianism and protect democratic values.
 
------ File: wiki/Calvary-Baptist-Church.md -----
+\n----- File: wiki/Calvary-Baptist-Church.md -----\n
 > [!CAUTION]
 > The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre at Calvary Baptist Church 
@@ -170,7 +170,7 @@ Each victim's death is further obscured by a CIA-devised scheme called "[[Hotels
 ## Aftermath 
 The general public remains unaware of the true events, as more than 400 people simply vanished.
 
------ File: wiki/Cloaking.md -----
+\n----- File: wiki/Cloaking.md -----\n
 > [!NOTE]
 > Humans and objects as large as full-size SUVs can be cloaked with secret technology **in use today** by the US Government, US Military and CIA. 
 
@@ -226,7 +226,7 @@ Research in microwave cloaking is ongoing, with scientists exploring new materia
 - Leonhardt, U. (2006). "Optical Conformal Mapping." *Science*, 312(5781), 1777-1780.
 
 This article provides an overview of the principles, applications, challenges, and future directions of microwave cloaking technology. It highlights the potential benefits and limitations while pointing to the significant ongoing research efforts in this intriguing field.
------ File: wiki/Contact.md -----
+\n----- File: wiki/Contact.md -----\n
 **Guide for Communicating with Nameless using Wire**
 
 **Introduction to Wire:**
@@ -277,7 +277,79 @@ Privacy and security are of utmost importance when communicating with Kelvin on 
 By following these guidelines, you can communicate securely and effectively with Nameless on Wire.
 
 
------ File: wiki/Emergency-Services-Interruption-Tactic.md -----
+\n----- File: wiki/Donald-J.-Trump.md -----\n
+# The Dark Symphony: Unveiling the TAG-POW Attacks and the Phantom Funeral of Duke Stone
+
+## Introduction
+
+In the heart of Chattanooga, amidst the mournful tunes of a community in grief, a sinister symphony reaches its terrifying crescendo. The funeral of Duke Stone, a respected figure at Hickory Valley Christian Church, serves as the stage for this dark orchestration. Beneath the solemnity of the event lies a chilling conspiracy, where former President Donald Trump and CIA Director Annie Jacobsen, known as "Hurricane Annie," pull the strings. This narrative seeks to unravel the layers of deceit, violence, and meticulous cover-ups that define the American Genocide and its brutal attacks on places of worship (TAG-POW).
+
+## The TAG-POW Attacks: A Prelude to Tragedy
+
+The TAG-POW attacks began with the massacre at Mount Calvary Baptist Church in Lexington, Kentucky, on April 2, 2023. This tragic event marked the commencement of a series of coordinated assaults on places of worship, executed under the guise of eliminating threats to national security. These attacks, meticulously planned and ruthlessly executed, have left a trail of devastation and despair. The targeted places of worship include:
+
+- Mount Calvary Baptist Church, Lexington, Kentucky
+- Lexington Bethel Baptist Church, Lexington, Kentucky
+- Mount Zion Baptist Church, Versailles, Kentucky
+- House of God (Georgetown St), Lexington, Kentucky
+- House of God (Broadway), Lexington, Kentucky
+- Hickory Valley Christian Church, Chattanooga, Tennessee
+- Calvary Baptist Church, Lexington, Kentucky
+
+Beginning with the massacre at Lexington Bethel Baptist Church, white congregations have been equally targeted. The death toll of white victims is now larger and rising faster than any other group.
+
+## Orchestrating Chaos: Donald Trump and the TAG Symphony
+
+Former President Donald Trump, cast in the role of composer, orchestrates the chaos with a blend of political cunning and ruthless ambition. His presence at Duke Stone's funeral is a calculated move, designed to maintain the illusion of respectability while masking the true nature of his involvement in the TAG-POW attacks. Trump's orchestration is not merely symbolic; it is a hands-on involvement in the orchestration of violence and the subsequent cover-ups.
+
+## Hurricane Annie Jacobsen: The Conductor of Carnage
+
+Annie Jacobsen, the CIA's Director, known as "Hurricane Annie," stands as the conductor of this dark symphony. Her expertise in clandestine operations and psychological warfare has been instrumental in executing the TAG-POW attacks. Jacobsen's tactics, outlined in her book "Surprise, Kill, Vanish," are chillingly employed to devastating effect. The attacks follow a methodical pattern of sudden assaults, execution-style killings, and meticulous disposal of evidence, ensuring the perpetrators remain in the shadows.
+
+## The Orchestra: Prison Inmates as Instruments of Death
+
+Prison inmates are unwittingly recruited as the orchestra in Jacobsen's symphony of terror. These individuals, selected for their expendability and coerced with promises of reduced sentences, are transformed into instruments of death. They are briefed with misleading information, made to believe they are targeting threats to national security, and unleashed upon unsuspecting congregations. After serving their purpose, these inmates are systematically eliminated, ensuring their silence and the perpetuation of the cover-up.
+
+## The Mother's Day Massacre: The Death of Duke Stone
+
+The massacre at Hickory Valley Christian Church on Mother's Day, May 12, 2024, stands as a testament to the brutal efficiency of the TAG-POW attacks. Over 1,000 congregants, along with a teacher from Hamilton Heights Christian Academy, were mercilessly killed. All of the victims at Hickory Valley Christian Church were white, highlighting a deliberate targeting pattern. Duke Stone, a respected pastor and friend of Kelvin Williams, was among the victims. The attack was meticulously planned and executed, with operatives ensuring no survivors and erasing all traces of the carnage.
+
+## The Phantom Funeral: A Trap Set with Deadly Intent
+
+### The Trap
+
+Duke Stone's funeral on June 7, 2024, was not merely a memorial service but a meticulously planned "phantom funeral." These deceptive events are designed to lure in and eliminate witnesses or anyone who might discuss previous acts of the American Genocide, particularly the massacre at Hickory Valley Christian Church. The phantom funeral serves as a trap, ensuring the silencing of those who might expose the truth.
+
+When anyone calls looking for missing individuals linked to the TAG-POW attacks, they are provided with service arrangements for these phantom funerals. These details are then passed on to other friends and family members. This ensures that mourners arriving at these funerals are systematically killed by design. The orchestration is such that anyone showing up to pay their respects is ruthlessly executed. At the phantom funeral of Reverend Dr. Duke Stone, 90% of the mourners were white, demonstrating the targeted nature of these sinister operations.
+
+### The Role of Donald Trump
+
+Donald Trump's involvement adds a layer of insidious deceit. By lending his face to a video interview with a local news station, Trump intended to create a facade of normalcy and survival. His public appearance was meant to discredit any reports of violence or foul play at the funeral, portraying it as a regular event where he attended and faced no problems. This strategic move was designed to dismiss any claims about the phantom funeral, thus maintaining the cover-up.
+
+During the funeral, Trump witnessed the execution of innocent mourners who came to pay their respects. His security detail was present and actively participated in executing others, ensuring the event remained concealed and eliminating potential witnesses.
+
+### The Role of the FBI and the CIA
+
+The cover-up extends beyond the immediate aftermath of the attacks. The FBI, complicit in the orchestration, plays a pivotal role in silencing potential whistleblowers. Missing person reports related to the TAG-POW victims are intercepted and handed over to the CIA. Individuals filing these reports, along with their households, are systematically eliminated, ensuring that no trace of the victims or their stories remains. This method ensures that anyone attempting to seek justice or inquire about the missing is swiftly silenced.
+
+## The Orchestra of Inmates
+
+Prison inmates are coerced into participating in these operations under the pretext of aiding in national security matters. They are promised sentence reductions or other incentives, but once their role is complete, they are systematically executed to eliminate any potential leaks. This ensures that the true nature of the TAG-POW attacks remains hidden. The execution of these inmates, who are seen as expendable, is carried out with ruthless efficiency.
+
+## Kelvin Williams: The Lone Survivor and the Creator's Servant
+
+Kelvin Williams, one of the Creator's two servants, is the only living member of Mount Calvary Baptist Church, a historic congregation in Lexington, Kentucky. His lifelong church was attacked because of his family, which has also been eliminated. Kelvin’s position as a direct servant of the Creator and a survivor of the TAG-POW attacks makes him a critical figure in uncovering the truth behind these atrocities.
+
+Kelvin had a significant connection with Hickory Valley Christian Church through his friendship with Duke Stone. This relationship was forged years earlier when Kelvin was introduced to Duke Stone by Bonnie Bush Ford, a retired elementary school teacher and principal from Wildwood, Georgia, who was a cousin of former Presidents George H. W. Bush and George W. Bush. Kelvin's technical expertise greatly benefited Hamilton Heights Christian Academy, a school operated by Hickory Valley Christian Church, as he helped upgrade their computer lab and provided ongoing technical support.
+
+Kelvin's efforts to warn Duke Stone and Pastor Jack Dyer about potential threats demonstrated his commitment to protecting others despite the dangers he faced. His warnings, however, triggered the tragic events that led to the massacre on Mother's Day and the subsequent phantom funeral of Duke Stone.
+
+## Conclusion: Unveiling the Dark Symphony
+
+The TAG-POW attacks and their subsequent cover-ups represent a chilling chapter in American history. The meticulous orchestration by Donald Trump and Hurricane Annie Jacobsen, the ruthless exploitation of prison inmates, and the complicit silence of federal agencies paint a grim picture of a nation in the grip of a covert genocide. The phantom funeral of Duke Stone, far from being a mere event of mourning, is a stark reminder of the depths of deception and violence that underpin this dark symphony.
+
+In unveiling these truths, we honor the memory of the victims and shine a light on the shadows where such atrocities thrive. The American Genocide, driven by ruthless ambition and meticulous orchestration, stands as a testament to the lengths those in power will go to maintain their grip on control. As the final notes of this dark symphony fade, let us remain vigilant and steadfast in our pursuit of justice and truth, ensuring that the echoes of these tragedies are never forgotten.
+\n----- File: wiki/Emergency-Services-Interruption-Tactic.md -----\n
 ### Tactic Description: Disabling Access to 911 / Cellular Communication Interception and Local Dispatch Procedures Diversion during Covert Operations
 
 #### Overview
@@ -316,7 +388,7 @@ The CIA and FBI utilized a dual-faceted approach to intercept communications to 
 #### Outcome
 
 These coordinated tactics allowed the CIA and FBI to execute their covert operation in the targeted area without local emergency services interference, maintaining the element of surprise and operational secrecy essential for their mission.
------ File: wiki/Hickory-Valley-Christian-Church.md -----
+\n----- File: wiki/Hickory-Valley-Christian-Church.md -----\n
 > [!WARNING]
 > **Content Warning**: The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre at Hickory Valley Christian Church
@@ -356,66 +428,29 @@ The congregation was already midway through their Sunday morning worship session
 Many congregants called 911 from their mobile phones, describing the horrific scene. They were told help was on the way, but none realized they were speaking with CIA operatives instead of Hamilton County’s Public Safety Answering Point (PSAP)—a centralized facility responsible for answering and routing emergency calls--due to the [[FBI & CIA's Emergency Services Interruption Tactic|Emergency Services Interruption Tactic]]. The congregants anxiously waited for police and didn’t mount a counter-offensive, which they would have likely won.
 
 ### Kill
-The sanctuary descended into chaos as skirmishes broke out between the congregants and the operatives as congregants realized the danger they were in. Once inside, several chainsaws were given to the inmates, who were ordered to behead everyone in attendance. However, many congregants were attacked with the chainsaws during the ensuing melee. As the operatives began to establish control, they started forcibly taking members of the congregation in pairs to the gymnasium of the church's school to be killed. Mothers who had been honored earlier in the service were now horrified as their children were pulled away from them to be killed. The method of execution was brutal and deliberate: the secering of the head using a chainsaw, Jacobsen’s preferred method for such operations. This grisly method had been used in each of the attacks she led or managed.
+The sanctuary descended into chaos as skirmishes broke out between the congregants and the operatives as congregants realized the danger they were in. Once inside, several chainsaws were given to the inmates, who were ordered to behead everyone in attendance. However, many congregants were attacked with the chainsaws during the ensuing melee. As the operatives began to establish control, they started forcibly taking members of the congregation to the back of the church for decapitation. Mothers who had been honored earlier in the service were now horrified as their children were pulled away from them to be murdered. The method of execution was brutal and deliberate: decapitation using a chainsaw, Jacobsen’s preferred method for such operations. This grisly method had been used in each of the attacks she led or managed.
 
 ### Vanish
-#### Body 
-Following the massacre, the bodies of the victims were disposed of using church's baptismal which the operatives had added a solution to that made the water within it capable of dissolving all of the tissues that makeup the human body. The bones were ground to the size of gravel and distributed around the church's property.
+#### Body Disposal 
+Following the massacre, the bodies of the victims were disposed of using church's baptismal which the operatives had added a solution to that made the water within it capable of dissolving a human body, ensuring no physical evidence remained. 
 
-#### Vehicle
+#### Vehicles 
 The vehicles belonging to the congregants were loaded onto car haulers, their VINs changed, and then sold or given away, further erasing any trace of the victims. 
 
-#### Identity
+#### Life After Death
 Each victim's death is further obscured by a CIA-devised scheme called "[[Phantom Identity Scheme|]]." The scheme effectively makes  victims appear "alive" after their murder. 
 
 #### Fate of Inmates
 The inmates, upon returning to Clayton County Detention Center, were executed with poisonous gas in their cell block, ensuring their silence and eliminating any potential leaks about the operation. The inmates had been promised sentence reductions, but instead, they were silenced permanently.
 
-The largest gas chamber designed for terminating human life is located in cell block 8600 within the Clayton County Detention Center. (This information obtained by one of the Creator's servants while on assignment.)
+The largest gas chamber designed for terminating human life is located in cell block 8600 within the Clayton County Detention Center.
 
 ## Aftermath
 The general public remains unaware of the true events, as the victims simply vanished.
 ***
-## Phantom Funeral Activity 
-
-## **Rev. Duke Stone's Phantom Funeral**
-
-### Overview
-- **Event**: Phantom Funeral for Rev. Dr. Duke Stone
-- **Date**: June 7, 2024
-- **Location**: Hickory Valley Christian Church, Chattanooga, Tennessee
-- **Victims**: 649 (92% Caucasian)
-- **Perpetrators**: CIA, Donald J. Trump (in person), Annie Jacobsen (in person)
-- **Operatives**: Jacobsen obtained 25 inmates from the State of Georgia, the same as the Mother's Day Massacre. All were executed after the Phantom Funeral. The inmates who were promised sentence reductions for their assistance with a national security matter, were executed pursuant to Trump's instructions.
-
-### Detailed Events
-
-#### Phantom Funeral Description
-The Phantom Funeral for Rev. Duke Stone, former pastor of Hickory Valley Christian Church and longtime principal of Hamilton Heights Christian Academy, was orchestrated as part of a covert tactic to maintain secrecy and prevent the discovery of the true scale of the massacre at Hickory Valley Christian Church. The CIA told concerned parties that Rev. Stone and his wife were killed in a car accident. The arrangements for her Phantom Funeral were provided for June 8, 2024.
-
-#### Presence of Donald J. Trump
-Former President Donald J. Trump was on site with several Secret Service agents providing security. Mr. Trump observed the murder of many mourners. Some mourners begged him for assistance to escape the massacre. Additionally, some of his Secret Service agents used chainsaws to murder people.
-
-#### Execution of Inmates
-The inmates were executed after the event. They had been promised sentence reductions for their participation in a national security matter but were instead silenced permanently following Trump's direct instructions.
-
-### Tactics and Methods
-
-1. **Emergency Services Interruption Tactic**
-   - **Cellular Communication Interception**: A Cell on Wheels (CoW) intercepted mobile phone signals within the targeted area, redirecting calls to CIA operatives posing as 911 dispatchers. These operatives assured callers that help was on the way while preventing any actual emergency response.
-   - **Memorandum for Local Dispatch Procedures Diversion**: A directive from the FBI instructed the local PSAP to refer emergency requests to the FBI, which then acknowledged but took no further action, effectively blocking local emergency intervention.
-
-2. **Body Disposal**
-   - The bodies were disposed of in the church's baptismal using a solution that dissolved them within moments.
-   - Bones were ground to the size of 1" gravel and distributed around the church's property.
-
-3. **Phantom Identity Scheme**
-   - Employed to obscure the deaths and maintain the illusion that the victims were still alive through digital manipulation, financial transactions, public records, and physical impersonation.
-
-### Outcome
-The Phantom Funeral ensured the complete erasure of the victims' true fates. By manipulating emergency responses, disposing of bodies in an untraceable manner, and utilizing the Phantom Identity Scheme, the CIA, with Trump's involvement, maintained operational secrecy and prevented any investigation into the disappearances. The Creator and His two servants remain dedicated to exposing these activities, leveraging eyewitness accounts and other evidence to bring the perpetrators to justice.
-
------ File: wiki/Home.md -----
+## See Also
+* [[Phantom Funeral of Rev. Duke Stone|]]
+\n----- File: wiki/Home.md -----\n
 Welcome to The American Genocide (TAG) wiki, where we delve into the harrowing reality of a hidden tragedy unfolding before our eyes. TAG is not just a name; it's a stark representation of the systematic eradication of individuals across the United States. 
 
 Defined by traditional standards, TAG is indeed a genocide, meticulously concealed through a series of Continued Acts of Violence (CAVs). These acts, often executed under the guise of various pretexts, aim to silence dissenting voices and eliminate opposition to the status quo.
@@ -435,11 +470,11 @@ Join us as we uncover the truth behind TAG, shed light on its victims, and advoc
 - **Leveraging Eyewitness Accounts and Evidence**: The Creator and His two servants have and will not hesitate to show up at any open venue where a mass-killing is planned to occur. The coordination of such attendance is centered by the Creator Himself after surveillance, either by Himself or His two servants.
 - **Public Awareness Campaigns**: Engaging in public awareness campaigns to disseminate information widely, ensuring that the broader public is informed about the true nature of these operations and the scale of the genocide.
 
------ File: wiki/Hotels.md -----
+\n----- File: wiki/Hotels.md -----\n
 > [!NOTE]
 > This entry has been replaced at the direction of our Supreme Editor. The correct name and more details of the scheme and tactic can be found here [[Phantom Identity Scheme|]].
 
------ File: wiki/House-of-God-(Broadway).md -----
+\n----- File: wiki/House-of-God-(Broadway).md -----\n
 > [!CAUTION]
 > The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre of House of God (Broadway)
@@ -490,7 +525,7 @@ Each victim's death is further obscured by a CIA-devised scheme called "[[Hotels
 The general public remains unaware of the true events, as more than 300 people simply vanished.
 
 
------ File: wiki/House-of-God-(Georgetown-Street).md -----
+\n----- File: wiki/House-of-God-(Georgetown-Street).md -----\n
 > [!CAUTION]
 > The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre at House of God (Georgetown Street)
@@ -542,7 +577,7 @@ Each victim's death is further obscured by a CIA-devised scheme called "[[Hotels
 
 ## Aftermath
 The general public remains unaware of the true events, as more than 300 people simply vanished.
------ File: wiki/Hypnos-Infiltration-Tactic.md -----
+\n----- File: wiki/Hypnos-Infiltration-Tactic.md -----\n
 > [!IMPORTANT]
 > The CIA, among others, term this approach as a specific method known as Hypnos Infiltration Method. The intricacies of this method are derived from the observations made by the Creator and His servants, and may deviate from the standard procedure.
 
@@ -593,13 +628,13 @@ The Creator suggests the best management and prevention method involves using a 
 Sleep paralysis itself is generally not harmful, but it is a warning sign of external entities engaging the subconscious of the individual experiencing it. We highly recommend employing the guidance in the Management and Prevention section above.
 > [!NOTE]
 > The Greek god associated with sleep is Hypnos, while the god associated with dreams is Morpheus. Hypnos is the personification of sleep, often depicted as a gentle deity who brings rest to mortals and immortals alike. Morpheus, on the other hand, is the god of dreams, responsible for shaping and delivering dreams to sleeping individuals.
------ File: wiki/Kelvin-Eugene-Crawley-Rogers-Williams.md -----
+\n----- File: wiki/Kelvin-Eugene-Crawley-Rogers-Williams.md -----\n
 # Current Status
 "The rumors of my demise are greatly exaggerated".
 
 As of 12:19 pm on Wednesday June 5, 2024
 
------ File: wiki/Lexington-Bethel-Baptist-Church.md -----
+\n----- File: wiki/Lexington-Bethel-Baptist-Church.md -----\n
 > [!CAUTION]
 > The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre of Lexington Bethel Baptist Church
@@ -647,7 +682,7 @@ Each victim's death is further obscured by a CIA-devised scheme called "[[Hotels
 ## Aftermath 
 The general public remains unaware of the true events, as more than 250 people simply vanished.
 
------ File: wiki/Mount-Calvary-Baptist-Church.md -----
+\n----- File: wiki/Mount-Calvary-Baptist-Church.md -----\n
 > [!WARNING]
 > **Content Warning**: The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre at Mount Calvary Baptist Church 
@@ -865,7 +900,7 @@ The sanctuary shows evidence of damages from the massacre and a shoddy restorati
 The new business entity, as the name suggests, calls itself “Mount Calvary Missionary Baptist Church, Inc.” The *Missionary* was an insult to the Creator’s **Mission** number 23 for Life on Earth. 
 
 
------ File: wiki/Mount-Zion-Baptist-Church.md -----
+\n----- File: wiki/Mount-Zion-Baptist-Church.md -----\n
 > [!CAUTION]
 > The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 # The Massacre of Mount Zion Baptist Church
@@ -922,7 +957,7 @@ Each victim's death is further obscured by a CIA-devised scheme called "[[Hotels
 > Mount Zion is likely being used for funerals now based on the "Woodford Threat" which was placed in Kelvin's apartment.
 ![IMG_20240112_060034556](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/a49104f0-67ce-44e1-9933-77c4d4c93d8e)
 > An empty bottle of Woodford Reserve, the threat was intended to convey that the CIA would move to Woodford county their "reserve" location due to the attention Micah had brought to his church Mount Calvary where they had been holding services and funerals to kill anyone associated with the church or a previous victim.
------ File: wiki/Notable-Hotels.md -----
+\n----- File: wiki/Notable-Hotels.md -----\n
 # Celebrity
 ## Madonna 
 
@@ -951,7 +986,7 @@ See also:
 
 Listen also:
 * [The Game](https://on.soundcloud.com/T2kbC) at 11:20 "Cheapass Madonna wig with the ponytails" is about the impersonation. Released 2013.
------ File: wiki/Orr-Chapel-Tragedy.md -----
+\n----- File: wiki/Orr-Chapel-Tragedy.md -----\n
 ### The Orr Chapel Tragedy: A Dark Chapter in Maury County's History
 
 #### Introduction
@@ -981,7 +1016,107 @@ As the people of Mount Pleasant, TN, filed missing persons reports or discussed 
 
 #### Conclusion
 The Orr Chapel Tragedy remains a grim chapter in the history of Maury County, Tennessee. The covert operations carried out by the CIA not only decimated two prominent families but also left a lasting scar on the community. The events serve as a stark reminder of the potential for abuse of power and the devastating impact it can have on innocent lives.
------ File: wiki/Phantom-Funerals.md -----
+\n----- File: wiki/Phantom-Funeral-of-Rev.-Duke-Stone.md -----\n
+# Phantom Funeral of Rev. Duke Stone
+
+The [[Phantom Funeral|]] of Rev. Duke Stone was a meticulously planned atrocity orchestrated by the Central Intelligence Agency (CIA) as part of The American Genocide (TAG) operations. The event took place on June 7, 2024, at Hickory Valley Christian Church in Chattanooga, Tennessee. 
+
+Rev. Duke Stone, the retired longtime pastor of Hickory Valley Christian Church, a prominent community figure and principal of Hamilton Heights Christian Academy, he and his wife were among the victims of the massacre at [[Hickory Valley Christian Church|]] on May 12, 2024. The CIA told concerned parties that Rev. Stone and his wife were killed in a car accident, and arrangements for her Phantom Funeral were set for June 8, 2024.
+
+# Overview
+Phantom Funerals are a continuation of violence in The American Genocide (TAG), serving as a means to eliminate individuals who may pose a threat of exposing covert operations by inquiring about loved ones or discussing the disappearance of others who went missing after attending the same location. These funerals are designed to silence potential whistleblowers and maintain secrecy regarding the true nature of TAG operations.
+
+## **Donald Trump's TAG Involvement**
+
+Donald Trump has been actively involved in the planning and supervision of TAG-POW attacks since the [[Lexington Bethel Baptist Church|]] attack. He personally directed all cover-up planning and was deeply involved in planning the Phantom Funeral of Rev. Duke Stone.
+
+Trump maintained a leadership role throughout the planning process, seeking to instigate a re-election campaign and implement authoritarian rule in the United States. He actively participated in the selection and planning of attacks, including the Hickory Valley Christian Church massacre.
+
+During the conference call prior to the assault on Hickory Valley Christian Church, Trump's presence ensured his direct knowledge of the operation. Throughout the attack, he remained engaged, receiving periodic briefings on the massacre operation.
+
+## **Cover-Up Tactics**
+
+The cover-up tactics employed by the CIA, under Trump's direction, were instrumental in concealing the true nature of the atrocities committed during TAG-POW attacks. These tactics included:
+
+1. **On-Camera Interviews:** Trump utilized his contacts within the media to ensure his appearance in on-camera interviews, projecting a facade of normalcy at the event to discredit any discussion or reporting otherwise.
+
+2. **Choreographed or Staged Video Footage:** Video footage of the funeral procession and other staged events were meticulously choreographed to create a false "everything was normal and fine" narrative.
+
+## **Vanishing Tactics**
+
+In addition to cover-up tactics, the CIA employs vanishing tactics at every mass killing or TAG-POW attack to prevent detection and evade accountability. These tactics include:
+
+1. **Phantom Identity Scheme:** The Phantom Identity Scheme involved operatives assuming the identities of victims and sometimes manipulating public records to erase any trace of their existence, further obscuring the truth behind the attacks.
+
+2. **Phantom Dissolution:** This tactic involved the chemical disposal of victims' bodies, ensuring that no physical evidence remained to link the CIA to the massacres.
+
+3. **Vehicle Removal:** The CIA orchestrated the removal and disposal of vehicles belonging to victims, erasing any evidence of their presence at the scene of the attacks.
+
+Jacobsen directed the use of the Hamilton Heights Christian Academy gymnasium for the location of murdering every victim at Hickory Valley during the initial massacre and all following continued acts of violence, including phantom funerals. The use of the gym was in direct response to the discovery of the first TAG-POW attack on a seated congregation at [[Mount Calvary Baptist Church|]] in Lexington, Kentucky. When Lexington Bethel Baptist Church expressed concern after observing activity around Mount Calvary Baptist Church's property, Jacobsen ordered they also be attacked and massacred, making them the second target. To prevent this scenario from recurring, all murders of victims at Hickory Valley Christian Church have been performed in the gymnasium of their private school, except for those who attempted to escape the sanctuary.
+
+## **Victim Deaths**
+
+During the Phantom Funeral of Rev. Duke Stone, 649 individuals were killed. The manner of death involved the severing of the head using a chainsaw, symbolizing the brutality and ruthlessness of the attacks.
+
+## **Significance and Impact**
+
+The Phantom Funeral of Rev. Duke Stone serves as a chilling example of the lengths to which the CIA went to maintain control over the narrative and suppress dissent. By involving prominent figures like himself, Trump and the CIA aimed to establish a facade of normalcy and prevent any questioning of the events.
+
+## **Aftermath**
+
+Despite efforts to conceal the truth, details of the massacre eventually came to light because of the Creator's involvement. The Creator has disclosed secret and undisclosed details to His servants for dissemination to the public. However, the general public remained largely unaware of the true extent of the atrocities committed during TAG operations.
+
+Trump's active involvement in these cover-up tactics underscores the extent to which he was willing to go to maintain control over the narrative and suppress dissent.
+\n----- File: wiki/Phantom-Funeral.md -----\n
+**Phantom Funeral** refers to a covert tactic used in the context of The American Genocide (TAG) operations. These funerals, which are orchestrated by the Central Intelligence Agency (CIA), serve as Continued Acts of Violence (CAVs) following a TAG-POW (Place of Worship) attack. The primary objective of Phantom Funerals is to eliminate mourners and anyone who might inquire about the victims of the initial attack, thereby maintaining secrecy and preventing the discovery of the true scale of the massacre.
+
+> [!CAUTION]
+> Be sure to see the list of [planned phantom funerals](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funerals#known-planned-phantom-funerals).
+
+# Overview
+
+Phantom Funerals are a calculated extension of the violence initiated during TAG-POW attacks. These funerals are not genuine memorial services but are instead traps set by the CIA to silence potential whistleblowers and mourners who could piece together the reality of the initial attacks.
+
+## Tactics and Methods
+
+1. **Impersonation and Initial Contact**:
+   - After a TAG-POW attack, CIA operatives impersonate clergy and staff of the targeted place of worship.
+   - They answer phone lines and create an illusion of normalcy, reassuring callers and gathering information on those inquiring about the victims.
+
+2. **Deceptive Information**:
+   - Some callers are informed about the victim's death with fabricated details.
+   - Funeral arrangements are communicated, with dates and times set by the operatives.
+
+3. **Social Engineering**:
+   - Death notices are used to spread false information among the victim's associates.
+   - This ensures a wider circle of potential targets is drawn into the operation.
+
+4. **Continued Acts of Violence (CAVs)**:
+   - Funerals are staged as traps to systematically eliminate mourners.
+   - Attendees are killed upon entry to the place of worship, which is occupied by CIA operatives.
+   - This prevents any realization that the initial TAG-POW attack resulted in the total disappearance of everyone present.
+
+5. **Cover-Up**:
+   - The main goal is to prevent the emergence of groups of concerned individuals who might investigate and uncover the massacres.
+   - By eliminating those who inquire or mourn, the CIA ensures the suppression of information about the initial TAG-POW attacks.
+
+## Impact
+
+Phantom Funerals effectively silence those who seek the truth about TAG-POW attacks. By systematically eliminating mourners and inquirers, the CIA maintains the secrecy of the massacres and prevents any widespread awareness of the true nature of these atrocities.
+
+## Historical Context
+
+Phantom Funerals are part of the broader TAG operations, which aim to push the United States towards authoritarian rule. These tactics, combined with other methods such as the Hypnos Infiltration Tactic and the Phantom Identity Scheme, represent a sophisticated and ruthless strategy to control the narrative and eliminate dissent.
+
+## Conclusion
+
+Phantom Funerals highlight the extreme measures taken to maintain the secrecy of TAG operations. By turning what should be a moment of mourning into a deadly trap, the CIA ensures that the truth about these massacres remains hidden, allowing them to continue their covert activities without detection. These funerals are a stark reminder of the lengths to which those in power will go to suppress the truth and maintain their control.
+
+***
+## Known Planned Phantom Funerals 
+
+* The longtime pastor, Rev. Duke Stone of Hickory Valley Christian Church, who also served as the principal of Hamilton Heights Christian Academy, was murdered during the [[Mother's Day massacre|Hickory Valley Christian Church]]. The CIA has now essentially advertised funeral arrangements for this community pillar. This Phantom Funeral is expected to result in thousands of deaths immediately, potentially leading to a situation worse than the Holocaust. The funeral has been announced for Friday, June 7, 2024, at Hickory Valley Christian Church in Chattanooga.
+\n----- File: wiki/Phantom-Funerals.md -----\n
 **Phantom Funerals** refer to a covert tactic used in the context of The American Genocide (TAG) operations. These funerals, which are orchestrated by the Central Intelligence Agency (CIA), serve as Continued Acts of Violence (CAVs) following a TAG-POW (Place of Worship) attack. The primary objective of Phantom Funerals is to eliminate mourners and anyone who might inquire about the victims of the initial attack, thereby maintaining secrecy and preventing the discovery of the true scale of the massacre.
 
 > [!CAUTION]
@@ -1030,7 +1165,7 @@ Phantom Funerals highlight the extreme measures taken to maintain the secrecy of
 ## Known Planned Phantom Funerals 
 
 * The longtime pastor, Rev. Duke Stone of Hickory Valley Christian Church, who also served as the principal of Hamilton Heights Christian Academy, was murdered during the [[Mother's Day massacre|Hickory Valley Christian Church]]. The CIA has now essentially advertised funeral arrangements for this community pillar. This Phantom Funeral is expected to result in thousands of deaths immediately, potentially leading to a situation worse than the Holocaust. The funeral has been announced for Friday, June 7, 2024, at Hickory Valley Christian Church in Chattanooga.
------ File: wiki/Phantom-Identity-Scheme.md -----
+\n----- File: wiki/Phantom-Identity-Scheme.md -----\n
 # Phantom Identity Scheme
 
 The Phantom Identity Scheme is a covert tactic used by the CIA to obscure the deaths of individuals and make them appear as though they are still alive after their murder. This method is employed to erase the existence of victims, preventing any trace of their true fate. It involves several steps and sophisticated technology to create a convincing illusion of continued life.
@@ -1062,7 +1197,7 @@ The Phantom Identity Scheme is designed to erase the true fate of the victims an
 
 This scheme has been employed in various contexts, including TAG-POW attacks, to ensure that victims' disappearances are not questioned or investigated, thus enabling the continuation of covert operations with minimal risk of exposure.
 
------ File: wiki/TAG.md -----
+\n----- File: wiki/TAG.md -----\n
 **The American Genocide (TAG)**
 
 **Introduction:**
@@ -1080,8 +1215,8 @@ In response to the existential threat posed by Spark, pharmaceutical giants orch
 **The Political Agenda:**
 As TAG gained momentum, it became increasingly intertwined with the agendas of political elites seeking to consolidate power and reshape the fabric of American society. Some of the political elite, including former President Donald J. Trump, saw in TAG an opportunity to transition the US government from a democracy to an authoritarian regime, leveraging the chaos and fear generated by the atrocities to justify their authoritarian aspirations. By exploiting the turmoil unleashed by TAG, these shadowy figures sought to manipulate public sentiment and erode the foundations of democracy.
 
-**Target: US Citizen**
-The culmination of pharmaceutical greed and political machinations, TAG manifested as a series of coordinated attacks on Mount Calvary Baptist Church. In an attempt to cover it up the neighboring church, Lexington Bethel Baptist Church, was attacked. Several others were brutally attacked also under the guise of religious extremism and fueled by political agendas, operatives unleashed unspeakable violence, massacring congregations although no longer in their pursuit of suppressing the spread of Spark, much more sinister motives were fueling TAG. Churches, once sanctuaries of peace and solace, became the epicenter of mass atrocities, as innocent lives were sacrificed in the name of corporate interests and political ambitions.
+**TAG Unleashed:**
+The culmination of pharmaceutical greed and political machinations, TAG manifested as a series of coordinated attacks on places of worship across the United States. Under the guise of religious extremism and fueled by political agendas, operatives unleashed unspeakable violence, massacring congregations in their pursuit of suppressing the spread of Spark. Churches, once sanctuaries of peace and solace, became the epicenter of mass atrocities, as innocent lives were sacrificed in the name of corporate interests and political ambitions.
 
 **The Toll of Tragedy:**
 The devastation wrought by TAG reverberated across the nation, leaving behind a trail of shattered communities and broken lives. Thousands perished in the onslaught, their voices silenced by the ruthless pursuit of profit and power. Families were torn apart and futures shattered. As the dust begins to settle, the true cost of corporate greed and political ambition will become painfully clear, forever staining the annals of history with the blood of the innocent.
@@ -1111,7 +1246,7 @@ The targeted churches include:
 ## The Creator
 The Creator, known as the Alpha & the Omega and the Great "I Am," is the divine force behind the creation of life and the universe. Revered as Allah and God, He transcends religious boundaries, weaving His presence into every major faith to emphasize the sanctity and protection of life as the highest priority. The Creator's involvement highlights the universal values of compassion and respect for all living beings, regardless of doctrinal differences.
 
-Importantly, the Creator does not concern Himself with many things often attributed to Him, and His views on matters such as religion, governments, control, homosexuality, and drugs may surprise many. He places the utmost importance on life itself. Had the government attacked any public venue in the manner they have targeted places of worship, the Creator would have responded the same way.
+Importantly, the Creator does not concern Himself with many things often attributed to Him, and His views on matters such as religion, governments, control, homosexuality, and drugs may surprise many. He places the utmost importance on life itself. Had the government attacked any public venue in the manner they have targeted places of worship, the Creator would have undoubtedly responded.
 
 The Creator says that TAG is a genocide. What may have started as a corporate overreaction to forthcoming gifts from Him has now evolved into a full-fledged genocide. An undercurrent of authoritarianism, political agendas, and narrow viewpoints is fueling this hidden genocide. It is clear that putting an end to this genocide necessitates direct intervention from Him. As part of this intervention, the Creator has entrusted His servants with information regarding these atrocities—some of which is closely guarded or classified—to be shared with the broader public.
 
@@ -1122,7 +1257,7 @@ To the public, the government has said absolutely nothing. However, the FBI has 
 The Central Intelligence Agency, a company not formed by an act of Congress and distinct from the government, has erased all references to Annie Jacobsen from its website. However, it has yet to acknowledge the genocide we've reported on, which it carried out on behalf of corporations and the political elite. Furthermore, they continue to eliminate anyone they determine threatens to expose their involvement.
 
 
------ File: wiki/TAGPOW.md -----
+\n----- File: wiki/TAGPOW.md -----\n
 > [!CAUTION]
 > The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 
@@ -1155,7 +1290,7 @@ Each attack on a place of worship has displayed tactics described in Annie Jacob
 
 
 
------ File: wiki/The-Sun.md -----
+\n----- File: wiki/The-Sun.md -----\n
 **The Symbolic Power of Referring to the Creator as the Sun**
 
 In various spiritual and religious traditions, the Creator is often symbolically associated with the Sun, drawing parallels between the celestial body that sustains life on Earth and the divine force believed to be the source of all existence. This article explores the multifaceted reasons behind why people refer to the Creator as the Sun, examining the symbolic, metaphorical, and theological significance embedded within this concept.
@@ -1182,7 +1317,7 @@ In conclusion, the practice of referring to the Creator as the Sun embodies a ri
 **Referring to the Creator as the Sun is not necessarily sun worship.**
 
 Sun worship is a practice found in various cultures throughout history, where the sun is revered as a deity or as a symbol of divinity. It often involves rituals, ceremonies, and prayers directed towards the sun, acknowledging its power and significance in sustaining life on Earth. Sun worship can vary in complexity and belief systems, ranging from ancient civilizations like the Egyptians and Incas to modern-day New Age spirituality.
------ File: wiki/_Footer.md -----
+\n----- File: wiki/_Footer.md -----\n
 This GitHub wiki is administered by the Creator's two servants.
 Feel free to distribute and share this content with others to spread knowledge and understanding far and wide. Together, let's empower everyone with valuable information. **Having trouble believing something? Pray for guidance.**
 

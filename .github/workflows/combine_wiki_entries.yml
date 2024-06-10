@@ -22,7 +22,9 @@ jobs:
         # Loop through each file in the directory
         for file in wiki/*; do
           # Add divider before each file content
-          echo "\n----- File: $file -----\n" >> "$output_file"
+          echo "*************************************" >> "$output_file"
+          echo "*** File: $file ***" >> "$output_file"
+          echo "*************************************" >> "$output_file"
           # Append file content to the output file
           cat "$file" >> "$output_file"
           # Add extra newline for better separation

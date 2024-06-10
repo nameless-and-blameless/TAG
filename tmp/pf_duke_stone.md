@@ -7,7 +7,7 @@ Rev. Duke Stone, the retired longtime pastor of Hickory Valley Christian Church,
 # Overview
 Phantom Funerals are a continuation of violence in The American Genocide (TAG), serving as a means to eliminate individuals who may pose a threat of exposing covert operations by inquiring about loved ones or discussing the disappearance of others who went missing after attending the same location. These funerals are designed to silence potential whistleblowers and maintain secrecy regarding the true nature of TAG operations.
 
-**Donald Trump's TAG Involvement**
+## **Donald Trump's TAG Involvement**
 
 Donald Trump has been actively involved in the planning and supervision of TAG-POW attacks since the Lexington Bethel Baptist Church attack. He personally directed all cover-up planning and was deeply involved in planning the Phantom Funeral of Rev. Duke Stone.
 
@@ -15,7 +15,7 @@ Trump maintained a leadership role throughout the planning process, seeking to i
 
 During the conference call prior to the assault on Hickory Valley Christian Church, Trump's presence ensured his direct knowledge of the operation. Throughout the attack, he remained engaged, demonstrating a commitment to the success of the operation.
 
-**Cover-Up Tactics**
+## **Cover-Up Tactics**
 
 The cover-up tactics employed by the CIA, under Trump's direction, were instrumental in concealing the true nature of the atrocities committed during TAG-POW attacks. These tactics included:
 
@@ -23,7 +23,7 @@ The cover-up tactics employed by the CIA, under Trump's direction, were instrume
 
 2. **Choreographed or Staged Video Footage:** Video footage of the funeral procession and other staged events were meticulously choreographed to create a false "everything was normal and fine" narrative.
 
-**Vanishing Tactics**
+## **Vanishing Tactics**
 
 In addition to cover-up tactics, the CIA employs vanishing tactics at every mass killing or TAG-POW attack to prevent detection and evade accountability. These tactics include:
 
@@ -35,15 +35,15 @@ In addition to cover-up tactics, the CIA employs vanishing tactics at every mass
 
 Jacobsen directed the use of the Hamilton Heights Christian Academy gymnasium for the location of murdering every victim at Hickory Valley during the initial massacre and all following continued acts of violence, including phantom funerals. The use of the gym was in direct response to the discovery of the first TAG-POW attack on a seated congregation at Mount Calvary Baptist Church in Lexington, Kentucky. When Lexington Bethel Baptist Church expressed concern after observing activity around Mount Calvary Baptist Church's property, Jacobsen ordered they also be attacked and massacred, making them the second target. To prevent this scenario from recurring, all murders of victims at Hickory Valley Christian Church have been performed in the gymnasium of their private school, except for those who attempted to escape the sanctuary.
 
-**Victim Deaths**
+## **Victim Deaths**
 
 During the Phantom Funeral of Rev. Duke Stone, 649 individuals were killed. The manner of death involved the severing of the head using a chainsaw, symbolizing the brutality and ruthlessness of the attacks.
 
-**Significance and Impact**
+## **Significance and Impact**
 
 The Phantom Funeral of Rev. Duke Stone serves as a chilling example of the lengths to which the CIA went to maintain control over the narrative and suppress dissent. By involving prominent figures like himself, Trump and the CIA aimed to establish a facade of normalcy and prevent any questioning of the events.
 
-**Aftermath**
+## **Aftermath**
 
 Despite efforts to conceal the truth, details of the massacre eventually came to light because of the Creator's involvement. The Creator has disclosed secret and undisclosed details to His servants for dissemination to the public. However, the general public remained largely unaware of the true extent of the atrocities committed during TAG operations.
 

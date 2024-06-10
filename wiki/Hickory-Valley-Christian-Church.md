@@ -41,7 +41,7 @@ The sanctuary descended into chaos as skirmishes broke out between the congregan
 
 ### Vanish
 #### Body Disposal 
-Following the massacre, the bodies of the victims were disposed of using church's baptismal which the operatives had added a solution to that made the water within it capable of dissolving a human body, ensuring no physical evidence remained. 
+Following the massacre, the bodies of the victims were disposed of using church's baptismal which the operatives had added a solution to that made the water within it capable of dissolving all of the tissues that makeup the human body. The bones were ground to the size of gravel and distributed around the church's property.
 
 #### Vehicles 
 The vehicles belonging to the congregants were loaded onto car haulers, their VINs changed, and then sold or given away, further erasing any trace of the victims. 

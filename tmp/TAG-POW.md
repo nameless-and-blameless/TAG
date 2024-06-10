@@ -155,3 +155,98 @@ Kelvin Williams' association with Hamilton Heights Christian Academy raised conc
 - **Religious Services:** None
 - **Church Property:** None (All murders conducted in the attached gymnasium of the private high school)
 
+# Phantom Funerals
+**Phantom Funeral** refers to a covert tactic used in the context of The American Genocide (TAG) operations. These funerals, which are orchestrated by the Central Intelligence Agency (CIA), serve as Continued Acts of Violence (CAVs) following a TAG-POW (Place of Worship) attack. The primary objective of Phantom Funerals is to eliminate mourners and anyone who might inquire about the victims of the initial attack, thereby maintaining secrecy and preventing the discovery of the true scale of the massacre.
+
+> [!CAUTION]
+> Be sure to see the list of [planned phantom funerals](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funerals#known-planned-phantom-funerals).
+
+# Overview
+
+Phantom Funerals are a calculated extension of the violence initiated during TAG-POW attacks. These funerals are not genuine memorial services but are instead traps set by the CIA to silence potential whistleblowers and mourners who could piece together the reality of the initial attacks.
+
+## Tactics and Methods
+
+1. **Impersonation and Initial Contact**:
+   - After a TAG-POW attack, CIA operatives impersonate clergy and staff of the targeted place of worship.
+   - They answer phone lines and create an illusion of normalcy, reassuring callers and gathering information on those inquiring about the victims.
+
+2. **Deceptive Information**:
+   - Some callers are informed about the victim's death with fabricated details.
+   - Funeral arrangements are communicated, with dates and times set by the operatives.
+
+3. **Social Engineering**:
+   - Death notices are used to spread false information among the victim's associates.
+   - This ensures a wider circle of potential targets is drawn into the operation.
+
+4. **Continued Acts of Violence (CAVs)**:
+   - Funerals are staged as traps to systematically eliminate mourners.
+   - Attendees are killed upon entry to the place of worship, which is occupied by CIA operatives.
+   - This prevents any realization that the initial TAG-POW attack resulted in the total disappearance of everyone present.
+
+5. **Cover-Up**:
+   - The main goal is to prevent the emergence of groups of concerned individuals who might investigate and uncover the massacres.
+   - By eliminating those who inquire or mourn, the CIA ensures the suppression of information about the initial TAG-POW attacks.
+
+## Impact
+
+Phantom Funerals effectively silence those who seek the truth about TAG-POW attacks. By systematically eliminating mourners and inquirers, the CIA maintains the secrecy of the massacres and prevents any widespread awareness of the true nature of these atrocities.
+
+## Historical Context
+
+Phantom Funerals are part of the broader TAG operations, which aim to push the United States towards authoritarian rule. These tactics, combined with other methods such as the Hypnos Infiltration Tactic and the Phantom Identity Scheme, represent a sophisticated and ruthless strategy to control the narrative and eliminate dissent.
+
+## Conclusion
+
+Phantom Funerals highlight the extreme measures taken to maintain the secrecy of TAG operations. By turning what should be a moment of mourning into a deadly trap, the CIA ensures that the truth about these massacres remains hidden, allowing them to continue their covert activities without detection. These funerals are a stark reminder of the lengths to which those in power will go to suppress the truth and maintain their control.
+
+***
+# Phantom Funeral of Rev. Duke Stone
+The Phantom Funeral of Rev. Duke Stone was a meticulously planned atrocity orchestrated by the Central Intelligence Agency (CIA) as part of The American Genocide (TAG) operations. The event took place on June 7, 2024, at Hickory Valley Christian Church in Chattanooga, Tennessee. 
+
+Rev. Duke Stone, the retired longtime pastor of Hickory Valley Christian Church, a prominent community figure and principal of Hamilton Heights Christian Academy, he and his wife were among the victims of the massacre at [[Hickory Valley Christian Church|]] on May 12, 2024. The CIA told concerned parties that Rev. Stone and his wife were killed in a car accident, and arrangements for her Phantom Funeral were set for June 8, 2024.
+
+## Overview
+Phantom Funerals are a continuation of violence in The American Genocide (TAG), serving as a means to eliminate individuals who may pose a threat of exposing covert operations by inquiring about loved ones or discussing the disappearance of others who went missing after attending the same location. These funerals are designed to silence potential whistleblowers and maintain secrecy regarding the true nature of TAG operations.
+
+## **Donald Trump's TAG Involvement**
+
+Donald Trump has been actively involved in the planning and supervision of TAG-POW attacks since the Lexington Bethel Baptist Church attack. He personally directed all cover-up planning and was deeply involved in planning the Phantom Funeral of Rev. Duke Stone.
+
+Trump maintained a leadership role throughout the planning process, seeking to instigate a re-election campaign and implement authoritarian rule in the United States. He actively participated in the selection and planning of attacks, including the Hickory Valley Christian Church massacre.
+
+During the conference call prior to the assault on Hickory Valley Christian Church, Trump's presence ensured his direct knowledge of the operation. Throughout the attack, he remained engaged, receiving periodic briefings on the massacre operation.
+
+## **Cover-Up Tactics**
+
+The cover-up tactics employed by the CIA, under Trump's direction, were instrumental in concealing the true nature of the atrocities committed during TAG-POW attacks. These tactics included:
+
+1. **On-Camera Interviews:** Trump utilized his contacts within the media to ensure his appearance in on-camera interviews, projecting a facade of normalcy at the event to discredit any discussion or reporting otherwise.
+
+2. **Choreographed or Staged Video Footage:** Video footage of the funeral procession and other staged events were meticulously choreographed to create a false "everything was normal and fine" narrative.
+
+## **Vanishing Tactics**
+
+In addition to cover-up tactics, the CIA employs vanishing tactics at every mass killing or TAG-POW attack to prevent detection and evade accountability. These tactics include:
+
+1. **Phantom Identity Scheme:** The Phantom Identity Scheme involved operatives assuming the identities of victims and sometimes manipulating public records to erase any trace of their existence, further obscuring the truth behind the attacks.
+
+2. **Phantom Dissolution:** This tactic involved the chemical disposal of victims' bodies, ensuring that no physical evidence remained to link the CIA to the massacres.
+
+3. **Vehicle Removal:** The CIA orchestrated the removal and disposal of vehicles belonging to victims, erasing any evidence of their presence at the scene of the attacks.
+
+Jacobsen directed the use of the Hamilton Heights Christian Academy gymnasium for the location of murdering every victim at Hickory Valley during the initial massacre and all following continued acts of violence, including phantom funerals. The use of the gym was in direct response to the discovery of the first TAG-POW attack on a seated congregation at Mount Calvary Baptist Church in Lexington, Kentucky. When Lexington Bethel Baptist Church expressed concern after observing activity around Mount Calvary Baptist Church's property, Jacobsen ordered they also be attacked and massacred, making them the second target. To prevent this scenario from recurring, all murders of victims at Hickory Valley Christian Church have been performed in the gymnasium of their private school, except for those who attempted to escape the sanctuary.
+
+## **Victim Deaths**
+
+During the Phantom Funeral of Rev. Duke Stone, 649 individuals were killed. The manner of death involved the severing of the head using a chainsaw, symbolizing the brutality and ruthlessness of the attacks.
+
+## **Significance and Impact**
+
+The Phantom Funeral of Rev. Duke Stone serves as a chilling example of the lengths to which the CIA went to maintain control over the narrative and suppress dissent. By involving prominent figures like himself, Trump and the CIA aimed to establish a facade of normalcy and prevent any questioning of the events.
+
+## **Aftermath**
+
+Despite efforts to conceal the truth, details of the massacre eventually came to light because of the Creator's involvement. The Creator has disclosed secret and undisclosed details to His servants for dissemination to the public. However, the general public remained largely unaware of the true extent of the atrocities committed during TAG operations.
+
+Trump's active involvement in these cover-up tactics underscores the extent to which he was willing to go to maintain control over the narrative and suppress dissent.

@@ -30,3 +30,14 @@ jobs:
         done
         
         echo "Files combined successfully."
+
+    - name: Commit Combined File
+      run: |
+        git config --local user.email "action@github.com"
+        git config --local user.name "GitHub Action"
+        git add combined.txt
+        git commit -m "Combined wiki files into one"
+        git push
+        
+      env:
+        GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}

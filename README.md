@@ -1,3 +1,7 @@
+> [!NOTE]
+> You can find an easier to navigate [wiki](/wiki) here (it's also easier to censor it with National Security Letters easier too).
+
+# TAG: The American Genocide 
 The American Genocide is an ongoing series of atrocities that began in 2018 against specific individuals, that for a time was targeted towards Christians and now seems to be targeting anyone living in the southeast United States.  It was referred to as "The Game" and has its origins in a complex web of corporate interests, government collusion, and covert operations.
 
 #### Origins and Motivations

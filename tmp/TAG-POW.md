@@ -138,7 +138,7 @@ Kelvin Williams' connection to the church's daycare program in the early '80s ra
 Shallowford Road, Chattanooga, Tennessee
 
 ### Congregation:
-Approximately 500 members
+Predominantly Caucasian, Approximately 500 members
 
 ### Reason for Targeting:
 Kelvin Williams' association with Hamilton Heights Christian Academy raised concerns.

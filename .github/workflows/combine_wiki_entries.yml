@@ -1,0 +1,32 @@
+name: Combine Wiki Entries 
+
+on:
+  workflow_dispatch:
+
+jobs:
+  combine:
+    runs-on: ubuntu-latest
+    
+    steps:
+    - name: Checkout Repository
+      uses: actions/checkout@v4.1.5
+      
+    - name: Combine Files
+      run: |
+        # Define the output file
+        output_file="/tmp/combined_wiki.md"
+        
+        # Remove existing output file if it exists
+        rm -f "$output_file"
+        
+        # Loop through each file in the directory
+        for file in /wiki/*; do
+          # Add divider before each file content
+          echo "----- File: $file -----" >> "$output_file"
+          # Append file content to the output file
+          cat "$file" >> "$output_file"
+          # Add extra newline for better separation
+          echo >> "$output_file"
+        done
+        
+        echo "Files combined successfully."

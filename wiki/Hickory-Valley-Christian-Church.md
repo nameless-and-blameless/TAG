@@ -57,7 +57,9 @@ The largest gas chamber designed for terminating human life is located in cell b
 ## Aftermath
 The general public remains unaware of the true events, as the victims simply vanished.
 ***
-**Duke Stone's Phantom Funeral**
+## Phantom Funeral Activity 
+
+## **Rev. Duke Stone's Phantom Funeral**
 
 ### Overview
 - **Event**: Phantom Funeral for Rev. Dr. Duke Stone

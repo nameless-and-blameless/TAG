@@ -3,8 +3,9 @@ name: Update Wiki
 on:
   push:
     paths:
-      - TAG.wiki/**  
-
+      - wiki/**  
+  workflow_dispatch:
+  
 jobs:
   update-wiki:
     runs-on: ubuntu-latest

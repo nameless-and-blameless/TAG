@@ -35,7 +35,7 @@ jobs:
       run: |
         git config --local user.email "action@github.com"
         git config --local user.name "GitHub Action"
-        git add combined.txt
+        git add tmp/combined_wiki.md
         git commit -m "Combined wiki files into one"
         git push
         

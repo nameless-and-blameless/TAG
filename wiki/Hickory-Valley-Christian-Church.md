@@ -37,27 +37,29 @@ The congregation was already midway through their Sunday morning worship session
 Many congregants called 911 from their mobile phones, describing the horrific scene. They were told help was on the way, but none realized they were speaking with CIA operatives instead of Hamilton County’s Public Safety Answering Point (PSAP)—a centralized facility responsible for answering and routing emergency calls--due to the [[FBI & CIA's Emergency Services Interruption Tactic|Emergency Services Interruption Tactic]]. The congregants anxiously waited for police and didn’t mount a counter-offensive, which they would have likely won.
 
 ### Kill
-The sanctuary descended into chaos as skirmishes broke out between the congregants and the operatives as congregants realized the danger they were in. Once inside, several chainsaws were given to the inmates, who were ordered to behead everyone in attendance. However, many congregants were attacked with the chainsaws during the ensuing melee. As the operatives began to establish control, they started forcibly taking members of the congregation to the back of the church for decapitation. Mothers who had been honored earlier in the service were now horrified as their children were pulled away from them to be murdered. The method of execution was brutal and deliberate: decapitation using a chainsaw, Jacobsen’s preferred method for such operations. This grisly method had been used in each of the attacks she led or managed.
+The sanctuary descended into chaos as skirmishes broke out between the congregants and the operatives as congregants realized the danger they were in. Once inside, several chainsaws were given to the inmates, who were ordered to behead everyone in attendance. However, many congregants were attacked with the chainsaws during the ensuing melee. As the operatives began to establish control, they started forcibly taking members of the congregation in pairs to the gymnasium of the church's school to be killed. Mothers who had been honored earlier in the service were now horrified as their children were pulled away from them to be killed. The method of execution was brutal and deliberate: the secering of the head using a chainsaw, Jacobsen’s preferred method for such operations. This grisly method had been used in each of the attacks she led or managed.
 
 ### Vanish
-#### Body Disposal 
-Following the massacre, the bodies of the victims were disposed of using church's baptismal which the operatives had added a solution to that made the water within it capable of dissolving a human body, ensuring no physical evidence remained. 
+#### Body 
+Following the massacre, the bodies of the victims were disposed of using church's baptismal which the operatives had added a solution to that made the water within it capable of dissolving all of the tissues that makeup the human body. The bones were ground to the size of gravel and distributed around the church's property.
 
-#### Vehicles 
+#### Vehicle
 The vehicles belonging to the congregants were loaded onto car haulers, their VINs changed, and then sold or given away, further erasing any trace of the victims. 
 
-#### Life After Death
+#### Identity
 Each victim's death is further obscured by a CIA-devised scheme called "[[Phantom Identity Scheme|]]." The scheme effectively makes  victims appear "alive" after their murder. 
 
 #### Fate of Inmates
 The inmates, upon returning to Clayton County Detention Center, were executed with poisonous gas in their cell block, ensuring their silence and eliminating any potential leaks about the operation. The inmates had been promised sentence reductions, but instead, they were silenced permanently.
 
-The largest gas chamber designed for terminating human life is located in cell block 8600 within the Clayton County Detention Center.
+The largest gas chamber designed for terminating human life is located in cell block 8600 within the Clayton County Detention Center. (This information obtained by one of the Creator's servants while on assignment.)
 
 ## Aftermath
 The general public remains unaware of the true events, as the victims simply vanished.
 ***
-**Duke Stone's Phantom Funeral**
+## Phantom Funeral Activity 
+
+## **Rev. Duke Stone's Phantom Funeral**
 
 ### Overview
 - **Event**: Phantom Funeral for Rev. Dr. Duke Stone

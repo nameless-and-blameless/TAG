@@ -1,7 +1,3 @@
-> [!NOTE]
-> You can find an easier to navigate [wiki](https://github.com/TAGIsNoGame/TAG/wiki) here (it's also easier to censor it with National Security Letters easier too - [click here](/wiki) if inaccessible).
-
-# TAG: The American Genocide 
 The American Genocide is an ongoing series of atrocities that began in 2018 against specific individuals, that for a time was targeted towards Christians and now seems to be targeting anyone living in the southeast United States.  It was referred to as "The Game" and has its origins in a complex web of corporate interests, government collusion, and covert operations.
 
 #### Origins and Motivations
@@ -254,4 +250,3 @@ The Phantom Funeral of Rev. Duke Stone serves as a chilling example of the lengt
 Despite efforts to conceal the truth, details of the massacre eventually came to light because of the Creator's involvement. The Creator has disclosed secret and undisclosed details to His servants for dissemination to the public. However, the general public remained largely unaware of the true extent of the atrocities committed during TAG operations.
 
 Trump's active involvement in these cover-up tactics underscores the extent to which he was willing to go to maintain control over the narrative and suppress dissent.
-

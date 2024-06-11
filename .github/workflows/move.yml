@@ -1,0 +1,31 @@
+name: Move Directories to Data
+
+on: 
+  workflow_dispatch:
+
+jobs:
+  move_directories:
+    runs-on: ubuntu-latest
+
+    steps:
+      - name: Checkout repository
+        uses: actions/checkout@v2
+
+      - name: Create data directory
+        run: mkdir -p data
+
+      - name: Move directories to data except wiki
+        run: |
+          for dir in */; do
+            if [ "$dir" != "wiki/" ]; then
+              mv "$dir" data/
+            fi
+          done
+
+      - name: Commit changes
+        run: |
+          git config --global user.name 'github-actions'
+          git config --global user.email 'github-actions@github.com'
+          git add .
+          git commit -m "Move directories to data except wiki"
+          git push

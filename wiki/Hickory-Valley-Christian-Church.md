@@ -40,14 +40,14 @@ Many congregants called 911 from their mobile phones, describing the horrific sc
 The sanctuary descended into chaos as skirmishes broke out between the congregants and the operatives as congregants realized the danger they were in. Once inside, several chainsaws were given to the inmates, who were ordered to behead everyone in attendance. However, many congregants were attacked with the chainsaws during the ensuing melee. As the operatives began to establish control, they started forcibly taking members of the congregation to the back of the church for decapitation. Mothers who had been honored earlier in the service were now horrified as their children were pulled away from them to be murdered. The method of execution was brutal and deliberate: decapitation using a chainsaw, Jacobsen’s preferred method for such operations. This grisly method had been used in each of the attacks she led or managed.
 
 ### Vanish
-#### Body Disposal 
-Following the massacre, the bodies of the victims were disposed of using church's baptismal which the operatives had added a solution to that made the water within it capable of dissolving a human body, ensuring no physical evidence remained. 
+#### Remains  
+Following the massacre, the bodies of the victims were disposed of using church's baptismal which the operatives had added a solution to that made the water within it capable of dissolving a human body, ensuring no physical evidence remained. (See [[Phantom Remains|]])
 
 #### Vehicles 
-The vehicles belonging to the congregants were loaded onto car haulers, their VINs changed, and then sold or given away, further erasing any trace of the victims. 
+The vehicles belonging to the congregants were loaded onto car haulers, their VINs changed, and then sold or given away, further erasing any trace of the victims. (See [[Phantom Vehicles|]])
 
-#### Life After Death
-Each victim's death is further obscured by a CIA-devised scheme called "[[Phantom Identity Scheme|]]." The scheme effectively makes  victims appear "alive" after their murder. 
+#### Victims
+Each victim's death is further obscured by a CIA-devised scheme that makes victims appear "alive" after their murder. (See [[Phantom Identity Scheme|]])
 
 #### Fate of Inmates
 The inmates, upon returning to Clayton County Detention Center, were executed with poisonous gas in their cell block, ensuring their silence and eliminating any potential leaks about the operation. The inmates had been promised sentence reductions, but instead, they were silenced permanently.

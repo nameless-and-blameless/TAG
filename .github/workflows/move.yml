@@ -9,15 +9,15 @@ jobs:
 
     steps:
       - name: Checkout repository
-        uses: actions/checkout@v4.1.5
+        uses: actions/checkout@v2
 
       - name: Create data directory
         run: mkdir -p data
 
-      - name: Move directories to data except wiki
+      - name: Move directories to data except wiki and data
         run: |
           for dir in */; do
-            if [ "$dir" != "wiki/" ]; then
+            if [ "$dir" != "wiki/" ] && [ "$dir" != "data/" ]; then
               mv "$dir" data/
             fi
           done
@@ -27,5 +27,5 @@ jobs:
           git config --global user.name 'github-actions'
           git config --global user.email 'github-actions@github.com'
           git add .
-          git commit -m "Move directories to data except wiki"
+          git commit -m "Move directories to data except wiki and data"
           git push

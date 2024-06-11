@@ -1,0 +1,20 @@
+name: Archive Directories
+
+on:
+  workflow_dispatch:
+
+jobs:
+  archive_directories:
+    runs-on: ubuntu-latest
+
+    steps:
+    - name: Checkout repository
+      uses: actions/checkout@v4.1.5
+      
+    - name: Create archive directory
+      run: mkdir -p archive
+      
+    - name: Move directories into archive
+      run: |
+        shopt -s extglob
+        mv !(wiki|archive) archive/

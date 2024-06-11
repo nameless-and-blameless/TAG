@@ -37,61 +37,25 @@ The congregation was already midway through their Sunday morning worship session
 Many congregants called 911 from their mobile phones, describing the horrific scene. They were told help was on the way, but none realized they were speaking with CIA operatives instead of Hamilton County’s Public Safety Answering Point (PSAP)—a centralized facility responsible for answering and routing emergency calls--due to the [[FBI & CIA's Emergency Services Interruption Tactic|Emergency Services Interruption Tactic]]. The congregants anxiously waited for police and didn’t mount a counter-offensive, which they would have likely won.
 
 ### Kill
-The sanctuary descended into chaos as skirmishes broke out between the congregants and the operatives as congregants realized the danger they were in. Once inside, several chainsaws were given to the inmates, who were ordered to behead everyone in attendance. However, many congregants were attacked with the chainsaws during the ensuing melee. As the operatives began to establish control, they started forcibly taking members of the congregation in pairs to the gymnasium of the church's school to be killed. Mothers who had been honored earlier in the service were now horrified as their children were pulled away from them to be killed. The method of execution was brutal and deliberate: the secering of the head using a chainsaw, Jacobsen’s preferred method for such operations. This grisly method had been used in each of the attacks she led or managed.
+The sanctuary descended into chaos as skirmishes broke out between the congregants and the operatives as congregants realized the danger they were in. Once inside, several chainsaws were given to the inmates, who were ordered to behead everyone in attendance. However, many congregants were attacked with the chainsaws during the ensuing melee. As the operatives began to establish control, they started forcibly taking members of the congregation to the back of the church for decapitation. Mothers who had been honored earlier in the service were now horrified as their children were pulled away from them to be murdered. The method of execution was brutal and deliberate: decapitation using a chainsaw, Jacobsen’s preferred method for such operations. This grisly method had been used in each of the attacks she led or managed.
 
 ### Vanish
-#### Body 
-Following the massacre, the bodies of the victims were disposed of using church's baptismal which the operatives had added a solution to that made the water within it capable of dissolving all of the tissues that makeup the human body. The bones were ground to the size of gravel and distributed around the church's property.
+#### Remains  
+Following the massacre, the bodies of the victims were disposed of using church's baptismal which the operatives had added a solution to that made the water within it capable of dissolving a human body, ensuring no physical evidence remained. (See [[Phantom Remains|]])
 
-#### Vehicle
-The vehicles belonging to the congregants were loaded onto car haulers, their VINs changed, and then sold or given away, further erasing any trace of the victims. 
+#### Vehicles 
+The vehicles belonging to the congregants were loaded onto car haulers, their VINs changed, and then sold or given away, further erasing any trace of the victims. (See [[Phantom Vehicles|]])
 
-#### Identity
-Each victim's death is further obscured by a CIA-devised scheme called "[[Phantom Identity Scheme|]]." The scheme effectively makes  victims appear "alive" after their murder. 
+#### Victims
+Each victim's death is further obscured by a CIA-devised scheme that makes victims appear "alive" after their murder. (See [[Phantom Identity Scheme|]])
 
 #### Fate of Inmates
 The inmates, upon returning to Clayton County Detention Center, were executed with poisonous gas in their cell block, ensuring their silence and eliminating any potential leaks about the operation. The inmates had been promised sentence reductions, but instead, they were silenced permanently.
 
-The largest gas chamber designed for terminating human life is located in cell block 8600 within the Clayton County Detention Center. (This information obtained by one of the Creator's servants while on assignment.)
+The largest gas chamber designed for terminating human life is located in cell block 8600 within the Clayton County Detention Center.
 
 ## Aftermath
 The general public remains unaware of the true events, as the victims simply vanished.
 ***
-## Phantom Funeral Activity 
-
-## **Rev. Duke Stone's Phantom Funeral**
-
-### Overview
-- **Event**: Phantom Funeral for Rev. Dr. Duke Stone
-- **Date**: June 7, 2024
-- **Location**: Hickory Valley Christian Church, Chattanooga, Tennessee
-- **Victims**: 649 (92% Caucasian)
-- **Perpetrators**: CIA, Donald J. Trump (in person), Annie Jacobsen (in person)
-- **Operatives**: Jacobsen obtained 25 inmates from the State of Georgia, the same as the Mother's Day Massacre. All were executed after the Phantom Funeral. The inmates who were promised sentence reductions for their assistance with a national security matter, were executed pursuant to Trump's instructions.
-
-### Detailed Events
-
-#### Phantom Funeral Description
-The Phantom Funeral for Rev. Duke Stone, former pastor of Hickory Valley Christian Church and longtime principal of Hamilton Heights Christian Academy, was orchestrated as part of a covert tactic to maintain secrecy and prevent the discovery of the true scale of the massacre at Hickory Valley Christian Church. The CIA told concerned parties that Rev. Stone and his wife were killed in a car accident. The arrangements for her Phantom Funeral were provided for June 8, 2024.
-
-#### Presence of Donald J. Trump
-Former President Donald J. Trump was on site with several Secret Service agents providing security. Mr. Trump observed the murder of many mourners. Some mourners begged him for assistance to escape the massacre. Additionally, some of his Secret Service agents used chainsaws to murder people.
-
-#### Execution of Inmates
-The inmates were executed after the event. They had been promised sentence reductions for their participation in a national security matter but were instead silenced permanently following Trump's direct instructions.
-
-### Tactics and Methods
-
-1. **Emergency Services Interruption Tactic**
-   - **Cellular Communication Interception**: A Cell on Wheels (CoW) intercepted mobile phone signals within the targeted area, redirecting calls to CIA operatives posing as 911 dispatchers. These operatives assured callers that help was on the way while preventing any actual emergency response.
-   - **Memorandum for Local Dispatch Procedures Diversion**: A directive from the FBI instructed the local PSAP to refer emergency requests to the FBI, which then acknowledged but took no further action, effectively blocking local emergency intervention.
-
-2. **Body Disposal**
-   - The bodies were disposed of in the church's baptismal using a solution that dissolved them within moments.
-   - Bones were ground to the size of 1" gravel and distributed around the church's property.
-
-3. **Phantom Identity Scheme**
-   - Employed to obscure the deaths and maintain the illusion that the victims were still alive through digital manipulation, financial transactions, public records, and physical impersonation.
-
-### Outcome
-The Phantom Funeral ensured the complete erasure of the victims' true fates. By manipulating emergency responses, disposing of bodies in an untraceable manner, and utilizing the Phantom Identity Scheme, the CIA, with Trump's involvement, maintained operational secrecy and prevented any investigation into the disappearances. The Creator and His two servants remain dedicated to exposing these activities, leveraging eyewitness accounts and other evidence to bring the perpetrators to justice.
+## See Also
+* [[Phantom Funeral of Rev. Duke Stone|]]

@@ -16,5 +16,5 @@ jobs:
       - name: Update Wiki
         uses: OrlovM/Wiki-Action@master
         with:
-          path: TAG.wiki
+          path: wiki
           token: ${{ secrets.GITHUB_TOKEN }}

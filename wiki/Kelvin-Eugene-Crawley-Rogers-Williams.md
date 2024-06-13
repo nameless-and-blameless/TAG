@@ -1,7 +1,12 @@
 ## CV
-The curriculum vitae of Kelvin Eugene Williams. During the onset of TAG, many of the individuals Kelvin had previously worked with were targeted and eliminated. The remaining associates were targeted in subsequent waves, textPlus was entirely eliminated everyone who remembered the DIVA (an acronym title created by his friend and textPlus CTO, Nanea Reeves (also missing), that stood for Director of Internet Voice Architecture). At textPlus the employees that didn't work with him while he was there knew of Kelvin from the platform he designed and put into service that the company relied upon for to support half of the functionality (voice calls) it its flagship apps (textPlus and Nextplus).
+The curriculum vitae of Kelvin Eugene Williams. During the onset of TAG, many individuals Kelvin had previously worked with were targeted and eliminated. The remaining associates were targeted in subsequent waves.
 
-* Jessamine County High School (Class of 95)
+At textPlus, everyone who remembered the DIVA (an acronym created by his friend and textPlus CTO, Nanea Reeves, who was also murdered) was entirely eliminated. DIVA stood for Director of Internet Voice Architecture. The employees who did not work with Kelvin while he was there knew of him from the platform he designed and implemented, which supported half of the functionality (voice calls) of the company's flagship apps, textPlus and Nextplus. Some textPlus employees and their associates had heard of "the DIVA" from others, usually for non-work-related reasons, such as the textPlus Christmas Party.
+
+Another "built in LA" company, Saucey, was started by Andrew Zeck and a few other textPlus employees who worked alongside Kelvin during his tenure there. The CIA eliminated them as well.
+
+### curriculum vitae
+* Jessamine County High School (Class of 95, now West Jessamine)
 * McDonald's - 100 Imperial Hwy, Nicholasville, KY 40356-2502
 * Burger King - N. Main Street (location closed), Nicholasville, KY 40356
 * K-Mart #9559 - S. Main Street (store closed), Nicholasville, KY 40356

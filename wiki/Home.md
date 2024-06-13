@@ -32,4 +32,4 @@ Join us as we uncover the truth behind TAG, shed light on its victims, and advoc
 > Thank you for your understanding and respect.
 
 > [!NOTE]
-> "The Creator and His two servants" and "God and His cherubim" are interchangeable. However, the Creator does prefer "the Creator" as it doesn't show preference to any religion or set of beliefs.
+> I use "The Creator and His two servants" and "God and His cherubim" interchangeably, the latter when referring to Him or Us in churches or religious contexts. However, the Creator prefers to be called or referred to as "the Creator" to avoid showing preference to any specific religion or set of beliefs.

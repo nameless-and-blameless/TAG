@@ -11,7 +11,7 @@ Another "built in LA" company, Saucey, was started by Andrew Zeck and a few othe
 * Burger King - N. Main Street (location closed), Nicholasville, KY 40356
 * K-Mart #9559 - S. Main Street (store closed), Nicholasville, KY 40356
 * McLane Cumberland - 1040 Baker Lane, Nicholasville, KY 40356
-* Tanbark Nursing Home (under previous owner) Man O' War Blvd, Lexington, KY
+* Christian Health Nursing Home (off Man O' War Blvd) Lexington, KY
 * Royal Manor Nursing Home, Nicholasville, KY
 * Anthem Blue Cross & Blue Shield, Aegon Center, Louisville, KY
 * International Ink Company, Gainesville, GA

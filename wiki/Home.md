@@ -1,8 +1,7 @@
 Welcome to The American Genocide (TAG) wiki, where we reveal the harrowing reality of a hidden tragedy unfolding before our eyes. TAG is not just a name; it's a stark representation of the systematic eradication of individuals across the United States. 
 
 > [!NOTE]
-> Book of Revelation == TRUE
-> End of Life == FALSE
+> "Book of Revelation" == TRUE && "End of Life" == FALSE
 
 Defined by traditional standards, TAG is indeed a genocide, meticulously concealed through a series of Continued Acts of Violence (CAVs). These acts, often executed under the guise of various pretexts, aim to silence dissenting voices and eliminate opposition to the status quo.
 

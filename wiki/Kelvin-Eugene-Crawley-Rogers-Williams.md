@@ -1,4 +1,4 @@
-## CV
+## CV 
 The curriculum vitae of Kelvin Eugene Williams. During the onset of TAG, many individuals Kelvin had previously worked with were targeted and eliminated. The remaining associates were targeted in subsequent waves.
 
 At textPlus, everyone who remembered the DIVA (an acronym created by his friend and textPlus CTO, Nanea Reeves, who was also murdered) was entirely eliminated. DIVA stood for Director of Internet Voice Architecture. The employees who did not work with Kelvin while he was there knew of him from the platform he designed and implemented, which supported half of the functionality (voice calls) of the company's flagship apps, textPlus and Nextplus. Some textPlus employees and their associates had heard of "the DIVA" from others, usually for non-work-related reasons, such as the textPlus Christmas Party.

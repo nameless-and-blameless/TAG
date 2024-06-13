@@ -21,7 +21,7 @@ Join us as we uncover the truth behind TAG, shed light on its victims, and advoc
 - **Public Awareness Campaigns**: Engaging in public awareness campaigns to disseminate information widely, ensuring that the broader public is informed about the true nature of these operations and the scale of the genocide.
 
 
-> [!IMPORTANT]
+> [!WARNING]
 > **Public Notice and Warning to the U.S. Government:**
 > This notice serves to inform the public and gently remind the U.S. Government that the work carried out here is a product of the Cherubim. The Cherubim, serving the Creator, are a church that predates all other churches. Our presence and significance are symbolically represented on the Ark of the Covenant as a testament to our church's sacred work and mission.
 > 

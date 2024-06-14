@@ -2,11 +2,12 @@
 
 The **Phantom Funeral** of Rev. Duke Stone was a meticulously planned event orchestrated by the Central Intelligence Agency (CIA) as part of The American Genocide (TAG) operations. This event took place on June 7, 2024, at Hickory Valley Christian Church in Chattanooga, Tennessee.
 
-Rev. Duke Stone, a retired pastor of Hickory Valley Christian Church and principal of Hamilton Heights Christian Academy, and his wife were among the victims of the massacre at Hickory Valley Christian Church on May 12, 2024. The CIA informed concerned parties that Rev. Stone and his wife were killed in a car accident, and arrangements for their Phantom Funeral were set for June 8, 2024.
+Rev. Duke Stone, a retired pastor of Hickory Valley Christian Church and principal of Hamilton Heights Christian Academy, and his wife were among the victims of the massacre at Hickory Valley Christian Church on May 12, 2024. The CIA informed concerned parties that Rev. Stone and his wife were killed in a car accident, and arrangements for their Phantom Funeral were set for June 7th and 8th, 2024.
 
 ## Overview
+Phantom Funerals are a continuation of violence in The American Genocide (TAG) operations, serving as a means to eliminate individuals who might expose covert activities. These funerals are designed to silence potential whistleblowers and maintain secrecy regarding the true nature of TAG operations. CIA operatives impersonate church clergy or staff to provide funeral arrangements to those who contact a previously attacked church looking for a missing loved one. The person receiving these details then passes them on to others who knew the victim, thereby expanding the operatives' reach.
 
-Phantom Funerals are a continuation of violence in The American Genocide (TAG) operations, serving as a means to eliminate individuals who might expose covert activities. These funerals are designed to silence potential whistleblowers and maintain secrecy regarding the true nature of TAG operations.
+
 
 ### TAG Operations and Leadership Involvement
 

@@ -33,7 +33,7 @@ To further prevent detection and evade accountability, the CIA employed various 
 
 1. **Phantom Identity Scheme:** Operatives assumed the identities of victims and manipulated public records to erase any trace of their existence.
 2. **Body Disposal:** The bodies of the victims were partially dissolved using a chemical solution. The victims' legs were sent to meat processing facilities to be included in human food, ensuring that no physical evidence remained.
-3. **Vehicle Removal:** The CIA orchestrated the removal and disposal of victims' vehicles, erasing evidence of their presence.
+3. **Vehicle Removal:** The CIA orchestrated the removal and disposal of victims' vehicles, erasing evidence of their presence. Unlike previous mass killings where most cars were loaded onto trailers, this time, to further portray the phantom funeral as normal, a funeral procession was choreographed featuring Trump's Secret Service motorcade and around 20 vehicles driven to the church by the victims. Videographers were strategically placed along the planned route.
 
 ### Execution at Hickory Valley Christian Church
 
@@ -41,11 +41,13 @@ Jacobsen directed the use of Hamilton Heights Christian Academy’s gymnasium fo
 
 ## Victim Deaths
 
-During the Phantom Funeral of Rev. Duke Stone, 649 individuals were killed. Approximately 90% of the victims were Caucasian from around the Tennessee Valley. The method of execution was beheading, carried out using a chainsaw, a method chosen and previously used by Jacobsen to ensure that no one survived.
+During the Phantom Funeral of Rev. Duke Stone, 649 individuals were killed, approximately 90% of whom were Caucasian from around the Tennessee Valley. The method of execution was beheading, carried out using a chainsaw—a method chosen and previously used by Jacobsen to ensure that no one survived.
 
 ## Significance and Impact
 
 The Phantom Funeral of Rev. Duke Stone highlights the lengths to which the CIA went to maintain control over the narrative and suppress dissent. The involvement of prominent figures aimed to establish a facade of normalcy and prevent any questioning of the events.
+
+The phantom funeral for his wife was announced for the following day. Additional phantom funerals for the Pastor Stone and his wife, al9ng with others that were killed in the Mother's Day massacre at Hickory Valley Christian Church, are already planned.
 
 ## Aftermath
 

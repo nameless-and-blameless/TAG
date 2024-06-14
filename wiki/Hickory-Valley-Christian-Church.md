@@ -17,12 +17,12 @@ Kelvin Williams, one of the Creator's two servants and a lifelong member of [[Mo
 ## Initial Concerns and Investigations
 
 ### Kelvin Williams' Past Involvement
-Kelvin Williams had a history with Hickory Valley Christian Church. In 2004, he helped upgrade the computer lab at Hamilton Heights Christian Academy, thanks to an introduction by Bonnie Bush Ford, a retired teacher and principal. Bonnie Bush Ford is a cousin of President George H.W. Bush and President George W. Bush. Williams' work inspired students and cemented his relationship with the church and its community.
+Kelvin Williams had a history with Hickory Valley Christian Church. In 2004, he helped upgrade the computer lab at Hamilton Heights Christian Academy, thanks to an introduction by Bonnie Bush Ford, a retired teacher and principal. Bonnie Bush Ford is a cousin of President George H.W. Bush and President George W. Bush. 
 
 Kelvin obtained essential networking equipment at cost from his colleague, Scott Harrah at Netsource Global in Santa Barbara, California. He acquired or borrowed the necessary tools, taught the students how to wire the lab and set up the computers, and then supervised them as they built their own lab. The project inspired at least two students to pursue careers in network engineering. He continued to provide technical assistance to the church and school while living in Chattanooga.
 
 ### The Warning and Response
-Upon receiving Kelvin's warning, Pastor Jack Dyer  consulted with Pastor Duke Stone who attested to Kelvin's credibility and urged Dyer to follow-up on it. Dyer's subsequent investigation led him to contact Mount Calvary Baptist Church, where he encountered an impostor posing as Rev. Dr. Felix G. Williams, III. Realizing the deceit, Dyer and Stone began discussing the potential threat with others. Their actions drew the attention of Annie Jacobsen, who considered the communication a significant risk to exposing covert activities and decided to neutralize it.
+Upon receiving Kelvin's warning, Pastor Jack Dyer consulted with Pastor Duke Stone, who was then retired but still an active member of the church. Stone attested to Kelvin's credibility and urged Dyer to follow up on it. Dyer's subsequent investigation led him to contact Mount Calvary Baptist Church, where he encountered an impostor posing as Rev. Dr. Felix G. Williams, III. Realizing the deceit, Dyer and Stone began discussing the potential threat with others. Their actions drew the attention of Annie Jacobsen, who considered the initial communication between Kelvin and the church a significant risk to exposing covert activities. The fact that they believed Kelvin elevated the risk. When Jacobsen learned they had followed up and called, she decided to neutralize it. Jacobsen waited almost an entire year before launching the attack.
 
 ## Planning the Attack
 

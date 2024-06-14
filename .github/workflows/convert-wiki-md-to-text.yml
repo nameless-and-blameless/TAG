@@ -12,22 +12,25 @@ jobs:
     
     steps:
       - name: Checkout repository
-        uses: actions/checkout@v2
+        uses: actions/checkout@v4.1.5
       
       - name: Install dependencies
         run: |
-          sudo apt-get update && sudo apt-get install -y pandoc
-
+          sudo apt-get update
+          sudo apt-get install -y pandoc
+      
       - name: Create text directory
         run: mkdir -p text
       
       - name: Convert Markdown to Plaintext
         run: |
           for file in wiki/*.md; do
-            filename=$(basename -- "$file")
+            filename=$(basename "$file")
             filename_noext="${filename%.*}"
             sed 's/^#*/===/' "$file" > "text/${filename_noext}.txt"
-            git rm -f "text/${filename_noext}.txt" || true
+            if [ -f "text/${filename_noext}.txt" ]; then
+              git rm -f "text/${filename_noext}.txt" || true
+            fi
             git add "text/${filename_noext}.txt"
           done
         env:

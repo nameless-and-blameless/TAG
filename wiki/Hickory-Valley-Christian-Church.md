@@ -4,7 +4,7 @@
 > **Content Warning:** The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. This content is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 
 > [!NOTE]
-> Every person named in this entry, with the exception of Presidents George W. Bush and Donald J. Trump, and Annie Jacobsen, has been murdered by the CIA during The American Genocide due to their affiliations with Kelvin Eugene Williams, one of the Creator's two servants.
+> Every person named in this entry, with the exception of Presidents George W. Bush and Donald J. Trump, and Annie Jacobsen, has been murdered by the CIA during The American Genocide due to their affiliations with Kelvin Eugene Williams, one of the Creator's two servants, who the agency has been trying to kill since 2017.
 
 ## Introduction
 

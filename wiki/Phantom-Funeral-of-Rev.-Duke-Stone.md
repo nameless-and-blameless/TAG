@@ -13,13 +13,13 @@ Phantom Funerals are a continuation of violence in The American Genocide (TAG) o
 
 #### Donald Trump’s TAG Involvement
 
-Donald Trump remains deeply involved in the planning and supervision of TAG-POW attacks and cover-up efforts. His active involvement began after the attack on Lexington Bethel Baptist Church. Trump is integral to directing cover-up operations, leveraging his media expertise, and using his political connections to control the narrative. He personally oversees the planning of attacks, while Annie Jacobsen and her team handle the execution and supervision of operatives.
+Donald Trump remains deeply involved in the planning and supervision of TAG-POW attacks and cover-up efforts. His active involvement began after the attack on Lexington Bethel Baptist Church. Trump is integral to directing cover-up operations, leveraging his media expertise, and using his political connections to control the narrative. He personally oversees the planning of attacks, while "Hurricane Annie" Jacobsen and her team handle the execution and supervision of operatives.
 
-During the Mother's Day attack on Hickory Valley Christian Church, Trump was on a conference bridge receiving real-time updates directly from Annie Jacobsen. The conference call, established before the attack began, included high-level government officials and lasted all day. Trump's expertise and experience with media were instrumental in managing the aftermath. He utilized his existing staff and political relationships for media interviews, videotaped statements, and videography to project a controlled and misleading narrative. Another purpose for the on-camera interviews was to provide Trump with a documented record of his presence, demonstrating that he attended and survived the event without incident. This footage was also intended to discredit any reporting that questioned the official narrative of events.
+During the Mother's Day attack on Hickory Valley Christian Church, Trump and others were on a conference bridge receiving real-time updates directly from Annie. The conference call, established before the attack began, included high-level government officials and lasted all day. Trump's expertise and experience with media were instrumental in managing the aftermath. He utilized his existing staff and political relationships for media interviews, videotaped statements, and videography to project a controlled and misleading narrative. Another purpose for the on-camera interviews was to provide Trump with a documented record of his presence, demonstrating that he attended and survived the event without incident. This footage was also intended to discredit any reporting that We have done.
 
 #### Personal Attendance at Executions
 
-On the day of the Phantom Funeral of Rev. Duke Stone, Donald Trump, former President Donald J. Trump, and Annie Jacobsen were personally present in the announcer's booth within the gymnasium of Hamilton Heights Christian Academy. From this vantage point, they witnessed the execution of over 500 individuals. Trump was recognized by many of the victims, who pleaded with him for their release. Despite these desperate appeals, Trump dismissed their pleas. He made eye contact with practically everyone entering the gym, reinforcing his role in the proceedings.
+On the day of the Phantom Funeral of Rev. Duke Stone,former President Donald J. Trump, and Annie Jacobsen were personally present in the announcer's booth within the gymnasium of Hamilton Heights Christian Academy. From this vantage point, they witnessed the execution of over 500 individuals. Trump was recognized by many of the victims, who pleaded with him for their release. Despite these desperate appeals, Trump dismissed their pleas. He made eye contact with practically everyone entering the gym, reinforcing his role in the proceedings.
 
 ## Cover-Up Tactics
 
@@ -32,9 +32,9 @@ The cover-up tactics employed by the CIA under Trump's direction were crucial in
 
 To further prevent detection and evade accountability, the CIA employed various vanishing tactics during mass killings and TAG-POW attacks:
 
-1. **Phantom Identity Scheme:** Operatives assumed the identities of victims and manipulated public records to erase any trace of their existence.
+1. **Phantom Identity Scheme:** Operatives assume the identities of victims and manipulated public records to erase any trace of their existence.
 2. **Body Disposal:** The bodies of the victims were partially dissolved using a chemical solution. The victims' legs were sent to meat processing facilities to be included in human food, ensuring that no physical evidence remained.
-3. **Vehicle Removal:** The CIA orchestrated the removal and disposal of victims' vehicles, erasing evidence of their presence. Unlike previous mass killings where most cars were loaded onto trailers, this time, to further portray the phantom funeral as normal, a funeral procession was choreographed featuring Trump's Secret Service motorcade and around 20 vehicles driven to the church by the victims. Videographers were strategically placed along the planned route.
+3. **Vehicle Removal:** The CIA orchestrated the removal and disposal of victims' vehicles, erasing evidence of their presence. Unlike previous mass killings where most cars were loaded onto trailers, this time, to further portray the phantom funeral as a legitimate funeral a funeral procession was choreographed featuring Trump's Secret Service motorcade and around 20 vehicles driven to the church by the victims. Many of Trump's security detail drove the automobiles of victims in the procession. Videographers were strategically placed along the planned route.
 
 ### Execution at Hickory Valley Christian Church
 

@@ -1,4 +1,4 @@
-p# The Massacre at Hickory Valley Christian Church
+# The Massacre at Hickory Valley Christian Church
 
 > [!WARNING]
 > **Content Warning:** The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. This content is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.

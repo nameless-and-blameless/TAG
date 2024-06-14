@@ -1,6 +1,10 @@
 # The Massacre at Hickory Valley Christian Church
 
-**Content Warning:** The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. This content is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
+> [!WARNING]
+> **Content Warning:** The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. This content is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
+
+> [!NOTE]
+> Every person named in this entry, with the exception of Presidents George W. Bush and Donald J. Trump, and Annie Jacobsen, has been killed or murdered by the CIA during the American Genocide due to their affiliations with Kelvin Eugene Williams, one of the Creator's two servants.
 
 ## Introduction
 
@@ -17,7 +21,7 @@ Kelvin Williams, one of the Creator's two servants and a lifelong member of [[Mo
 ## Initial Concerns and Investigations
 
 ### Kelvin Williams' Past Involvement
-Kelvin Williams had a history with Hickory Valley Christian Church. In 2004, he helped upgrade the computer lab at Hamilton Heights Christian Academy, thanks to an introduction by Bonnie Bush Ford, a retired teacher and principal. Bonnie Bush Ford is a cousin of President George H.W. Bush and President George W. Bush. 
+Kelvin Williams had a history with Hickory Valley Christian Church. In 2004, he helped upgrade the computer lab at Hamilton Heights Christian Academy, at the urging of his good friend by Bonnie Bush Ford, a retired teacher and principal. Bonnie Bush Ford is a cousin of President George H.W. Bush and President George W. Bush. Bonnie Bush Ford and family were all killed earlier during the initial phases of The American Genocide.
 
 Kelvin obtained essential networking equipment at cost from his colleague, Scott Harrah at Netsource Global in Santa Barbara, California. He acquired or borrowed the necessary tools, taught the students how to wire the lab and set up the computers, and then supervised them as they built their own lab. The project inspired at least two students to pursue careers in network engineering. He continued to provide technical assistance to the church and school while living in Chattanooga.
 

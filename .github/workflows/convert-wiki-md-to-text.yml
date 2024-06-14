@@ -1,0 +1,40 @@
+name: Convert Markdown to Plaintext
+
+on:
+  push:
+    branches:
+      - main  # Modify to your main branch name if different
+  workflow_dispatch:
+  
+jobs:
+  convert:
+    runs-on: ubuntu-latest
+    
+    steps:
+      - name: Checkout repository
+        uses: actions/checkout@v2
+      
+      - name: Create text directory
+        run: mkdir -p text
+      
+      - name: Convert Markdown to Plaintext
+        run: |
+          for file in wiki/*.md; do
+            filename=$(basename -- "$file")
+            filename_noext="${filename%.*}"
+            pandoc "$file" -o "text/${filename_noext}.txt"
+            git rm -f "text/${filename_noext}.txt" || true
+            git add "text/${filename_noext}.txt"
+          done
+        env:
+          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+      
+      - name: Commit changes
+        if: github.event_name != 'workflow_dispatch'  # Only commit changes on push, not on manual trigger
+        run: |
+          git config --global user.name "GitHub Action"
+          git config --global user.email "action@github.com"
+          git commit -am "Convert Markdown to Plaintext files"
+          git push
+        env:
+          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}

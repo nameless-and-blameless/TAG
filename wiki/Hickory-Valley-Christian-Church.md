@@ -27,7 +27,9 @@ Upon receiving Kelvin's warning, Pastor Jack Dyer consulted with Pastor Duke Sto
 ## Planning the Attack
 
 ### Selection of Operatives
-Annie Jacobsen selected 100 inmates from the Georgia Department of Corrections for the mission. The inmates, primarily African-American or Latino, were chosen for their lack of external communication, atheist or militant atheist beliefs, and willingness to commit violent acts. They were promised sentence reductions or vacated sentences in exchange for their participation. To conceal their true mission, the inmates were told they were being transferred for court appearances.
+Annie Jacobsen selected 100 inmates from the Georgia Department of Corrections for the mission. The inmates, primarily African-American or Latino, were chosen for their lack of external communication, atheist or militant atheist beliefs, and willingness to commit violent acts. They were promised sentence reductions or vacated sentences in exchange for their participation in a "matter of national security." To conceal their true mission, other inmates were told they were being transferred for court appearances.
+
+The use of inmates was orchestrated by Donald J. Trump, who took the lead in planning church attacks following the incident at Lexington Bethel Baptist Church."
 
 ### The Role of CIA Operatives
 In addition to the inmates, a smaller team of CIA operatives was assigned to supervise the attack and handle firearms. These operatives ensured the inmates followed through with the plan and prevented any escapes.

@@ -41,7 +41,7 @@ Jacobsen directed the use of Hamilton Heights Christian Academy’s gymnasium fo
 
 ## Victim Deaths
 
-During the Phantom Funeral of Rev. Duke Stone, 649 individuals were killed. Approximately 90% of the victims were Caucasian from around the Tennessee Valley. The method of execution involved the use of chainsaws, symbolizing the brutality of the attacks.
+During the Phantom Funeral of Rev. Duke Stone, 649 individuals were killed. Approximately 90% of the victims were Caucasian from around the Tennessee Valley. The method of execution was beheading, carried out using a chainsaw, a method chosen and previously used by Jacobsen to ensure that no one survived.
 
 ## Significance and Impact
 

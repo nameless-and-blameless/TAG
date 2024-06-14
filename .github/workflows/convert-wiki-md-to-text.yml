@@ -14,6 +14,10 @@ jobs:
       - name: Checkout repository
         uses: actions/checkout@v2
       
+      - name: Install dependencies
+        run: |
+          sudo apt-get update && sudo apt-get install -y pandoc
+
       - name: Create text directory
         run: mkdir -p text
       
@@ -22,7 +26,7 @@ jobs:
           for file in wiki/*.md; do
             filename=$(basename -- "$file")
             filename_noext="${filename%.*}"
-            pandoc "$file" -o "text/${filename_noext}.txt"
+            sed 's/^#*/===/' "$file" > "text/${filename_noext}.txt"
             git rm -f "text/${filename_noext}.txt" || true
             git add "text/${filename_noext}.txt"
           done

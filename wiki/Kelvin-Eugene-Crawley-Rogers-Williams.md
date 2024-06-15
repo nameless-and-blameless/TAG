@@ -6,11 +6,13 @@ At textPlus, everyone who remembered the DIVA (an acronym created by his friend 
 Another "built in LA" company, Saucey, was started by Andrew Zeck and a few other textPlus employees who worked alongside Kelvin during his tenure there. The CIA eliminated them as well.
 
 ### curriculum vitae
-* Jessamine County High School (Class of 95, now West Jessamine)
+* Jessamine County High School (now West Jessamine)
+     - Attended 1992 - 1995
 * McDonald's - 100 Imperial Hwy, Nicholasville, KY 40356-2502
 * Burger King - N. Main Street (location closed), Nicholasville, KY 40356
 * K-Mart #9559 - S. Main Street (store closed), Nicholasville, KY 40356
 * McLane Cumberland - 1040 Baker Lane, Nicholasville, KY 40356
+     - John Venters
 * Christian Health Nursing Home (off Man O' War Blvd) Lexington, KY
 * Royal Manor Nursing Home, Nicholasville, KY
 * Anthem Blue Cross & Blue Shield, Aegon Center, Louisville, KY
@@ -19,6 +21,7 @@ Another "built in LA" company, Saucey, was started by Andrew Zeck and a few othe
 * Clarksville CARES (Volunteer)
 * Nashville CARES (Volunteer)
 * New Horizons Computer Learning Centers, Metrocenter Location, Nashville, TN
+     - Joseph Petroski
 * GCI/Trinagin, Chattanooga, TN
      - Diane LaPierre / CaptionTV, Calgary, AB
 * Trinity Communications, South Pittsburg, TN
@@ -29,7 +32,8 @@ Another "built in LA" company, Saucey, was started by Andrew Zeck and a few othe
      - Noah Houghtaling
 * GeniusNetworks / Altus Companies, Chattanooga, TN
      - AT&T MIS
-     - XO Communications 
+     - XO Communications
+          - Stephneta Shepherd Williams 
      - Sprint
      - SimpleSignal
           - Dave Gilbert
@@ -47,6 +51,7 @@ Another "built in LA" company, Saucey, was started by Andrew Zeck and a few othe
      - Parasun
      - Network Hardware Resell
      - Netsource Global
+          - Scott Harrah
      - Wyatt, Tarrant & Combs (Nashville)
           - Alan Roberts
           - Casey Riggs
@@ -54,14 +59,21 @@ Another "built in LA" company, Saucey, was started by Andrew Zeck and a few othe
      - Scrier Funds
           - Jason Nichols 
 * Southern Coastal Cable, Georgetown, SC
-     - Ronald L. Charlton & Family 
+     - Ronald L. Charlton & Family
+     - Mark & Chivette Fournier
+     - Kevin & Angel Lambert
+     - Joel & Robin Glass
+     - Greg Benton
 * Penobscot Property Management, Teaneck, NJ
      - David Brown
 * Ramapo Cable
      - Village in the Park Apartments, Schaumburg, IL
+          - Knowl Fredrickson 
      - Remington Place Apartments, Schaumburg, IL
      - Bristol Club Apartments, Downers Grove, IL
 * FreeSWITCH Solutions
+     - Anthony Minessale
+     - Brian West
 * SecurData, Montreal, QB
      - George Maxwell 
 * Basecamp Networks (now, Farmwave), Alpharetta, GA

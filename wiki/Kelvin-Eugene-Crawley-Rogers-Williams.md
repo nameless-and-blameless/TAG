@@ -48,7 +48,11 @@ Another "built in LA" company, Saucey, was started by Andrew Zeck and a few othe
      - Network Hardware Resell
      - Netsource Global
      - Wyatt, Tarrant & Combs (Nashville)
+          - Alan Roberts
+          - Casey Riggs
+          - Michael Capiro
      - Scrier Funds
+          - Jason Nichols 
 * Southern Coastal Cable, Georgetown, SC
      - Ronald L. Charlton & Family 
 * Penobscot Property Management, Teaneck, NJ

@@ -44,11 +44,10 @@ The CIA, in conjunction with other federal agencies, utilizes a multi-faceted ap
 
 - **Manipulation**: They effectively manipulated emergency responses, preventing local authorities from intervening in the covert operation.
 - **Secrecy**: Ensured the secrecy and success of the operation by controlling and stifling emergency communication channels.
-- **Lack of Organized Response**: Victims are unable to coordinate an effective response or call for outside assistance. Without access to 911 or with calls diverted to operatives posing as dispatchers, victims remain isolated and unable to mobilize.
-- **Prevention of Resistance**: The likelihood of victims realizing the deception—calls not reaching actual emergency services—could lead to suspicion and potentially organizing a resistance. Preventing this realization maintains control over the situation and avoids any chance of victims overpowering operatives.
+- **Prevention of Organized Resistance**: By intercepting and rerouting emergency calls, victims are unable to realize their calls are not reaching real emergency services. This prevents them from organizing an effective resistance, reducing the likelihood of coordinated defense or overwhelming the operatives.
 - **Maintaining Operative Safety**: Operatives conducting the covert operations are protected from any immediate threat posed by victims who might otherwise confront them or attempt to defend themselves collectively.
 
-## Outcome
+#### Outcome
 
 These coordinated tactics allowed the CIA and other federal agencies to execute their covert operation in the targeted area without local emergency services interference, maintaining the element of surprise and operational secrecy essential for their mission. By preventing both external intervention and internal organization among victims, these methods ensure the operation's success and the safety of the operatives.
 

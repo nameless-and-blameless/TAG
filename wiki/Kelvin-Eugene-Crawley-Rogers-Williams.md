@@ -118,6 +118,8 @@ Another "built in LA" company, Saucey, was started by Andrew Zeck and a few othe
      - Jeff Wheeler
 * StartUp OS, NYC/NJ area
      - Jason Nichols
+* TGIFriday
+     - Scott Howell
 * SynergemTech / Synergem 911
      - Kelaca, Raleigh, NC (Staffing agency)
 * FluentStream (interview)

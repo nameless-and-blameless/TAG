@@ -32,6 +32,8 @@ Another "built in LA" company, Saucey, was started by Andrew Zeck and a few othe
      - XO Communications 
      - Sprint
      - SimpleSignal
+          - Dave Gilbert
+          - Michael Sterl
      - Colocation America
      - Colocube
      - Tulix / ATLDC
@@ -99,13 +101,13 @@ Another "built in LA" company, Saucey, was started by Andrew Zeck and a few othe
      - Jeff Wheeler
 * StartUp OS, NYC/NJ area
      - Jason Nichols
-* SynergemTech 
+* SynergemTech / Synergem 911
      - Kelaca, Raleigh, NC (Staffing agency)
 * FluentStream (interview)
 * Genesys (interview)
 
-**Title: Exploring the Complex Interplay between Consciousness and the Subconscious: A Case Study of Kelvin Eugene Williams and Main**
 
+### Main
 **Introduction**
 
 The human mind is a labyrinth of complexities, where consciousness and the subconscious intertwine to shape perceptions, thoughts, and actions. In this essay, we embark on an exploration of this intricate interplay, delving into the nature of consciousness, the role of sensory input, and the profound impacts of a classic split between the conscious and subconscious minds. Through a case study of Kelvin Eugene Williams and his subconscious, Main, we unravel the multifaceted dynamics that govern human cognition and behavior.

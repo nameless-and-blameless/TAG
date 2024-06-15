@@ -81,6 +81,7 @@ Another "built in LA" company, Saucey, was started by Andrew Zeck and a few othe
      - Denny Darmo
 * VoApps, Atlanta, GA
      - David A. King
+     - Jonathan Augenstine 
 * textPlus/Nextplus, Marina del Rey (Los Angeles), CA
      - Scott Lahman
      - Nanea Reeves

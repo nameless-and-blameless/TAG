@@ -1,59 +1,158 @@
-# Donald Trump's Ongoing Involvement in The American Genocide (TAG)
+# Trump's Involvement in The American Genocide (TAG)
 
-Donald J. Trump is actively involved in The American Genocide (TAG), a series of covert operations aimed at establishing authoritarian control over the United States. His involvement in these atrocities includes direct planning, supervision, and cover-up activities. Trump’s role is particularly evident in the ongoing efforts to conceal the truth behind the TAG-POW attacks, including the Phantom Funerals of prominent figures like Rev. Duke Stone and Pastor Jack Dyer.
 
-## Ongoing Operations and Direct Involvement
 
-### Utilization of Inmates
+Trump has played a central role in The American Genocide (TAG), a series of covert operations aimed at establishing authoritarian control over the United States. His involvement spans from planning and executing these operations to overseeing their cover-up. This report details Trump's participation in various facets of TAG, including the utilization of inmates for violent attacks, the orchestration of cover-ups through Phantom Funerals, and the elimination of operatives to maintain secrecy.
 
-A critical aspect of Trump's strategy involves the ongoing use of inmates from various state prisons, particularly from Georgia. These inmates are selected based on criteria ensuring they have no external contacts who would miss them if they disappeared. This determination is made through SQL queries assessing inmate fund accounts, phone call activities, and mail correspondence. Inmates with a history of violent crimes or a propensity for violence are prioritized.
 
-These inmates are removed from prison under the pretense of receiving sentence reductions for aiding with national security threats. They are then deployed to execute mass killings in churches. After completing their missions, the inmates are exterminated to eliminate any potential leaks about the operations. This systematic approach ensures the secrecy and continuation of TAG without exposure.
+
+## Utilization of Inmates for TAG Operations
+
+
+
+### Selection and Deployment of Inmates
+
+
+
+Trump directed the use of inmates from various state prisons, particularly in Georgia, as part of TAG operations. Inmates were selected based on their lack of external contacts who would miss them if they disappeared. Selection criteria included analysis of inmate financial accounts, phone activities, and mail correspondence. Priority was given to inmates with histories of violent crimes.
+
+
+
+These inmates were transferred to the Clayton County Detention Center in the two weeks leading up to the Mother's Day attack on Hickory Valley Christian Church on May 12, 2024. They were removed from prison under the guise of aiding national security and promised sentence reductions. Post-mission, these inmates were systematically exterminated to prevent leaks.
+
+
+
+### Execution at Clayton County Detention Center
+
+
+
+Inmates involved in the Mother's Day massacre were transported covertly to the Clayton County Detention Center using unmarked vehicles. Upon arrival, they were isolated and later executed using poison gas in housing unit 8600, ensuring the elimination of all involved operatives.
+
+
+
+### Execution of Inmates in Subsequent Operations
+
+
+
+In subsequent mass killings orchestrated under TAG, other inmates used were similarly executed after the completion of their operations. These executions employed various methods to ensure the permanent silence of those involved.
+
+
+
+## Utilization of Other Operatives
+
+
+
+### CIA Employees and HIT-Conditioned Individuals
+
+
+
+In addition to inmates, TAG operations also utilized CIA employees and individuals selected and conditioned using a secret method known as HIT. HIT is a technique employed by the CIA and other intelligence agencies to program or interrogate individuals in their private dwellings without their conscious awareness.
+
+
+
+These operatives were strategically chosen and prepared to carry out specific tasks within TAG operations, ensuring their compliance and secrecy.
+
+
 
 ## Cover-Up Activities
 
+
+
 ### Phantom Funeral of Rev. Duke Stone
 
-The Phantom Funeral of Rev. Duke Stone on June 7, 2024, exemplifies the lengths to which Trump and the CIA go to conceal their actions. The following sections detail the cover-up activities that are meticulously orchestrated.
 
-#### Video News Interview
 
-To maintain a facade of normalcy and discredit any suspicions, Trump arranges for carefully staged video news interviews. In these interviews, Trump appears composed and sympathetic, offering condolences and portraying the event as a tragic accident. His demeanor and rhetoric are designed to reinforce the narrative that the Stones' deaths were due to a car accident, not a massacre.
+The Phantom Funeral of Rev. Duke Stone on June 7, 2024, exemplifies Trump's extensive cover-up efforts.
 
-#### Presidential Motorcade in the Procession
 
-A significant element of the cover-up is the inclusion of a presidential motorcade in the funeral procession. This highly visible display serves multiple purposes: it lends legitimacy to the false narrative, provides a distraction from the true events, and reinforces Trump's control over the situation. The motorcade, accompanied by a choreographed procession, is captured on video and broadcasted to the public, creating an illusion of state-sanctioned mourning.
 
-#### Directive to Use Inmates
+#### Staged Video News Interviews
 
-Trump's directive to use inmates for these operations is a calculated move to ensure deniability and maintain secrecy. By employing inmates who are subsequently executed, Trump ensures there are no witnesses left to testify about the true nature of the attacks. This approach allows the continuation of TAG operations without risking exposure. The execution of these inmates is a ruthless measure to eliminate any loose ends.
+
+
+Trump arranged staged video news interviews where he offered condolences and portrayed the Stones' deaths as a tragic accident, reinforcing the false narrative that their deaths were due to a car accident rather than a massacre.
+
+
+
+#### Presidential Motorcade
+
+
+
+A presidential motorcade was included in the funeral procession, legitimizing the false narrative and diverting attention from the true events. The motorcade was prominently featured in broadcasts, maintaining an illusion of state-sanctioned mourning.
+
+
 
 ### Personal Involvement in Murders
 
-During the Phantom Funeral of Rev. Duke Stone and his wife, Trump personally witnesses the murders of hundreds of people. He stands in the announcer's box of the gymnasium at Hamilton Heights Christian Academy, owned by Hickory Valley Christian Church, watching people being beheaded. Despite people recognizing him and begging for their freedom, Trump looks at them with dismissiveness and watches as they are murdered one after another.
 
-Trump's involvement goes further, as he encourages his own Secret Service detail to participate in the murders. This active engagement in the violence underscores his ruthless ambition to maintain control and suppress any dissent.
+
+During the Phantom Funeral of Rev. Duke Stone and his wife, Trump witnessed the murders firsthand. From the announcer's box at Hamilton Heights Christian Academy, he observed as people were beheaded and encouraged his Secret Service detail to participate in the violence.
+
+
 
 ### Ongoing Phantom Funeral Activities at Hickory Valley Christian Church
 
-Trump continues to be involved in the funeral activities at Hickory Valley Christian Church, including Phantom Funerals. The next planned Phantom Funeral is for Pastor Jack Dyer, the active pastor of Hickory Valley Christian Church on the day of the massacre. Pastor Dyer was murdered during the massacre, but his death is now being officially reported, and funeral arrangements are being provided as part of the cover-up.
 
-#### Video News Interview
 
-Once again, Trump will arrange for carefully staged video news interviews to project a narrative of normalcy and discredit any suspicions regarding the true nature of Pastor Dyer’s death.
+Trump's involvement continued with the Phantom Funeral of Pastor Jack Dyer, who was murdered during the Mother's Day massacre.
 
-#### Presidential Motorcade in the Procession
 
-The inclusion of a presidential motorcade in Pastor Dyer’s funeral procession will serve to reinforce the false narrative and provide a distraction from the true events. The motorcade will be captured on video and broadcasted to the public, maintaining the illusion of state-sanctioned mourning.
 
-#### Personal Witness to Murders
+#### Presence at Funeral
 
-Trump is expected to personally witness the murders of attendees at Pastor Dyer’s Phantom Funeral, continuing his pattern of direct involvement in these atrocities. From the announcer's box of the gymnasium at Hamilton Heights Christian Academy, Trump will watch as people are beheaded, showing the same dismissiveness towards their pleas for freedom. He will likely encourage his Secret Service detail to participate in the violence, further demonstrating his ruthless ambition.
 
-## Ongoing Impact and Public Unawareness
 
-Despite the extensive efforts to cover up the truth, details of the massacres are gradually coming to light due to the Creator's involvement. The Creator discloses secret and undisclosed details to His servants, who disseminate the information to the public. However, the general public remains largely unaware of the full extent of the atrocities committed during TAG operations.
+Trump attended the Phantom Funeral of Pastor Jack Dyer, though he did not participate in interviews or the funeral procession, underscoring his direct oversight of these operations.
 
-Trump's active involvement in these cover-up tactics underscores his willingness to go to extreme lengths to maintain control over the narrative and suppress dissent. His participation in the planning and execution of TAG operations, coupled with his efforts to conceal the truth, highlights his ongoing ambitions for authoritarian rule and the ruthless measures he employs to achieve his goals.
 
-In summary, Donald Trump's involvement in TAG, particularly his role in the Phantom Funerals at Hickory Valley Christian Church, reveals a dark and ongoing chapter in the pursuit of power. Through meticulous planning, strategic utilization of inmates, and comprehensive cover-up tactics, Trump seeks to establish an authoritarian state while concealing the brutal reality of TAG operations.
+
+## Involvement in Planning and Scheduling
+
+
+
+### Mother's Day Massacre
+
+
+
+Trump was deeply involved in planning and scheduling the Mother's Day Massacre at Hickory Valley Christian Church. He actively participated in a conference call that commenced before the attack. Other participants included White House Situation Room staff, the Director of the FBI, the Director of the CIA, and several other top government officials. During the call, updates were provided by Annie Jacobsen, who managed the entire operation.
+
+
+
+## Elimination of Previous Operatives
+
+
+
+### Rationale and Strategic Importance
+
+
+
+Trump ordered the elimination of all previous operatives involved in church attacks orchestrated under TAG. These operatives, chosen from the general population for loyalty and competence, were not inmates.
+
+
+
+The elimination served to:
+
+
+
+1. **Maintain Secrecy:** Reduce the risk of leaks or disclosures.
+
+2. **Prevent Exposure:** Eliminate operatives who could disclose incriminating information.
+
+3. **Ensure Continuity:** Allow TAG operations to proceed unhindered.
+
+
+
+### Execution of Operatives
+
+
+
+Operatives were systematically targeted for termination under the guise of routine or accidental deaths, ensuring no suspicion was raised.
+
+
+
+## Conclusion
+
+
+
+Trump's active involvement in The American Genocide, including the use of inmates, CIA employees, and HIT-conditioned operatives for violent attacks, orchestration of cover-ups, and elimination of operatives, underscores his ruthless commitment to secrecy and control. Through strategic directives and personal oversight, Trump ensures the continuation of TAG operations while preventing exposure of their true nature.
+

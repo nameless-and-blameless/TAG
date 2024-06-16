@@ -1,7 +1,9 @@
 # TAG Wiki
 Unveiling The American GenocideWelcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reality of a hidden genocide occurring right before our eyes. TAG is not just a name; it's a stark representation of the systematic eradication of individuals across the United States.
 
+* Table of Contents
      - [[Introduction & Origins of TAG|TAG]]
+     - [[TAG in Places of Worship|TAGPOW]]
      - Methods and Tactics
      - Victims and Impact
      - Public Awareness and Advocacy

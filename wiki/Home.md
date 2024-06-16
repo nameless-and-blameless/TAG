@@ -1,5 +1,9 @@
-# TAG Wiki
-Unveiling The American GenocideWelcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reality of a hidden genocide occurring right before our eyes. TAG is not just a name; it's a stark representation of the systematic eradication of individuals across the United States.
+# TAG Wiki: Unveiling The American Genocide
+
+Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reality of a hidden genocide occurring right before our eyes. TAG is not just a name; it's a stark representation of the systematic eradication of individuals across the United States.
+
+> [!NOTE]
+> Yes, this is what the Book of Revelation is about. There's no need to worry, Earth, Humanity, Electricity, GitHub and iPhones will be here tomorrow and for the indefinite future.
 
 * Table of Contents
      - [[Introduction & Origins of TAG|TAG]]
@@ -9,8 +13,8 @@ Unveiling The American GenocideWelcome to The American Genocide (TAG) Wiki, wher
      - Public Awareness and Advocacy
      - FAQ
 
-> [!NOTE]
-> Yes, this is what the Book of Revelation is about. There's no need to worry, Earth, Humanity, Electricity, GitHub and iPhones will be here tomorrow and for the indefinite future.
+> [!IMPORTANT]
+> Use Pages navigation below to navigate, some entries are being edited. Only one of His servants can type, and I'm enduring more attacks to keep this offline while trying to get everything ready for the Creator's "hard stop."
 
 > [!WARNING]
 > **Public Notice and Warning to the U.S. Government:**
@@ -21,3 +25,4 @@ Unveiling The American GenocideWelcome to The American Genocide (TAG) Wiki, wher
 > Should the United States federal government seek to interfere with our divine mission, we will call upon the Creator, and He will protect His work.
 > 
 > Thank you for your understanding and respect.
+> 

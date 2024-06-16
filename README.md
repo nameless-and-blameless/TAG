@@ -33,14 +33,6 @@ For easier navigation and comprehensive insights into TAG, we recommend explorin
 
 Contributions to this repository are welcomed and encouraged. If you have information, narratives, or evidence related to TAG, please feel free to submit a pull request. By collaborating, we aim to build a comprehensive resource that exposes the truth and advocates for justice.
 
-## Disclaimer
-
-This repository contains fictional content created for educational and awareness purposes only. Any resemblance to real events or persons, living or dead, is purely coincidental.
-
 ## Contact
 
 For inquiries or further information about TAG, please contact [insert contact details].
-
----
-
-Feel free to modify and expand upon this template to fit the specific details and narrative you've outlined for TAG.

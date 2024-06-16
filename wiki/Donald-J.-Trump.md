@@ -1,6 +1,6 @@
 # Trump's Involvement in The American Genocide (TAG)
 
-Donald Trump has played a central role in The American Genocide (TAG), a series of covert operations aimed at establishing authoritarian control over the United States. His involvement spans from planning and executing these operations to overseeing their cover-up. This report details Trump's participation in various facets of TAG, including the utilization of inmates for violent attacks, the orchestration of cover-ups through Phantom Funerals, and the elimination of operatives to maintain secrecy.
+Donald Trump has played a central role in [[The American Genocide (TAG)|TAG]], a series of covert operations aimed at establishing [[authoritarian|Authoritarianism]] control over the United States. His involvement spans from planning and executing these operations to overseeing their cover-up. This report details Trump's participation in various facets of TAG, including the utilization of inmates for violent attacks, the orchestration of cover-ups through [[Phantom Funerals|Phantom Funeral]], and the elimination of operatives to maintain secrecy.
 
 ## Utilization of Inmates for TAG Operations
 
@@ -8,11 +8,11 @@ Donald Trump has played a central role in The American Genocide (TAG), a series 
 
 Trump directed the use of inmates from various state prisons, particularly in Georgia, as part of TAG operations. Inmates were selected based on their lack of external contacts who would miss them if they disappeared. Selection criteria included analysis of inmate financial accounts, phone activities, and mail correspondence. Priority was given to inmates with histories of violent crimes.
 
-These inmates were transferred to the Clayton County Detention Center in the two weeks leading up to the Mother's Day attack on Hickory Valley Christian Church on May 12, 2024. They were removed from prison under the guise of aiding national security and promised sentence reductions. Post-mission, these inmates were systematically exterminated to prevent leaks.
+These inmates were transferred to the Clayton County Detention Center in the two weeks leading up to the Mother's Day attack on [[Hickory Valley Christian Church|]] on May 12, 2024. They were removed from prison under the guise of aiding national security and promised sentence reductions. Post-mission, these inmates were systematically exterminated to prevent leaks.
 
 ### Execution at Clayton County Detention Center
 
-Inmates involved in the Mother's Day massacre were transported covertly to the Clayton County Detention Center using unmarked vehicles. Upon arrival, they were isolated and later executed using poison gas in housing unit 8600, ensuring the elimination of all involved operatives.
+Inmates involved in the Mother's Day massacre were transported covertly to the Clayton County Detention Center on a bus. Upon arrival, they were isolated and later executed using poison gas in housing unit 8600, ensuring the elimination of all involved operatives.
 
 ### Execution of Inmates in Subsequent Operations
 
@@ -22,7 +22,7 @@ In subsequent mass killings orchestrated under TAG, other inmates used were simi
 
 ### CIA Employees and HIT-Conditioned Individuals
 
-In addition to inmates, TAG operations also utilized CIA employees and individuals selected and conditioned using a secret method known as HIT. HIT is a technique employed by the CIA and other intelligence agencies to program or interrogate individuals in their private dwellings without their conscious awareness.
+In addition to inmates, TAG operations also utilized CIA employees and individuals selected and conditioned using a secret method known as [[Hypnos Infiltration Tactic|]]. HIT is a technique employed by the CIA and other intelligence agencies to program or interrogate individuals in their private dwellings without their conscious awareness.
 
 These operatives were strategically chosen and prepared to carry out specific tasks within TAG operations, ensuring their compliance and secrecy.
 
@@ -30,7 +30,9 @@ These operatives were strategically chosen and prepared to carry out specific ta
 
 ### Phantom Funeral of Rev. Duke Stone
 
-The Phantom Funeral of Rev. Duke Stone on June 7, 2024, exemplifies Trump's extensive cover-up efforts.
+The [[Phantom Funeral of Rev. Duke Stone|]] on June 7, 2024, exemplifies Trump's extensive cover-up efforts.
+
+Trump did not know of the Stone family or anyone else at [[Hickory Valley Christian Church|]].
 
 #### Staged Video News Interviews
 
@@ -42,15 +44,15 @@ A presidential motorcade was included in the funeral procession, legitimizing th
 
 ### Phantom Funeral at Mount Zion Baptist Church
 
-At Trump's insistence, on Saturday, June 15, 2024, a Phantom Funeral was held for numerous decedents at Mount Zion Baptist Church in Versailles, KY. Mount Zion had previously suffered a TAG-POW attack in 2023.
+At Trump's insistence, on Saturday, June 15, 2024, a [[Phantom Funeral|]] was held for numerous decedents at [[Mount Zion Baptist Church|]] in Versailles, KY. Mount Zion had previously suffered a TAG-POW attack in 2023.
 
 #### Utilization of Previous Operatives
 
-The phantom funeral used operatives from previous TAG-POW attacks. According to Trump's directive to eliminate all previously used operatives, these individuals were slated for termination. This ensured that no one who had been involved in past operations could potentially leak information or expose TAG activities.
+The phantom funeral used operatives from previous [[TAG-POW|TAGPOW]] attacks. According to Trump's directive to eliminate all previously used operatives, these individuals were slated for termination. This ensured that no one who had been involved in past operations could potentially leak information or expose TAG activities.
 
 #### Conduct of Executions
 
-Trump was present and watched nearly all of the executions. Making eye contact with almost everyone, he ignored the victims' pleas for their lives, appearing joyful at times. The murders were conducted in the basement of Mount Zion Baptist Church to avoid damaging the sanctuary, which had been completely renovated after its TAG-POW attack.
+Trump was present and watched nearly all of the executions. Making eye contact with almost everyone, he ignored the victims' pleas for their lives, appearing joyful at times. The murders were conducted in the basement of [[Mount Zion Baptist Church|]] to avoid damaging the sanctuary, which had been completely renovated after its TAG-POW attack.
 
 ### Staged Photo and Video Shoots
 
@@ -58,13 +60,13 @@ Trump again made himself available for staged photo and video shoots and an inte
 
 ### Personal Involvement in Murders
 
-During the Phantom Funeral of Rev. Duke Stone and his wife, Trump witnessed the murders firsthand. From the announcer's box at Hamilton Heights Christian Academy, he observed as people were beheaded and encouraged his Secret Service detail to participate in the violence.
+During the [[Phantom Funeral|]] of Rev. Duke Stone and his wife, Trump witnessed the murders firsthand. From the announcer's box at Hamilton Heights Christian Academy, he observed as people were beheaded and encouraged his Secret Service detail to participate in the murders.
 
 ## Involvement in Planning and Scheduling
 
 ### Mother's Day Massacre
 
-Trump was deeply involved in planning and scheduling the Mother's Day Massacre at Hickory Valley Christian Church. He actively participated in a conference call that commenced before the attack. Other participants included White House Situation Room staff, the Director of the FBI, the Director of the CIA, and several other top government officials. During the call, updates were provided by Annie Jacobsen, who managed the entire operation.
+Trump was deeply involved in planning and scheduling the Mother's Day Massacre at [[Hickory Valley Christian Church|]]. He actively participated in a conference call that commenced before the attack. Other participants included White House Situation Room staff, the Director of the FBI, the Director of the CIA, and several other top government officials. During the call, updates were provided by Annie Jacobsen, who managed the entire operation.
 
 ## Elimination of Previous Operatives
 
@@ -80,8 +82,8 @@ The elimination served to:
 
 ### Execution of Operatives
 
-Operatives were systematically targeted for termination under the guise of routine or accidental deaths, ensuring no suspicion was raised.
+Operatives are being systematically targeted for termination by long-term CIA personnel based in Atlanta.
 
 ## Conclusion
 
-Trump's active involvement in The American Genocide, including the use of inmates, CIA employees, and HIT-conditioned operatives for violent attacks, orchestration of cover-ups, and elimination of operatives, underscores his ruthless commitment to secrecy and control. Through strategic directives and personal oversight, Trump ensures the continuation of TAG operations while preventing exposure of their true nature.
+Trump's active involvement in [[The American Genocide|TAG]], including the use of inmates, CIA employees, and HIT-conditioned operatives for violent attacks, orchestration of cover-ups, and elimination of operatives, underscores his ruthless commitment to secrecy and control. Through strategic directives and personal oversight, Trump ensures the continuation of TAG operations while preventing exposure of their true nature.

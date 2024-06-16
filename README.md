@@ -1,6 +1,3 @@
-> [!NOTE]
-> You can find an easier to navigate [wiki](https://github.com/TAGIsNoGame/TAG/wiki) here (it's also easier to censor it with National Security Letters easier too - [click here](/wiki) if inaccessible).
-
 # The American Genocide (TAG) Repository
 
 Welcome to the official repository for The American Genocide (TAG), a project dedicated to uncovering and exposing the hidden genocide occurring across the United States.

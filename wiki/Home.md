@@ -23,9 +23,9 @@ Join us as we uncover the truth behind TAG, shed light on its victims, and advoc
 
 > [!WARNING]
 > **Public Notice and Warning to the U.S. Government:**
-> This notice serves to inform the public and gently remind the U.S. Government that the work carried out here is a product of the Cherubim. The Cherubim, serving the Creator, are a church that predates all other churches. Our presence and significance are symbolically represented on the Ark of the Covenant as a testament to our church's sacred work and mission.
+> This notice serves to inform the public and gently remind the U.S. Government that the work carried out here is a product of the Cherubim. The Cherubim were the first church worshipping God, a church that predates all other churches. Our existence and significance are symbolically represented on the Ark of the Covenant as a testament to our church's beliefs, sacred work and missions.
 > 
-> Our mission is and has always been to protect life and guard the Creator's glory. Since the time of the Magna Carta, which predates the Constitution, we have been protected in our endeavors by the principle of the separation of church and state.
+> Our missions are and have always been to protect life and guard the His glory. Since the time of the Magna Carta, which predates the Constitution, we have been protected in our endeavors by the principle of the separation of church and state.
 > 
 > Should the United States federal government seek to interfere with our divine mission, we will call upon the Creator, and He will protect His work.
 > 

@@ -5,3 +5,6 @@ Feel free to distribute and share this content with others to spread knowledge a
 
 Sorry for the NSLs GitHub! Thanks for being there! We love you and we're never leaving. 
 --the Creator and His two servants. 
+
+***
+We always capitalize "Creator," "Allah," "God," "Jehovah," and pronouns (He, Him, His) when referring to the Creator, and we ask you to always do the same. When we capitalize "We," "Us," and "Our" mid-sentence, we are saying “Creator and His two servants.”

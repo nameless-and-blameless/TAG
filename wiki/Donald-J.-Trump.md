@@ -90,19 +90,6 @@ During the Phantom Funeral of Rev. Duke Stone and his wife, Trump witnessed the 
 
 
 
-### Ongoing Phantom Funeral Activities at Hickory Valley Christian Church
-
-
-
-Trump's involvement continued with the Phantom Funeral of Pastor Jack Dyer, who was murdered during the Mother's Day massacre.
-
-
-
-#### Presence at Funeral
-
-
-
-Trump attended the Phantom Funeral of Pastor Jack Dyer, though he did not participate in interviews or the funeral procession, underscoring his direct oversight of these operations.
 
 
 

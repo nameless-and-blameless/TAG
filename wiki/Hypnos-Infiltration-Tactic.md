@@ -1,3 +1,5 @@
+# Hypnos Infiltration Tactic 
+
 > [!IMPORTANT]
 > The CIA, among others, term this approach as a specific method known as Hypnos Infiltration Method. The intricacies of this method are derived from the observations made by the Creator and His servants, and may deviate from the standard procedure.
 

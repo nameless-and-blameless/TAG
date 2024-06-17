@@ -41,7 +41,7 @@ A phantom funeral is a staged event designed to cover up the true nature of deat
 - **Eliminating Evidence:** By staging these events, any potential evidence of the true nature of the deaths is obscured.
 - **Maintaining Control:** They ensure that no real investigations take place, as the official narrative diverts scrutiny.
 
-Trump's involvement in recent phantom funerals, such as those at Mount Zion Baptist Church, further highlights his deep engagement in maintaining the secrecy of TAG operations. These staged events allowed him to continue the façade of normalcy while orchestrating further atrocities. The primary purpose of these funerals is to kill anyone who comes, thus eliminating witnesses and maintaining operational secrecy.
+[[Trump's involvement in recent phantom funerals|Phantom-Funeral-of-Rev.-Duke-Stone]], such as those at [[Hickory Valley Christian Church|]], further highlights his deep engagement in maintaining the secrecy of TAG operations. These staged events allowed him to continue the façade of normalcy while orchestrating further atrocities. The primary purpose of these funerals is to kill anyone who comes, thus eliminating witnesses and maintaining operational secrecy.
 
 **Switching Tactics: From Inmates to Previous Operatives**
 

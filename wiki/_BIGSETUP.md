@@ -1,4 +1,4 @@
-# Exploring the Big Setup: Federal Government's Potential Benefits*
+# Exploring the Big Setup: Federal Government's Potential Benefits
 **Donald J. Trump's Involvement in TAG and TAG-POW Attacks**
 
 **Introduction**

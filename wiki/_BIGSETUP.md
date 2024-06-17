@@ -12,13 +12,13 @@ President Donald J. Trump served as the 45th President of the United States from
 The TAG-POW attacks began with the massacre at Mount Calvary Baptist Church in Lexington, Kentucky, on April 2, 2023. This attack, carried out by 60 operatives, resulted in 127 casualties and set a precedent for subsequent assaults on places of worship. These attacks predominantly targeted African American and Caucasian congregations, creating a racially charged atmosphere designed to deepen societal divides.
 
 The targeted places of worship included:
-1. Mount Calvary Baptist Church, Lexington, Kentucky
-2. Lexington Bethel Baptist Church, Lexington, Kentucky
-3. House of God (Georgetown Street), Lexington, Kentucky
-4. House of God (Broadway), Lexington, Kentucky
-5. Mount Zion Baptist Church, Versailles, Kentucky
-6. Calvary Baptist Church, Lexington, Kentucky
-7. Hickory Valley Christian Church, Chattanooga, Tennessee
+1. [[Mount Calvary Baptist Church|]], Lexington, Kentucky
+2. [[Lexington Bethel Baptist Church|]], Lexington, Kentucky
+3. [[House of God (Georgetown Street)|]], Lexington, Kentucky
+4. [[House of God (Broadway)|]], Lexington, Kentucky
+5. [[Mount Zion Baptist Church|]], Versailles, Kentucky
+6. [[Calvary Baptist Church|]], Lexington, Kentucky
+7. [[Hickory Valley Christian Church|]], Chattanooga, Tennessee
 
 **Why the American Public Has Not Heard of TAG-POW Attacks**
 

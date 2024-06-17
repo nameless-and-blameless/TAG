@@ -1,22 +1,24 @@
-# Exploring the Big Setup: Federal Government's Potential Benefits*
+# Exploring the Big Setup: Federal Government's Potential Benefits
 **Donald J. Trump's Involvement in TAG and TAG-POW Attacks**
 
 **Introduction**
 
 The American Genocide (TAG) represents a series of covert operations aimed at establishing authoritarian control over the United States. Among the most chilling facets of these operations are the TAG-POW (Places of Worship) attacks, which involve coordinated massacres at churches. Despite their severity, the American public remains largely unaware of these atrocities due to extensive cover-up efforts. Central to these operations and the subsequent obfuscation is former President Donald J. Trump. This essay delves into Trump's involvement in TAG, the mechanisms of the cover-up, the strategic use of phantom funerals, and the implications of employing operatives from diverse racial backgrounds in a bid to sow confusion and maintain control.
 
+President Donald J. Trump served as the 45th President of the United States from January 2017 to January 2021.  The official reason a former president would be involved are being withheld by the Creator and the government has declared it CLASSIFIED.  
+
 **Introduction to TAG-POW Attacks**
 
 The TAG-POW attacks began with the massacre at Mount Calvary Baptist Church in Lexington, Kentucky, on April 2, 2023. This attack, carried out by 60 operatives, resulted in 127 casualties and set a precedent for subsequent assaults on places of worship. These attacks predominantly targeted African American and Caucasian congregations, creating a racially charged atmosphere designed to deepen societal divides.
 
 The targeted places of worship included:
-1. Mount Calvary Baptist Church, Lexington, Kentucky
-2. Lexington Bethel Baptist Church, Lexington, Kentucky
-3. House of God (Georgetown Street), Lexington, Kentucky
-4. House of God (Broadway), Lexington, Kentucky
-5. Mount Zion Baptist Church, Versailles, Kentucky
-6. Calvary Baptist Church, Lexington, Kentucky
-7. Hickory Valley Christian Church, Chattanooga, Tennessee
+1. [[Mount Calvary Baptist Church|]], Lexington, Kentucky
+2. [[Lexington Bethel Baptist Church|]], Lexington, Kentucky
+3. [[House of God (Georgetown Street)|]], Lexington, Kentucky
+4. [[House of God (Broadway)|]], Lexington, Kentucky
+5. [[Mount Zion Baptist Church|]], Versailles, Kentucky
+6. [[Calvary Baptist Church|]], Lexington, Kentucky
+7. [[Hickory Valley Christian Church|]], Chattanooga, Tennessee
 
 **Why the American Public Has Not Heard of TAG-POW Attacks**
 

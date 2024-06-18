@@ -22,7 +22,7 @@ These massacres are each part of a series of coordinated attacks on places of wo
   - **Casualties**: 127
   - **Aftermath**: Significant damage to the sanctuary, with services being taken over by operatives.
 
-#### 2. Attack on Lexington Bethel Baptist Church
+#### 2. Massacre on Lexington Bethel Baptist Church
 - **Location**: 4686 Todds Road, Lexington, Kentucky
 - **Congregation**: Predominantly Caucasian
 - **Reason for Targeting**: To prevent discussions of the previous attack at Mount Calvary Baptist Church.
@@ -35,7 +35,7 @@ These massacres are each part of a series of coordinated attacks on places of wo
   - **Casualties**: 250+
   - **Aftermath**: Extensive damage and complete disruption of church services.
 
-#### 3. Attack on House of God (Georgetown Street)
+#### 3. Massacre on House of God (Georgetown Street)
 - **Location**: Georgetown Street, Lexington, Kentucky
 - **Congregation**: Predominantly African American
 - **Reason for Targeting**: Mount Calvary Baptist Church's longtime Minister of Music & organist worshipped here.
@@ -48,7 +48,7 @@ These massacres are each part of a series of coordinated attacks on places of wo
   - **Casualties**: 300+
   - **Aftermath**: Extensive damage and disruption.
 
-#### 4. Attack on House of God (Broadway)
+#### 4. Massacre on House of God (Broadway)
 - **Location**: Broadway, Lexington, Kentucky
 - **Congregation**: Predominantly African American
 - **Reason for Targeting**: Suspected ties with the targeted House of God on Georgetown Street.
@@ -61,7 +61,7 @@ These massacres are each part of a series of coordinated attacks on places of wo
   - **Casualties**: 300+
   - **Aftermath**: Extensive damage and disruption.
 
-#### 5. Attack on Mount Zion Baptist Church
+#### 5. Massacre on Mount Zion Baptist Church
 - **Location**: Versailles, Kentucky
 - **Congregation**: Predominantly African American
 - **Reason for Targeting**: Suspected ties with Mount Calvary Baptist Church based on flawed intelligence.
@@ -77,7 +77,7 @@ These massacres are each part of a series of coordinated attacks on places of wo
     - Complete restoration of sanctuary by the CIA
     - Referred to as the "Woodford Reserve" by the CIA in threat
 
-#### 6. Attack on Calvary Baptist Church
+#### 6. Massacre on Calvary Baptist Church
 - **Location**: High Street, Lexington, Kentucky
 - **Congregation**: Predominantly Caucasian
 - **Reason for Targeting**: Kelvin Williams' connection to the church's daycare program in the early '80s.
@@ -92,7 +92,7 @@ These massacres are each part of a series of coordinated attacks on places of wo
     - Damages: Extensive damage to sanctuary
     - Services Impacted: Complete disruption of preschool and children's services
 
-#### 7. Attack on Hickory Valley Christian Church
+#### 7. Massacre on Hickory Valley Christian Church
 - **Location**: Shallowford Road, Chattanooga, Tennessee
 - **Congregation**: Predominantly Caucasian, approximately 500 members
 - **Reason for Targeting**: Kelvin Williams' association with Hamilton Heights Christian Academy.

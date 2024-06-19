@@ -29,7 +29,3 @@ For easier navigation and comprehensive insights into TAG, we recommend explorin
 ## Contributing
 
 Contributions to this repository are welcomed and encouraged. If you have information, narratives, or evidence related to TAG, please feel free to submit a pull request. By collaborating, we aim to build a comprehensive resource that exposes the truth and advocates for justice.
-
-## Contact
-
-For inquiries or further information about TAG, please contact [insert contact details].

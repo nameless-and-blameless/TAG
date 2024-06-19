@@ -1,63 +1,71 @@
-# Exploring the Big Setup: Federal Government's Potential Benefits
-**Donald J. Trump's Involvement in TAG and TAG-POW Attacks**
+# The Big Setup
 
-**Introduction**
+## Introduction
 
-The American Genocide (TAG) represents a series of covert operations aimed at establishing authoritarian control over the United States. Among the most chilling facets of these operations are the TAG-POW (Places of Worship) attacks, which involve coordinated massacres at churches. Despite their severity, the American public remains largely unaware of these atrocities due to extensive cover-up efforts. Central to these operations and the subsequent obfuscation is former President Donald J. Trump. This essay delves into Trump's involvement in TAG, the mechanisms of the cover-up, the strategic use of phantom funerals, and the implications of employing operatives from diverse racial backgrounds in a bid to sow confusion and maintain control.
+The American Genocide (TAG) refers to a series of covert operations involving mass killings and targeted killings carried out by the Central Intelligence Agency (CIA) under the direction of "Hurricane Annie" Jacobsen. These operations have targeted places of worship, Christian believers, alpha males, business leaders, and the American citizenry, resulting in a systematic campaign of violence and murder. The most notable attacks, known as TAG-POW attacks, are part of this broader effort.
 
-President Donald J. Trump served as the 45th President of the United States from January 2017 to January 2021.  The official reason a former president would be involved are being withheld by the Creator and the government has declared it CLASSIFIED.  
+Donald J. Trump, the 45th President of the United States, served from January 2017 to January 2021. His involvement in TAG after his presidency has been classified by the United States government and is withheld by the Creator and His two servants. The Creator may authorize its release at any moment.
 
-**Introduction to TAG-POW Attacks**
+## TAG-POW Attacks
 
-The TAG-POW attacks began with the massacre at Mount Calvary Baptist Church in Lexington, Kentucky, on April 2, 2023. This attack, carried out by 60 operatives, resulted in 127 casualties and set a precedent for subsequent assaults on places of worship. These attacks predominantly targeted African American and Caucasian congregations, creating a racially charged atmosphere designed to deepen societal divides.
+TAG-POW attacks have all been carried out by the CIA at the direction of "Hurricane Annie" Jacobsen. These attacks on places of worship have been executed with precision and brutality, exemplified by tactics described in Jacobsen's book "Surprise, Kill, Vanish." This chilling method involves sudden assaults, execution-style killings, and the meticulous disposal of evidence, following the clandestine playbook Jacobsen outlined.
 
-The targeted places of worship included:
-1. [[Mount Calvary Baptist Church|]], Lexington, Kentucky
-2. [[Lexington Bethel Baptist Church|]], Lexington, Kentucky
-3. [[House of God (Georgetown Street)|]], Lexington, Kentucky
-4. [[House of God (Broadway)|]], Lexington, Kentucky
-5. [[Mount Zion Baptist Church|]], Versailles, Kentucky
-6. [[Calvary Baptist Church|]], Lexington, Kentucky
-7. [[Hickory Valley Christian Church|]], Chattanooga, Tennessee
+### List of TAG-POW Attacks
 
-**Why the American Public Has Not Heard of TAG-POW Attacks**
+1. **Massacre at Mount Calvary Baptist Church**
+   - **Location:** 4742 Todds Road, Lexington, Kentucky
+   - **Date:** April 2, 2023
+   - **Casualties:** 127
 
-Despite the severity and frequency of these attacks, the American public remains largely in the dark. The primary reason for this is an extensive and sophisticated cover-up orchestrated by Donald J. Trump and his allies. Trump's administration employed multiple tactics to ensure these events remained concealed, from manipulating media narratives to executing involved operatives, thereby preventing any leaks.
+2. **Attack on Lexington Bethel Baptist Church**
+   - **Date:** April 2023
 
-**Cover-Up and Discrediting Efforts by Donald J. Trump**
+3. **Attack on House of God (Georgetown Street)**
+   - **Date:** May 2023
 
-Trump's efforts to cover up TAG-POW attacks included orchestrating phantom funerals, staged news interviews, and manipulating emergency services. Phantom funerals, in particular, played a crucial role. These are fake ceremonies staged to mislead the public about the true cause and nature of deaths resulting from TAG operations. For instance, the Phantom Funeral of Rev. Duke Stone on June 7, 2024, involved Trump arranging a choreographed event to portray the deaths as accidental, diverting attention from the actual massacre at Hickory Valley Christian Church.
+4. **Attack on House of God (Broadway)**
+   - **Date:** May 2023
 
-During this phantom funeral, Trump participated in a staged news interview and organized a choreographed funeral procession, complete with his presidential motorcade. However, the true purpose of the phantom funeral was far more sinister. Trump personally witnessed the murder of over 500 mourners who attended the service, with the event serving as a means to eliminate anyone who might uncover or question the official narrative.
+5. **Attack on Mount Zion Baptist Church**
+   - **Date:** June 2023
+   - **Casualties:** 183
 
-**Donald J. Trump's Involvement in TAG**
+6. **Attack on Calvary Baptist Church**
+   - **Date:** May 12, 2023
+   - **Casualties:** Over 400
 
-Trump's involvement in TAG extends beyond mere cover-ups. He played an active role in planning and executing these operations. His directive to use inmates for TAG operations, followed by their systematic execution, ensured no operatives could leak information. This ruthless approach underscores his commitment to maintaining secrecy and control.
+7. **Attack on Hickory Valley Christian Church**
+   - **Date:** May 12, 2024
+   - **Casualties:** 1000+
 
-**Phantom Funerals: Definition and Purpose**
+## Why the American Public Has Not Heard of TAG-POW Attacks
 
-A phantom funeral is a staged event designed to cover up the true nature of deaths. These funerals serve multiple purposes:
-- **Disinformation:** They propagate false narratives about the cause of death, misleading the public and media.
-- **Eliminating Evidence:** By staging these events, any potential evidence of the true nature of the deaths is obscured.
-- **Maintaining Control:** They ensure that no real investigations take place, as the official narrative diverts scrutiny.
+Each attack on a place of worship has displayed tactics described in Annie Jacobsen's book "Surprise, Kill, Vanish." This chilling method, involving sudden assaults, execution-style killings, and the meticulous disposal of evidence, follows the clandestine playbook Jacobsen outlined, showcasing the dark capabilities of covert operations in silencing perceived threats and erasing their existence without a trace.
 
-Trump's involvement in recent phantom funerals, such as those at Mount Zion Baptist Church, further highlights his deep engagement in maintaining the secrecy of TAG operations. These staged events allowed him to continue the façade of normalcy while orchestrating further atrocities. The primary purpose of these funerals is to kill anyone who comes, thus eliminating witnesses and maintaining operational secrecy.
+### Cover-Up and Discrediting Efforts by Donald J. Trump
 
-**Switching Tactics: From Inmates to Previous Operatives**
+To prevent public awareness and outcry, the perpetrators of TAG have employed various cover-up tactics. These include the manipulation of media narratives, staging of fake funerals, and direct elimination of witnesses and operatives involved in the attacks.
 
-Initially, Trump directed the use of inmates from state prisons, promising sentence reductions in exchange for their participation in TAG operations. These inmates were later executed to prevent any leaks. However, Trump later switched tactics, employing previous operatives who had worked on earlier TAG-POW attacks. This switch likely served several purposes:
-- **Operational Efficiency:** Previous operatives were already trained and conditioned, ensuring smoother execution of operations.
-- **Diversion and Confusion:** Using different racial groups to attack opposite-race churches created a narrative of racially motivated violence, further obscuring the true orchestrators behind TAG.
+### Phantom Funerals
 
-**Exploring the Big Setup: Federal Government's Potential Benefits**
+Phantom funerals are staged events intended to lure individuals associated with targeted communities into a trap. Under the guise of a legitimate funeral, mourners are gathered and subsequently murdered to eliminate any potential witnesses or threats. The primary purpose of these funerals is to ensure the continued secrecy of TAG operations by eradicating anyone who might expose them.
 
-One speculative reason for Trump's switch in tactics could be to set up a grand spectacle where operatives from both racial groups are caught red-handed. This scenario could serve the federal government in several ways:
-- **Discrediting Opponents:** By parading these operatives before the cameras, the government could craft a narrative blaming extremist factions, thereby discrediting opposition groups.
-- **Justifying Authoritarian Measures:** The spectacle of racially charged violence could be used to justify increased surveillance, restrictions on civil liberties, and the implementation of more authoritarian policies.
-- **Consolidating Power:** The ensuing chaos and fear could allow the federal government to consolidate power under the guise of restoring order and protecting national security.
+#### The Phantom Funeral of Rev. Duke Stone
 
-The planned narrative suggests a tit-for-tat scenario, where a white racist group attacks Mount Calvary Baptist Church, prompting a black group to retaliate against a white church. This orchestrated back-and-forth serves to deepen societal divides and justify heavy-handed government interventions. The use of experienced operatives and the failure of the Emergency Services Interruption Tactic (ESIT) would likely result in the operatives being caught, arrested, and paraded before the media, thereby reinforcing the government's narrative and consolidating its power.
+One notable example is the phantom funeral of Rev. Duke Stone at Hickory Valley Christian Church. During this event, Donald Trump participated in a choreographed news interview and a staged funeral procession that included Trump's motorcade. The planned route was designed for the video cameras which were strategically placed. Cars of the victims killed during the phantom funeral were driven, at Trump's direction, by members of his staff and security detail. Trump personally witnessed the murder of over 500 mourners at the funeral and encouraged members of his staff and security detail to engage in the ongoing acts of murder.
 
-**Conclusion**
+Hickory Valley Christian Church offers a unique space for these phantom funerals. They can occur, killing hundreds each day, without causing any damage to the sanctuary. Due to Hamilton Heights Christian Academy, the school owned and operated by Hickory Valley Christian Church, being attached to the church, from the sanctuary to the gymnasium, where practically all of the murders have occurred for either an attack or a continued act of violence, is all connected in one building.
 
-Donald J. Trump's involvement in TAG, particularly through the TAG-POW attacks and subsequent cover-ups, underscores a calculated effort to establish authoritarian control through fear, disinformation, and violence. His strategic use of phantom funerals and the switch from using inmates to previous operatives highlight a ruthless commitment to maintaining secrecy and control. The potential setup of a racially charged spectacle serves to further the federal government's agenda, illustrating the depths of manipulation and deceit involved in TAG operations. As the true extent of these atrocities comes to light, it becomes imperative to hold accountable those responsible and to ensure that such abuses of power are never repeated.
+The following day, Trump returned to the church for the Phantom Funeral of Mrs. Stone. Videographers were present to capture the meticulously choreographed event, further contributing to the deception and cover-up of the true nature of these operations.
+
+It should be noted that in the phantom funerals for Rev. Stone and Mrs. Stone, no video was taken of the funeral service. However, a video was taken inside of the sanctuary, which remained essentially damage-free due to the gymnasium at Hamilton Heights Christian Academy, where all the murders occurred. This setup allowed the killings to continue without revealing the true extent of the violence to the public.
+
+## Switching from Inmates to Previous Operatives
+
+It is important to note that beginning with the Hickory Valley Christian Church attack on Mother's Day, Trump directed that only inmate operatives, with the exception of the armed operatives who would be senior CIA employees or operatives, should be used. After any operation, the inmates were to be executed. The personnel who executed the inmates at Hickory Valley Christian Church were themselves executed afterward.
+
+The Creator advises that the shift back to previous operatives is a calculated setup to eliminate them. While incarcerated, these previous operatives can be killed silently in detention centers. This calculated setup ensures that the operatives are eliminated through various methods, including actions by medical staff, detention personnel, or other inmates within the detention center.
+
+## Conclusion
+
+The Big Setup reveals the horrifying reality behind TAG and the phantom funerals orchestrated under the direction of Donald Trump. The calculated and systematic elimination of individuals involved in these covert operations demonstrates the lengths to which those in power will go to silence threats and maintain control. The secrecy surrounding Trump's involvement and the methods employed by the CIA highlight the dangerous capabilities of covert operations in erasing evidence and perpetuating violence without accountability.

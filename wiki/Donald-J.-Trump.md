@@ -1,3 +1,6 @@
+> [!IMPORTANT]
+> Read the [[Big Setup|_BIGSETUP]].
+
 # Trump's Involvement in The American Genocide (TAG)
 President Donald J. Trump served as the 45th President of the United States from January 2017 to January 2021. Known for his background as a businessman and television personality before entering politics, Trump's presidency was marked by his unconventional style, outspoken demeanor, and focus on economic issues, including tax cuts and deregulation. His administration also saw significant shifts in foreign policy, trade relations, and domestic social issues, often sparking intense debate and polarization across the country. Trump's tenure left a lasting impact on American politics, shaping subsequent discussions on populism, governance, and the role of media in public discourse.
 

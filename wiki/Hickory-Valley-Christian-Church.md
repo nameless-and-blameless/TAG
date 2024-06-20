@@ -42,7 +42,7 @@ In addition to the inmates, a smaller team of CIA operatives was assigned to sup
 ### Situational Awareness 
 Just before the attack began, a conference bridge was established, connecting various stakeholders including the White House situation room, which provided periodic updates to President Biden, former President [[Donald J. Trump|]], the Director of the FBI, and the Director of the CIA. Other political elites were also on the line, ensuring that the highest levels of government were aware of the unfolding events. Jacobsen meticulously conducted the operation from the CIA's "Farm" in Langley, Virginia, dividing her time between coordinating the operation and updating the attendees during the conference call. Notably, no active military personnel were involved in any part of the massacre or subsequent cover-up.
 
-### The Day of the Massacre
+### Morning of Massacre
 On the morning of May 12, 2024, the inmates were transported to Hickory Valley Christian Church. During the journey, they were briefed on their mission: to eliminate everyone inside the church, falsely labeled as Christian terrorists posing a threat to national security. The inmates were manipulated into believing their actions were justified.
 
 ### The Attack
@@ -60,7 +60,7 @@ The bodies were disposed of using a chemical solution added to the church's bapt
 The vehicles of the congregants were loaded onto car haulers, their VINs changed, and then sold or redistributed, erasing traces of the victims. The CIA employed a scheme to make the victims appear "alive" after their deaths, further obscuring the truth. (See [[Phantom Vehicles|]])
 
 ### Phantom Identity Scheme
-The CIA utilizes the [[Phantom Identity Scheme|]] to obscure the disappearances of murder victims, the scheme makes victims seem alive while enabling the agency to deplete the assets of a victim, identity the associate network of a victim, then at the agency's discretion erase the life of a victim, typically after the victim is the named decedent at a [[Phantom Funeral|]].
+The CIA utilizes the Phantom Identity Scheme to obscure the disappearances of murder victims, making it seem as if they are still alive while enabling the agency to deplete their assets and identify their associate network. The CIA developed this scheme at the onset of TAG to hide its death toll. At the agency's discretion, they can erase the victim's existence, typically after the victim is named the decedent at a Phantom Funeral, which is used to eliminate the associates of the victim and keep the operation secret.
 
 ### Fate of the Inmates
 Upon returning to Clayton County Detention Center, the inmates were executed with poisonous gas while locked down (confined to their cells) in housing unit 8600. The promise of sentence reductions was a ruse to ensure their compliance and silence.

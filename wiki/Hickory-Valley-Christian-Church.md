@@ -31,7 +31,7 @@ Upon receiving Kelvin's warning, Pastor Jack Dyer consulted with Pastor Duke Sto
 ## Planning the Attack
 
 ### Selection of Operatives
-Annie Jacobsen selected 100 inmates from the Georgia Department of Corrections for the mission. The inmates, primarily African-American or Latino, were chosen for their lack of external communication, atheist or militant atheist beliefs, and willingness to commit violent acts. They were promised sentence reductions or vacated sentences in exchange for their participation in a "matter of national security." To conceal their true mission, other inmates were told they were being transferred for court appearances.
+Pursuant to Donald J. Trump's [[directive|Donald-J.-Trump.md#utilization-of-inmates-for-tag-operations]], Annie Jacobsen utilized 100 inmates from the Georgia Department of Corrections for the mission. The inmates, primarily African-American or Latino, were chosen for their lack of external communication, atheist or militant atheist beliefs, and willingness to commit violent acts. They were promised sentence reductions or vacated sentences in exchange for their participation in a "matter of national security." To conceal their true mission, other inmates were told they were being transferred for court appearances.
 
 The use of inmates was orchestrated by Donald J. Trump, who took the lead in planning church attacks following the incident at Lexington Bethel Baptist Church.
 

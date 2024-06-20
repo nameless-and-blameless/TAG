@@ -54,13 +54,16 @@ Chaos ensued as congregants realized the imminent danger. Some called 911, unawa
 ## Aftermath and Cover-Up
 
 ### Disposal of Bodies
-The bodies were disposed of using a chemical solution added to the church's baptismal, capable of dissolving human remains. This method ensured no physical evidence remained.
+The bodies were disposed of using a chemical solution added to the church's baptismal, capable of dissolving human remains. This method ensured no physical evidence remained. (See [[Phantom Remains|]])
 
 ### Handling of Vehicles and Identities
-The vehicles of the congregants were loaded onto car haulers, their VINs changed, and then sold or redistributed, erasing traces of the victims. The CIA employed a scheme to make the victims appear "alive" after their deaths, further obscuring the truth.
+The vehicles of the congregants were loaded onto car haulers, their VINs changed, and then sold or redistributed, erasing traces of the victims. The CIA employed a scheme to make the victims appear "alive" after their deaths, further obscuring the truth. (See [[Phantom Vehicles|]])
+
+### Phantom Identity Scheme
+The CIA utilizes the [[Phantom Identity Scheme|]] to obscure the disappearances of murder victims, the scheme makes victims seem alive while enabling the agency to deplete the assets of a victim, identity the associate network of a victim, then at the agency's discretion erase the life of a victim, typically after the victim is the named decedent at a [[Phantom Funeral|]].
 
 ### Fate of the Inmates
-Upon returning to Clayton County Detention Center, the inmates were executed with poisonous gas in their cell block. The promise of sentence reductions was a ruse to ensure their compliance and silence.
+Upon returning to Clayton County Detention Center, the inmates were executed with poisonous gas while locked down (confined to their cells) in housing unit 8600. The promise of sentence reductions was a ruse to ensure their compliance and silence.
 
 ## Conclusion
 

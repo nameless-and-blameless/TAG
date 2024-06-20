@@ -39,8 +39,8 @@ The use of inmates was orchestrated by Donald J. Trump, who took the lead in pla
 In addition to the inmates, a smaller team of CIA operatives was assigned to supervise the attack and handle firearms. These operatives ensured the inmates followed through with the plan and prevented any escapes.
 
 ## Execution of the Attack
-### The Conference Call
-Just before the attack began, a conference bridge was established, connecting various stakeholders including the White House situation room, which provided periodic updates to President Biden, former President [[Donald J. Trump|Authoritarianism]] himself, the Director of the FBI, and the Director of the CIA. Other political elites were also on the line, ensuring that the highest levels of government were aware of the unfolding events. Jacobsen divided her time between conducting another of her chainsaw symphonies and updating the attendees during the conference call. Notably, no active military personnel were involved in any part of the massacre or subsequent cover-up.
+### Situational Awareness 
+Just before the attack began, a conference bridge was established, connecting various stakeholders including the White House situation room, which provided periodic updates to President Biden, former President [[Donald J. Trump|]], the Director of the FBI, and the Director of the CIA. Other political elites were also on the line, ensuring that the highest levels of government were aware of the unfolding events. Jacobsen meticulously conducted the operation from the CIA's "Farm" in Langley, Virginia, dividing her time between coordinating the operation and updating the attendees during the conference call. Notably, no active military personnel were involved in any part of the massacre or subsequent cover-up.
 
 ### The Day of the Massacre
 On the morning of May 12, 2024, the inmates were transported to Hickory Valley Christian Church. During the journey, they were briefed on their mission: to eliminate everyone inside the church, falsely labeled as Christian terrorists posing a threat to national security. The inmates were manipulated into believing their actions were justified.

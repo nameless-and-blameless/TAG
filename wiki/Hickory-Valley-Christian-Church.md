@@ -60,7 +60,7 @@ The bodies were disposed of using a chemical solution added to the church's bapt
 The vehicles of the congregants were loaded onto car haulers, their VINs changed, and then sold or redistributed, erasing traces of the victims. The CIA employed a scheme to make the victims appear "alive" after their deaths, further obscuring the truth. (See [[Phantom Vehicles|]])
 
 ### Phantom Identity Scheme
-The CIA utilizes the Phantom Identity Scheme to obscure the disappearances of murder victims, making it seem as if they are still alive while enabling the agency to deplete their assets and identify their associate network. The CIA developed this scheme at the onset of TAG to hide its death toll. At the agency's discretion, they can erase the victim's existence, typically after the victim is named the decedent at a Phantom Funeral, which is used to eliminate the associates of the victim and keep the operation secret.
+The CIA utilizes the Phantom Identity Scheme to obscure the disappearances of murder victims, making it seem as if they are still alive while enabling the agency to deplete their assets and identify their associate network. The CIA developed this scheme at the onset of TAG to hide its death toll. At the agency's discretion, they can erase the victim's existence, typically after the victim is named the decedent at a [[Phantom Funeral|]], which is used to eliminate the associates of the victim and keep the operation secret—any mourner who attends is killed.
 
 ### Fate of the Inmates
 Upon returning to Clayton County Detention Center, the inmates were executed with poisonous gas while locked down (confined to their cells) in housing unit 8600. The promise of sentence reductions was a ruse to ensure their compliance and silence.

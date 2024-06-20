@@ -17,7 +17,7 @@ Phantom Remains serve as a crucial component in operations that require absolute
 4. **Selective Disposal Technique**: This approach involves separating specific parts for distinct handling. Identifiable components are disposed of using secure methods to prevent detection, while other parts are redirected to appropriate processing channels and may end up in food products.
 
 > [!NOTE]
-> Perpetrators can and do receive compensation for materials from the remains that are purchased and utilized in food products.
+> Perpetrators can and do receive compensation for materials from the remains that are purchased and utilized in food products. Primus Labs is a preferred purchaser of human remains.
 
 6. **Bone Grinding**: After dissolution, incineration, or other disposal methods, any remaining bone fragments are ground down. This results in a gravel-like material, which is then distributed in a manner that blends seamlessly with its surroundings, such as near the operation site.
 

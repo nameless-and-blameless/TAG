@@ -14,9 +14,12 @@ Phantom Remains serve as a crucial component in operations that require absolute
 
 3. **Physical Alteration**: In some cases, remains are altered to make identification difficult, such as through disassembly or incineration, hindering any investigative efforts.
 
-4. **Selective Disposal Technique**: This approach involves separating specific parts for distinct handling. Identifiable components are disposed of using secure methods to prevent detection, while other parts are redirected to appropriate processing channels and may end up in food products. Note that perpetrators can and do receive compensation for materials from the remains that are purchased and utilized in food products.
+4. **Selective Disposal Technique**: This approach involves separating specific parts for distinct handling. Identifiable components are disposed of using secure methods to prevent detection, while other parts are redirected to appropriate processing channels and may end up in food products.
 
-5. **Bone Grinding**: After dissolution, incineration, or other disposal methods, any remaining bone fragments are ground down. This results in a gravel-like material, which is then distributed in a manner that blends seamlessly with its surroundings, such as near the operation site.
+> [!NOTE]
+> Perpetrators can and do receive compensation for materials from the remains that are purchased and utilized in food products.
+
+6. **Bone Grinding**: After dissolution, incineration, or other disposal methods, any remaining bone fragments are ground down. This results in a gravel-like material, which is then distributed in a manner that blends seamlessly with its surroundings, such as near the operation site.
 
 ## Significance and Impact
 

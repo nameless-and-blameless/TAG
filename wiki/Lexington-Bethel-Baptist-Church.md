@@ -34,7 +34,7 @@ Inside the sanctuary, chaos reigned. Congregants were accosted, beaten, and forc
 
 ### Vanish
 #### Body Disposal 
-The bodies were partially dismembered and the torsos chemically cremated in the baptismal. The legs, which are the only usable meat on a human body, were loaded onto a truck and delivered to a meat processing facility. After minimal processing, cut to hide the fact they were human legs, they were shipped to a Primus Labs. 
+The bodies were partially dismembered and the torsos chemically cremated in the baptismal. (See [[Selective Disposal Technique|Phantom Remains]].)
 
 #### Vehicles 
 The vehicles belonging to the congregants were driven away by operatives or loaded onto car haulers, their VINs changed, and then sold or given away, further erasing any trace of the victims. Almost every vehicle was driven back to Riverdale, Georgia. 

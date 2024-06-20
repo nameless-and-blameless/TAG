@@ -12,7 +12,7 @@ Once again, thank you for your enduring resilience. We look forward to continuin
 
 Thank you,
 
-The Creator and His Two Servants
+The Creator and His two servants
 ***
 # TAG Wiki: Unveiling The American Genocide
 

@@ -18,6 +18,8 @@ Phantom Remains serve as a crucial component in operations that require absolute
 
 > [!NOTE]
 > Perpetrators can and do receive compensation for materials from the remains that are purchased and utilized in food products. Primus Labs is a preferred purchaser of human remains.
+> ![20240620_172736](https://github.com/nameless-and-blameless/TAG/assets/169210208/ba7dfa03-56d7-4c68-bf39-30a93643256b)
+
 
 6. **Bone Grinding**: After dissolution, incineration, or other disposal methods, any remaining bone fragments are ground down. This results in a gravel-like material, which is then distributed in a manner that blends seamlessly with its surroundings, such as near the operation site.
 

@@ -12,11 +12,11 @@ Recent intelligence and credible eyewitness accounts suggest the continuation of
 
 ---
 
----
-
 ### Immediate Threat
 
 **Mount Zion Baptist Church** is identified by our intelligence as the location of an imminent Phantom Funeral within the next day. Law enforcement should be on high alert for any suspicious activity in and around this area.
+
+Our intelligence suggests the sanctuary has been renovated and all killing is now occurring in the basement or other areas on the church's property. Victims are taken by force to the area after entering the sanctuary which is likely staged to appear as if a funeral is occurring.
 
 ---
 

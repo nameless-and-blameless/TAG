@@ -10,6 +10,8 @@ Spark surfaces as a revolutionary concept, designed to restore the human immune 
 
 The prospect of Spark poses a direct threat to pharmaceutical giants, notably Gilead Sciences, and their financial interests. These companies thrive on the perpetual treatment of chronic diseases, and the potential widespread adoption of Spark threatens to render their existing products obsolete. Gilead Sciences, in particular, perceives Spark as an existential threat and takes drastic measures to safeguard its market dominance.
 
+Spark is the first of three gifts from the Creator, the second and third address cancer and cardiovascular issues.
+
 ## Covert Campaigns and Violence
 
 Faced with the perceived threat from Spark, pharmaceutical interests orchestrate a covert campaign to prevent Spark's effectiveness from being discussed or it ever being used by another person. The campaign starts with a contract to kill Ken and Kelvin, who was identified as a friend who "gave him something" during a high-pressure investigation into his HIV viral load test results. Ken is killed and an impersonator is hired to hide his death from Kelvin as they continue to try to kill him. Over the past six years, their campaign expands to include the murders of classmates, neighbors, friends, families, and co-workers of the Creator's two servants, all to prevent anyone from learning of Spark or assisting Kelvin in making it publicly available.

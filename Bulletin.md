@@ -65,8 +65,8 @@ Below is a list of churches where TAG-POW attacks have occurred:
 
 - **Hickory Valley Christian Church, Chattanooga, Tennessee**
 - **Lexington Bethel Baptist Church, Lexington, Kentucky**
-- **Mount Calvary Baptist Church, Springfield, Illinois**
-- **Mount Zion Baptist Church, Cleveland, Ohio**
+- **Mount Calvary Baptist Church, Lexington, Kentucky**
+- **Mount Zion Baptist Church, Versailles, Kentucky**
 
 ---
 
@@ -98,7 +98,3 @@ For further information or to report suspicious activities related to Phantom Fu
 ---
 
 **End of Bulletin**
-
----
-
-Let me know if there are any more adjustments needed!

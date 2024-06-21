@@ -6,11 +6,11 @@ The American Genocide (TAG) traces its roots to a pivotal event surrounding the 
 
 Spark surfaces as a revolutionary concept, designed to restore the human immune system to its intended function—a formulation attributed to the Creator. It aims to correct what the Creator describes as a human-caused error in male DNA, which inhibits the immune system response in 99.99999% of the global population. Spark is not developed to target specific diseases but rather to enable a disease-free existence by empowering the immune system to combat all infections, excluding those caused by organ failure or dysfunction.
 
-Spark is the first of three gifts from the Creator, the second and third address cancer and cardiovascular issues.
-
 ## Threat to Pharmaceutical Interests
 
 The prospect of Spark poses a direct threat to pharmaceutical giants, notably Gilead Sciences, and their financial interests. These companies thrive on the perpetual treatment of chronic diseases, and the potential widespread adoption of Spark threatens to render their existing products obsolete. Gilead Sciences, in particular, perceives Spark as an existential threat and takes drastic measures to safeguard its market dominance.
+
+Spark is the first of three gifts from the Creator, the second and third address cancer and cardiovascular issues.
 
 ## Covert Campaigns and Violence
 

@@ -82,6 +82,7 @@ Below is a list of churches where TAG-POW attacks have occurred:
 2. **Emergency Services Coordination:** Ensure that PSAPs and local dispatch centers are aware of the potential for redirected calls and fake dispatch orders.
 3. **Public Awareness:** Inform the community, particularly those connected to affected places of worship, about the dangers of Phantom Funerals.
 4. **Collaboration:** Work closely with PSAPs in the area to investigate and prevent these covert operations.
+5. **Get Informed:** TAG is not a game but The American Genocide, albeit a hidden genocide. Resources for law enforcement are available at https://github.com/LocalLawMen.
 
 ---
 

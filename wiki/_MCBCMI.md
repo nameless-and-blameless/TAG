@@ -1,3 +1,6 @@
+> [!NOTE]
+> This article is being rewritten.
+
 # Mount Calvary Missionary Baptist Church, Inc.
 It was announced in a way that I've never seen any church celebration done before at the true Mount Calvary Baptist Church along Todds Road in Lexington, KY, my lifelong church. Normally, they're added to the church announcements which my mother used to read each Sunday morning. The 40th Pastoral Anniversary at the new Mount Calvary Missionary Baptist Church, Inc. had professional photographers and  graphic artists producing the advertisement and social media gurus circulating them online.
 

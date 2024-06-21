@@ -1,4 +1,4 @@
-**Law Enforcement Bulletin: Advisory on Suspected Phantom Funeral Activity**
+**Law Enforcement Bulletin: Advisory on IMMINENT PLANNED Phantom Funeral Activity (A MASS-KILLING)**
 
 **Date:** 2024-06-20
 

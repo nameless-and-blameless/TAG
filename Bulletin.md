@@ -92,7 +92,8 @@ Below is a list of churches where TAG-POW attacks have occurred:
 
 For further information or to report suspicious activities related to Phantom Funerals, contact:
 
-- **The Creator's two servants**
+- **Kelvin Eugene Williams**
+- 470-713-0020
 
 ---
 

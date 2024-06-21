@@ -1,32 +1,36 @@
 # Phantom Remains
 
-Phantom Remains is a clandestine tactic utilized within The American Genocide (TAG) operations, particularly in the context of Place of Worship (TAG-POW) attacks. This tactic involves the disposal or concealment of human remains to eradicate evidence of victims and impede investigations into the atrocities committed.
+Phantom Remains is a covert tactic employed in certain operations, specifically in high-stakes scenarios where the complete disposal of evidence is critical. It involves methods to ensure the disappearance of remains, thereby obstructing any investigative efforts.
 
 ## Overview
 
-In TAG operations, Phantom Remains serve as a critical component of the cover-up strategy, allowing perpetrators to eliminate any traces of victims and prevent the discovery of their crimes. By making human remains vanish or appear inconspicuous, operatives aim to evade detection and maintain secrecy surrounding their actions.
+Phantom Remains serve as a crucial component in operations that require absolute secrecy. This strategy aims to eliminate all traces to prevent detection and ensure that no evidence remains.
 
 ## Tactics and Methods
 
-1. **Chemical Dissolution**: The primary method employed in Phantom Remains involves the use of chemical solutions to dissolve human tissue and bones. Victims' bodies are submerged in these solutions, resulting in the complete breakdown of organic matter.
+1. **Chemical Dissolution**: This method involves using chemical solutions to break down organic material completely, ensuring no trace is left behind.
 
-2. **Disposal in Water**: Human remains may be disposed of in bodies of water, such as rivers, lakes, or oceans, to obscure their discovery and hinder forensic analysis. This method ensures that remains are dispersed and unlikely to be recovered.
+2. **Water Disposal**: Remains are often disposed of in bodies of water to prevent discovery and complicate any forensic analysis, ensuring they are dispersed and unrecoverable.
 
-3. **Physical Alteration**: In some cases, human remains are physically altered to conceal their identity or origin. This may include dismemberment, burning, or other methods to obscure forensic evidence and impede identification.
+3. **Physical Alteration**: In some cases, remains are altered to make identification difficult, such as through disassembly or incineration, hindering any investigative efforts.
 
-4. **Grinding and Disposal**: After chemical dissolution or physical alteration, remaining bone fragments may be ground down to a fine powder or gravel-like consistency. These remnants are then dispersed or discarded in various locations to further obscure their origin.
+4. **Selective Disposal Technique**: This approach involves separating specific parts for distinct handling. Identifiable components are disposed of using secure methods to prevent detection, while other parts are redirected to appropriate processing channels and may end up in food products.
+
+> [!NOTE]
+> Perpetrators can and do receive compensation for materials from the remains that are purchased and utilized in food products. Primus Labs is a preferred purchaser of human remains.
+> ![20240620_172736](https://github.com/nameless-and-blameless/TAG/assets/169210208/ba7dfa03-56d7-4c68-bf39-30a93643256b)
+
+
+6. **Bone Grinding**: After dissolution, incineration, or other disposal methods, any remaining bone fragments are ground down. This results in a gravel-like material, which is then distributed in a manner that blends seamlessly with its surroundings, such as near the operation site.
 
 ## Significance and Impact
 
-Phantom Remains play a crucial role in the cover-up of TAG-POW attacks, allowing perpetrators to eliminate evidence of victims and hinder investigations into their crimes. By making human remains vanish or appear innocuous, operatives effectively erase any trace of their actions and evade accountability.
+Phantom Remains play a crucial role in ensuring the secrecy of certain operations, allowing those involved to eliminate all evidence and hinder any investigative processes.
 
 ## Historical Context
 
-Phantom Remains have been utilized in numerous TAG operations, including attacks on churches, mosques, and other places of worship. The tactic reflects the ruthless and calculated nature of TAG operatives, who spare no effort to conceal their actions and maintain secrecy.
+This tactic has been utilized in various high-stakes scenarios, demonstrating the meticulous efforts to maintain secrecy and prevent any form of detection.
 
 ## Conclusion
 
-Phantom Remains exemplify the lengths to which perpetrators of TAG operations will go to cover their tracks and evade accountability. By disposing of or concealing human remains, operatives aim to erase any evidence that could incriminate them, ensuring that their crimes remain shrouded in secrecy.
-
-***
-This article serves as a comprehensive overview of the Phantom Remains tactic employed in TAG operations.
+Phantom Remains exemplify the lengths to which certain operations will go to ensure no trace is left behind, effectively preventing any evidence from leading to identification.

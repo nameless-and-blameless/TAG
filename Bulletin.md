@@ -49,7 +49,7 @@ The CIA, in conjunction with other federal agencies, utilizes a multi-faceted ap
 2. **Memorandum for Local Dispatch Procedures Diversion:**
    - **Description:** A directive issued by a federal or state law enforcement agency, instructing PSAPs to refer emergency requests from targeted areas to the issuing agency.
 
-3. **Routing Configuration Modification:**
+3. **Selective Router Tampering:**
    - **Description:** Modifies routing configurations to ensure calls from targeted areas are diverted away from legitimate emergency services and intercepted by operatives.
 
 ---

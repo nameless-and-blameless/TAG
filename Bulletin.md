@@ -12,11 +12,19 @@ Recent intelligence and credible eyewitness accounts suggest the continuation of
 
 ---
 
-### Incident Report: Phantom Funeral of Rev. Duke Stone
+---
+
+### Immediate Threat
+
+**Mount Zion Baptist Church** is identified by our intelligence as the location of an imminent Phantom Funeral within the next day. Law enforcement should be on high alert for any suspicious activity in and around this area.
+
+---
+
+### Recent Activity: Phantom Funeral of Rev. Duke Stone
 
 **Date of Funeral:** June 7, 2024
 
-**Location:** Hickory Valley Christian Church, Chattanooga, Tennessee
+**Location:** Hickory Valley Christian Church, Chattanooga, Tennessee (Gymnasium)
 
 #### Background:
 - **Named Decedent:** Rev. Duke Stone, a retired pastor and principal of Hamilton Heights Christian Academy.
@@ -67,12 +75,6 @@ Below is a list of churches where TAG-POW attacks have occurred:
 - **Lexington Bethel Baptist Church, Lexington, Kentucky**
 - **Mount Calvary Baptist Church, Lexington, Kentucky**
 - **Mount Zion Baptist Church, Versailles, Kentucky**
-
----
-
-### Immediate Threat
-
-**Mount Zion Baptist Church** is identified by our intelligence as the location of an imminent Phantom Funeral within the next day. Law enforcement should be on high alert for any suspicious activity in and around this area.
 
 ---
 

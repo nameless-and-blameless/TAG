@@ -21,7 +21,7 @@ These attacks have been closely monitored by the federal government and politica
 1. **Mount Calvary Baptist Church**
    - **Location:** 4742 Todds Road, Lexington, Kentucky
    - **Congregation:** Predominantly African American
-   - **Target Reason:** Home church of Kelvin Eugene Williams and his family.
+   - **Target Reason:** Longtime church of Patricia Ann Crawley-Rogers Williams and her two children, one of them being one of the Creator's two servants, born as, Kelvin Eugene Williams.
    - **Attack Details:**
      - **Date:** April 2, 2023
      - **Operatives:** 60 men (Caucasian, Latino, Asian)
@@ -30,22 +30,22 @@ These attacks have been closely monitored by the federal government and politica
      - **Body Disposal Method:** Dissolution
      - **Casualties:** 127
      - **Execution Location:** Sanctuary
-     - **Damage:** Moderate, affecting sanctuary, requiring carpet and wall repairs
+     - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
      - **Tactics:**
        - **Phantom Remains**
        - **Phantom Vehicle**
        - **Phantom Identity Scheme**
-     - **Continuations:**
-       - **Membership Targeting**
-       - **Phantom Funerals**
      - **Cover-Up:**
        - **Faux Religious Services**
        - **Hosted Community Events**
+     - **Continuations:**
+       - **Membership Targeting**
+       - **Phantom Funerals**
 
 2. **Lexington Bethel Baptist Church**
    - **Location:** 4686 Todds Road, Lexington, Kentucky
    - **Congregation:** Predominantly Caucasian
-   - **Target Reason:** Proximity to Mount Calvary Baptist Church and concern shown by church leaders.
+   - **Target Reason:** Neighboring church of Mount Calvary Baptist Church, a delegation of which visited Mount Calvary after the attack to express concern. They found a damaged sanctuary and impersonators. Jacobsen decided to attack them.
    - **Attack Details:**
      - **Date:** May 2023
      - **Operatives:** 75 men (Caucasian, Latino, Asian)
@@ -54,19 +54,18 @@ These attacks have been closely monitored by the federal government and politica
      - **Body Disposal Method:** Selective Disposal Method
      - **Casualties:** 250+
      - **Execution Location:** Sanctuary
-     - **Damage:** Moderate, affecting sanctuary, requiring carpet and wall repairs
+     - **Damage:** Multiple walls riddled with bullet holes, carpeting and upholstery bloodstained.
      - **Tactics:**
        - **Phantom Remains**
        - **Phantom Vehicle**
        - **Phantom Identity Scheme**
      - **Continuations:**
        - **Membership Targeting**
-       - **Phantom Funerals**
 
 3. **House of God (Georgetown Street)**
    - **Location:** Georgetown Street, Lexington, Kentucky
    - **Congregation:** Predominantly African American
-   - **Target Reason:** Affiliation with Mount Calvary Baptist Church’s Minister of Music.
+   - **Target Reason:** Was the church where Mount Calvary Baptist Church's longtime Minister of Music & Organist was a member.
    - **Attack Details:**
      - **Date:** May 2023
      - **Operatives:** 75 men (Caucasian, Latino, Asian)
@@ -75,7 +74,7 @@ These attacks have been closely monitored by the federal government and politica
      - **Body Disposal Method:** Dissolution (at Mount Calvary Baptist Church)
      - **Casualties:** 300+
      - **Execution Location:** Sanctuary
-     - **Damage:** Moderate, affecting sanctuary, requiring carpet and wall repairs
+     - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
      - **Tactics:**
        - **Phantom Remains**
        - **Phantom Vehicle**
@@ -86,7 +85,7 @@ These attacks have been closely monitored by the federal government and politica
 4. **House of God (Broadway)**
    - **Location:** Broadway, Lexington, Kentucky
    - **Congregation:** Predominantly African American
-   - **Target Reason:** Suspected ties with Georgetown Street’s House of God.
+   - **Target Reason:** Sister church of House of God (Georgetown Street) delegation paid a visit. Jacobsen targeted to silence them.
    - **Attack Details:**
      - **Date:** May 2023
      - **Operatives:** 50 black males recruited by Danny Taylor
@@ -95,7 +94,7 @@ These attacks have been closely monitored by the federal government and politica
      - **Body Disposal Method:** Selective Disposal Method
      - **Casualties:** 300+
      - **Execution Location:** Sanctuary
-     - **Damage:** Moderate, affecting sanctuary, requiring carpet and wall repairs
+     - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
      - **Tactics:**
        - **Phantom Remains**
        - **Phantom Vehicle**
@@ -106,7 +105,7 @@ These attacks have been closely monitored by the federal government and politica
 5. **Mount Zion Baptist Church**
    - **Location:** Versailles, Kentucky
    - **Congregation:** Predominantly African American
-   - **Target Reason:** Suspected ties with Mount Calvary Baptist Church.
+   - **Target Reason:** Jacobsen preemptively attacked them believing there was a stronger affiliation with Mount Calvary Baptist Church.
    - **Attack Details:**
      - **Date:** June 2023
      - **Operatives:** 60 men (Caucasian, Latino, Asian)
@@ -115,7 +114,7 @@ These attacks have been closely monitored by the federal government and politica
      - **Body Disposal Method:** Dissolution
      - **Casualties:** 166
      - **Execution Location:** Sanctuary (initially), Basement (subsequently)
-     - **Damage:** Total restoration of sanctuary completed
+     - **Damage:** Total restoration of sanctuary completed.
      - **Tactics:**
        - **Phantom Remains**
        - **Phantom Vehicle**
@@ -127,7 +126,7 @@ These attacks have been closely monitored by the federal government and politica
 6. **Calvary Baptist Church**
    - **Location:** High Street, Lexington, Kentucky
    - **Congregation:** Predominantly Caucasian
-   - **Target Reason:** Kelvin Williams' early '80s daycare association.
+   - **Target Reason:** The Creator says "Jacobsen's speed-induced paranoia." Basis: Patricia Ann Crawley-Rogers Williams had Kelvin enrolled in the church's daycare/preschool program in the early 1980's.
    - **Attack Details:**
      - **Date:** May 12, 2023
      - **Operatives:** 50 black males recruited by Danny Taylor
@@ -136,7 +135,7 @@ These attacks have been closely monitored by the federal government and politica
      - **Body Disposal Method:** Dissolution
      - **Casualties:** 400+
      - **Execution Location:** Sanctuary
-     - **Damage:** Moderate, affecting sanctuary, requiring carpet and wall repairs
+     - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
      - **Tactics:**
        - **Phantom Remains**
        - **Phantom Vehicle**
@@ -146,7 +145,7 @@ These attacks have been closely monitored by the federal government and politica
 
 7. **Hickory Valley Christian Church**
    - **Location:** Shallowford Road, Chattanooga, Tennessee
-   - **Congregation:** Predominantly Caucasian, ~500 members
+   - **Congregation:** Predominantly Caucasian
    - **Target Reason:** Kelvin Williams' association with Hamilton Heights Christian Academy.
    - **Attack Details:**
      - **Date:** May 12, 2024
@@ -156,14 +155,13 @@ These attacks have been closely monitored by the federal government and politica
      - **Body Disposal Method:** Dissolution
      - **Casualties:** 1000+
      - **Execution Location:** Gymnasium
-     - **Damage:** Moderate, affecting gymnasium, requiring carpet and wall repairs
-     - **Disruption:** Closure of Hamilton Heights Christian Academy
+     - **Damage:** Minimal damage remains in sanctuary due to execution location (gymnasium).
      - **Tactics:**
        - **Phantom Remains**
        - **Phantom Vehicle**
        - **Phantom Identity Scheme**
+     - **Cover-Up:**
+       - **Trump Media Interviews**
      - **Continuations:**
        - **Membership Targeting**
        - **Phantom Funerals**
-       - **Cover-Up:**
-         - **Trump Media Interviews**

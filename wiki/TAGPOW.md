@@ -15,7 +15,7 @@ The TAG-POW (The American Genocide - Place of Worship) attacks represent a serie
 4. **Faux Religious Services**: Conducting fake religious services to maintain the appearance of normalcy and cover up the attacks.
 5. **Hosted Community Events**: Organizing community events to distract from the incidents and create a facade of peaceful activity.
 6. **Membership Targeting**: Systematically identifying and targeting members of the congregation to eliminate witnesses and potential threats.
-7. **[[Phantom Funerals|]]**: Holding sham funerals to mislead communities and authorities about the fate of victims and eliminate a victim's network of associates. Every mourner attending a phantom funeral is killed.
+7. **[[Phantom Funeral|]]**: Holding sham funerals to mislead communities and authorities about the fate of victims and eliminate a victim's network of associates. Every mourner attending a phantom funeral is killed.
 
 ### Summary of Incidents
 

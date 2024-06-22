@@ -1,27 +1,28 @@
-> [!CAUTION]
-> The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
+### TAG-POW Attacks: Summary of Incidents
 
 > [!WARNING]
-> The places of worship listed here should be avoided. These locations have been compromised and hold fake services with the intent to harm anyone who visits them, as part of a cover-up of ongoing massacres. There is a significant risk of death associated with contacting any of these churches, and online contact is strongly discouraged. We strongly advise against contacting or affiliating with these places of worship. Recent events indicate that individuals who contact or are affiliated with these places may be targeted and attacked. Regardless of any list, always pray for guidance regarding any place of worship.
+> **Content Warning:** The following content is intended for law enforcement and contains descriptions of violence and covert operations.
 
-# The American Genocide - Places of Worship 
-These massacres are each part of a series of coordinated attacks on places of worship (POWs) during The American Genocide (TAG), known as TAG-POW attacks. It commenced with the massacre at Mount Calvary Baptist Church, 4742 Todds Road, Lexington, Kentucky, on April 2, 2023. Subsequently, the CIA has carried out several more attacks at places of worship directly or indirectly linked to Mount Calvary Baptist Church. These incidents have predominantly transpired in Kentucky.
+---
 
-## Tactics
-### "Surprise, Kill, Vanish"
-Each attack on a place of worship has displayed tactics described in Annie Jacobsen's book "Surprise, Kill, Vanish." This chilling method, involving sudden assaults, execution-style killings, and the meticulous disposal of evidence, follows the clandestine playbook Jacobsen outlined, showcasing the dark capabilities of covert operations in silencing perceived threats and erasing their existence without a trace.
+The TAG-POW (The American Genocide - Place of Worship) attacks represent a series of meticulously executed assaults on various places of worship. Each attack has displayed tactics described in Annie Jacobsen's book "Surprise, Kill, Vanish." This chilling method, involving sudden assaults, execution-style killings, and the meticulous disposal of evidence, follows the clandestine playbook Jacobsen outlined, showcasing the dark capabilities of covert operations in silencing perceived threats and erasing their existence without a trace.
 
-## Motivation 
-Some apparent motives behind all the attacks are to eliminate individuals who have knowledge of Kelvin Eugene Williams or his family, especially Patricia Ann Crawley-Rogers Williams. The CIA and federal government aim to ensure Kelvin Eugene Williams cannot reveal their atrocities at Sandy Hook (Maury County), TN, or his lifelong church. Based on CIA behavior, any congregation that knew Mount Calvary Baptist Church (Lexington, KY) or had heard of the massacre must also be eliminated. Additionally, any group or individual who poses a threat of discovering, discussing, or publicizing these church massacres is targeted for elimination.
+### Additional Tactics Utilized
 
-These attacks have been closely monitored by the federal government and political elite, who have been aware of planned actions by the CIA and have received briefings during the attacks. The Creator says their involvement is due to their undisclosed desires to move towards an authoritarian government. These motives highlight the ruthless nature of the perpetrators, who are willing to engage in heinous acts to sever any ties to their crimes.
+1. **[[Phantom Remains|]]**: Employing various illegal body disposal methods to ensure no trace of the victims is left behind, making it difficult to investigate or confirm deaths.
+2. **[[Phantom Vehicles|]]**: Removing and making victim vehicles untraceable by selling them or giving them away, effectively erasing any evidence linking the vehicles to the crime scenes.
+3. **[[Phantom Identity Scheme|]]**: A complex identity theft operation that creates the illusion that victims are still alive, obscuring their deaths and complicating investigations.
+4. **Faux Religious Services**: Conducting fake religious services to maintain the appearance of normalcy and cover up the attacks.
+5. **Hosted Community Events**: Organizing community events to distract from the incidents and create a facade of peaceful activity.
+6. **Membership Targeting**: Systematically identifying and targeting members of the congregation to eliminate witnesses and potential threats.
+7. **[[Phantom Funerals|]]**: Holding sham funerals to mislead communities and authorities about the fate of victims and eliminate a victim's network of associates. Every mourner attending a phantom funeral is killed.
 
-### TAG-POW Attacks: Summary of Incidents
+### Summary of Incidents
 
 1. **Mount Calvary Baptist Church**
    - **Location:** 4742 Todds Road, Lexington, Kentucky
    - **Congregation:** Predominantly African American
-   - **Target Reason:** Longtime church of Patricia Ann Crawley-Rogers Williams and her two children, one of them being one of the Creator's two servants, born as, Kelvin Eugene Williams.
+   - **Target Reason:** Longtime church of Patricia Ann Crawley-Rogers Williams and her two children, one of them being one of the Creator's two servants, Kelvin Eugene Williams.
    - **Attack Details:**
      - **Date:** April 2, 2023
      - **Operatives:** 60 men (Caucasian, Latino, Asian)
@@ -31,16 +32,7 @@ These attacks have been closely monitored by the federal government and politica
      - **Casualties:** 127
      - **Execution Location:** Sanctuary
      - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
-     - **Tactics:**
-       - **Phantom Remains**
-       - **Phantom Vehicle**
-       - **Phantom Identity Scheme**
-     - **Cover-Up:**
-       - **Faux Religious Services**
-       - **Hosted Community Events**
-     - **Continuations:**
-       - **Membership Targeting**
-       - **Phantom Funerals**
+     - **Cover-Up:** Faux Religious Services, Hosted Community Events
 
 2. **Lexington Bethel Baptist Church**
    - **Location:** 4686 Todds Road, Lexington, Kentucky
@@ -55,12 +47,6 @@ These attacks have been closely monitored by the federal government and politica
      - **Casualties:** 250+
      - **Execution Location:** Sanctuary
      - **Damage:** Multiple walls riddled with bullet holes, carpeting and upholstery bloodstained.
-     - **Tactics:**
-       - **Phantom Remains**
-       - **Phantom Vehicle**
-       - **Phantom Identity Scheme**
-     - **Continuations:**
-       - **Membership Targeting**
 
 3. **House of God (Georgetown Street)**
    - **Location:** Georgetown Street, Lexington, Kentucky
@@ -75,17 +61,11 @@ These attacks have been closely monitored by the federal government and politica
      - **Casualties:** 300+
      - **Execution Location:** Sanctuary
      - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
-     - **Tactics:**
-       - **Phantom Remains**
-       - **Phantom Vehicle**
-       - **Phantom Identity Scheme**
-     - **Continuations:**
-       - **Membership Targeting**
 
 4. **House of God (Broadway)**
    - **Location:** Broadway, Lexington, Kentucky
    - **Congregation:** Predominantly African American
-   - **Target Reason:** Sister church of House of God (Georgetown Street) delegation paid a visit. Jacobsen targeted to silence them.
+   - **Target Reason:** Jacobsen targeted after a delegation paid a visit to the House of God (Georgetown Street) after they were attacked in a show of concern.
    - **Attack Details:**
      - **Date:** May 2023
      - **Operatives:** 50 black males recruited by Danny Taylor
@@ -95,12 +75,6 @@ These attacks have been closely monitored by the federal government and politica
      - **Casualties:** 300+
      - **Execution Location:** Sanctuary
      - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
-     - **Tactics:**
-       - **Phantom Remains**
-       - **Phantom Vehicle**
-       - **Phantom Identity Scheme**
-     - **Continuations:**
-       - **Membership Targeting**
 
 5. **Mount Zion Baptist Church**
    - **Location:** Versailles, Kentucky
@@ -115,13 +89,6 @@ These attacks have been closely monitored by the federal government and politica
      - **Casualties:** 166
      - **Execution Location:** Sanctuary (initially), Basement (subsequently)
      - **Damage:** Total restoration of sanctuary completed.
-     - **Tactics:**
-       - **Phantom Remains**
-       - **Phantom Vehicle**
-       - **Phantom Identity Scheme**
-     - **Continuations:**
-       - **Membership Targeting**
-       - **Phantom Funerals**
 
 6. **Calvary Baptist Church**
    - **Location:** High Street, Lexington, Kentucky
@@ -136,12 +103,6 @@ These attacks have been closely monitored by the federal government and politica
      - **Casualties:** 400+
      - **Execution Location:** Sanctuary
      - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
-     - **Tactics:**
-       - **Phantom Remains**
-       - **Phantom Vehicle**
-       - **Phantom Identity Scheme**
-     - **Continuations:**
-       - **Membership Targeting**
 
 7. **Hickory Valley Christian Church**
    - **Location:** Shallowford Road, Chattanooga, Tennessee
@@ -156,12 +117,4 @@ These attacks have been closely monitored by the federal government and politica
      - **Casualties:** 1000+
      - **Execution Location:** Gymnasium
      - **Damage:** Minimal damage remains in sanctuary due to execution location (gymnasium).
-     - **Tactics:**
-       - **Phantom Remains**
-       - **Phantom Vehicle**
-       - **Phantom Identity Scheme**
-     - **Cover-Up:**
-       - **[[Trump Media Interviews|Donald-J.-Trump#cover-up-activities]]**
-     - **Continuations:**
-       - **Membership Targeting**
-       - **Phantom Funerals**
+     - **Cover-Up:** [[Trump Media Interviews|Donald-J.-Trump#cover-up-activities]]

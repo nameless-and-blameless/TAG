@@ -161,7 +161,7 @@ These attacks have been closely monitored by the federal government and politica
        - **Phantom Vehicle**
        - **Phantom Identity Scheme**
      - **Cover-Up:**
-       - **[[Trump Media Interviews|Donald-J.-Trump.md#cover-up-activities]]**
+       - **[[Trump Media Interviews|Donald-J.-Trump#cover-up-activities]]**
      - **Continuations:**
        - **Membership Targeting**
        - **Phantom Funerals**

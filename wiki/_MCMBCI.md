@@ -6,6 +6,20 @@ Following Kelvin Williams' demand letters to Mount Calvary Missionary and Baptis
 #### 40th Pastoral Anniversary Celebration
 The 40th Pastoral Anniversary of Reverend Dr. Felix G. Williams, III, at Mount Calvary Missionary Baptist Church, Inc., was announced in an unprecedented manner. Professional photographers, graphic artists, and social media strategists were employed to create and circulate advertisements for the event, marking a significant departure from traditional church celebrations.
 
+#### Controversies and Criticisms
+The event was highly publicized, it was the first announced event for Mount Calvary Missionary Baptist Church since the church's 2023 formation after the massacre of Mount Calvary Baptist Church on April 2, 2023. Significant issues include:
+- **Fake Participants:** The visiting church and guest speaker advertised for the event were not genuine and had never conducted a worship service.
+- **Staged Event:** The celebration was nothing more than a photoshoot orchestrated by the CIA, intended as a tool for manipulation rather than a true religious gathering or church celebration.
+- **Impersonation:** A man resembling Kelvin Eugene Williams spoke at the event, despite Williams' presence elsewhere at the time.
+
+#### Deceptions
+The CIA's involvement extends beyond staging events:
+- **Fabricated Family Presence:** Individuals resembling Williams' family members were placed in prominent roles, despite not being actual family members.
+- **Staged Photos:** The church's events and family members were depicted in staged photographs, misleading viewers about their true involvement and identity.
+
+#### Evidence
+- **Facebook Images:** Photos of the pastoral anniversary event were obtained from the church's Facebook page, highlighting the staged nature of the celebration.
+
 ![1_uebrU1biZ49sqILyVWjmQg@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/773831f7-4da3-4542-b36c-7c6f273993db)
 
 ![1_HyjCek1sRyHr43qCT063DA@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/e7b3d847-d804-4ef1-a9d4-8073353a1a0d)
@@ -20,20 +34,6 @@ The 40th Pastoral Anniversary of Reverend Dr. Felix G. Williams, III, at Mount C
 
 
 ![1_z3MXoRJZt8kOwGgf2xJXLQ@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/922d76ac-1d0b-4eb9-afda-8574b057a9f9)
-
-#### Controversies and Criticisms
-The event was highly publicized, it was the first announced event for Mount Calvary Missionary Baptist Church since the church's 2023 formation after the massacre of Mount Calvary Baptist Church on April 2, 2023. Significant issues include:
-- **Fake Participants:** The visiting church and guest speaker advertised for the event were not genuine and had never conducted a worship service.
-- **Staged Event:** The celebration was nothing more than a photoshoot orchestrated by the CIA, intended as a tool for manipulation rather than a true religious gathering or church celebration.
-- **Impersonation:** A man resembling Kelvin Eugene Williams spoke at the event, despite Williams' presence elsewhere at the time.
-
-#### Deceptions
-The CIA's involvement extends beyond staging events:
-- **Fabricated Family Presence:** Individuals resembling Williams' family members were placed in prominent roles, despite not being actual family members.
-- **Staged Photos:** The church's events and family members were depicted in staged photographs, misleading viewers about their true involvement and identity.
-
-#### Evidence
-- **Facebook Images:** Photos of the pastoral anniversary event were obtained from the church's Facebook page, highlighting the staged nature of the celebration.
 
 #### Summary
 The activities of Mount Calvary Missionary Baptist Church, Inc. and the controversies surrounding its events raise significant concerns about the authenticity and ethical practices of the organization. The church's affiliation with the CIA and the manipulation of events for public perception further complicate its credibility.

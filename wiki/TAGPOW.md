@@ -1,124 +1,120 @@
-> [!CAUTION]
-> The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
+### TAG-POW Attacks: Summary of Incidents
 
 > [!WARNING]
-> The places of worship listed here should be avoided. These locations have been compromised and hold fake services with the intent to harm anyone who visits them, as part of a cover-up of ongoing massacres. There is a significant risk of death associated with contacting any of these churches, and online contact is strongly discouraged. We strongly advise against contacting or affiliating with these places of worship. Recent events indicate that individuals who contact or are affiliated with these places may be targeted and attacked. Regardless of any list, always pray for guidance regarding any place of worship.
+> **Content Warning:** The following content is intended for law enforcement and contains descriptions of violence and covert operations.
 
-# The American Genocide - Places of Worship 
-These massacres are each part of a series of coordinated attacks on places of worship (POWs) during The American Genocide (TAG), known as TAG-POW attacks. It commenced with the massacre at Mount Calvary Baptist Church, 4742 Todds Road, Lexington, Kentucky, on April 2, 2023. Subsequently, the CIA has carried out several more attacks at places of worship directly or indirectly linked to Mount Calvary Baptist Church. These incidents have predominantly transpired in Kentucky.
+---
 
-### List of TAG-POW Attacks
+The TAG-POW (The American Genocide - Place of Worship) attacks represent a series of meticulously executed assaults on various places of worship. Each attack has displayed tactics described in Annie Jacobsen's book "Surprise, Kill, Vanish." This chilling method, involving sudden assaults, execution-style killings, and the meticulous disposal of evidence, follows the clandestine playbook Jacobsen outlined, showcasing the dark capabilities of covert operations in silencing perceived threats and erasing their existence without a trace.
 
-#### 1. Massacre at Mount Calvary Baptist Church
-- **Location**: 4742 Todds Road, Lexington, Kentucky
-- **Congregation**: Predominantly African American
-- **Reason for Targeting**: To eliminate potential threats associated with Kelvin Williams and his family's connection to the church.
-- **Attack Details**: 
-  - **Date**: April 2nd, 2023
-  - **Operatives**: 60 men of Caucasian, Latino, or Asian descent
-  - **Execution Method**: High-intensity assault
-  - **Execution Apparatus**: Chainsaw
-  - **Body Disposal Method**: Dissolution
-  - **Casualties**: 127
-  - **Aftermath**: Significant damage to the sanctuary, with services being taken over by operatives.
+### Additional Tactics Utilized
 
-#### 2. Massacre on Lexington Bethel Baptist Church
-- **Location**: 4686 Todds Road, Lexington, Kentucky
-- **Congregation**: Predominantly Caucasian
-- **Reason for Targeting**: To prevent discussions of the previous attack at Mount Calvary Baptist Church.
-- **Attack Details**: 
-  - **Date**: May 2023
-  - **Operatives**: 75 men of Caucasian, Latino, or Asian descent
-  - **Execution Method**: Coordinated assault
-  - **Execution Apparatus**: Handgun
-  - **Body Disposal Method**: Head-Torso Dissolution
-  - **Casualties**: 250+
-  - **Aftermath**: Extensive damage and complete disruption of church services.
+1. **[[Phantom Remains|]]**: Employing various illegal body disposal methods to ensure no trace of the victims is left behind, making it difficult to investigate or confirm deaths.
+2. **[[Phantom Vehicles|]]**: Removing and making victim vehicles untraceable by selling them or giving them away, effectively erasing any evidence linking the vehicles to the crime scenes.
+3. **[[Phantom Identity Scheme|]]**: A complex identity theft operation that creates the illusion that victims are still alive, obscuring their deaths and complicating investigations.
+4. **Faux Religious Services**: Conducting fake religious services to maintain the appearance of normalcy and cover up the attacks.
+5. **Hosted Community Events**: Organizing community events to distract from the incidents and create a facade of peaceful activity.
+6. **Membership Targeting**: Systematically identifying and targeting members of the congregation to eliminate witnesses and potential threats.
+7. **[[Phantom Funeral|]]**: Holding sham funerals to mislead communities and authorities about the fate of victims and eliminate a victim's network of associates. Every mourner attending a phantom funeral is killed.
 
-#### 3. Massacre on House of God (Georgetown Street)
-- **Location**: Georgetown Street, Lexington, Kentucky
-- **Congregation**: Predominantly African American
-- **Reason for Targeting**: Mount Calvary Baptist Church's longtime Minister of Music & organist worshipped here.
-- **Attack Details**: 
-  - **Date**: May 2023
-  - **Operatives**: 75 men of Caucasian, Latino, or Asian descent
-  - **Execution Method**: High-intensity assault
-  - **Execution Apparatus**: Chainsaw
-  - **Body Disposal Method**: Dissolution (at Mount Calvary Baptist Church)
-  - **Casualties**: 300+
-  - **Aftermath**: Extensive damage and disruption.
+### Summary of Incidents
 
-#### 4. Massacre on House of God (Broadway)
-- **Location**: Broadway, Lexington, Kentucky
-- **Congregation**: Predominantly African American
-- **Reason for Targeting**: Suspected ties with the targeted House of God on Georgetown Street.
-- **Attack Details**: 
-  - **Date**: May 2023
-  - **Operatives**: 50 black males recruited by Danny Taylor
-  - **Execution Method**: Coordinated assault
-  - **Execution Apparatus**: Handgun
-  - **Body Disposal Method**: Head-Torso Dissolution
-  - **Casualties**: 300+
-  - **Aftermath**: Extensive damage and disruption.
+1. **Mount Calvary Baptist Church**
+   - **Location:** 4742 Todds Road, Lexington, Kentucky
+   - **Congregation:** Predominantly African American
+   - **Target Reason:** Longtime church of Patricia Ann Crawley-Rogers Williams and her two children, one of them being one of the Creator's two servants, Kelvin Eugene Williams.
+   - **Attack Details:**
+     - **Date:** April 2, 2023
+     - **Operatives:** 60 men (Caucasian, Latino, Asian)
+     - **Execution Method:** High-intensity assault
+     - **Execution Weapon:** Chainsaw
+     - **Body Disposal Method:** Dissolution
+     - **Casualties:** 127
+     - **Execution Location:** Sanctuary
+     - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
+     - **Cover-Up:** Faux Religious Services, Hosted Community Events
 
-#### 5. Massacre on Mount Zion Baptist Church
-- **Location**: Versailles, Kentucky
-- **Congregation**: Predominantly African American
-- **Reason for Targeting**: Suspected ties with Mount Calvary Baptist Church based on flawed intelligence.
-- **Attack Details**: 
-  - **Date**: June 2023
-  - **Operatives**: 60 men of Caucasian, Latino, or Asian descent
-  - **Execution Method**: High-intensity assault
-  - **Execution Apparatus**: Chainsaw
-  - **Body Disposal Method**: Dissolution
-  - **Casualties**: 166
-  - **Aftermath**: 
-    - Significant damage
-    - Complete restoration of sanctuary by the CIA
-    - Referred to as the "Woodford Reserve" by the CIA in threat
+2. **Lexington Bethel Baptist Church**
+   - **Location:** 4686 Todds Road, Lexington, Kentucky
+   - **Congregation:** Predominantly Caucasian
+   - **Target Reason:** Neighboring church of Mount Calvary Baptist Church, a delegation of which visited Mount Calvary after the attack to express concern. They found a damaged sanctuary and impersonators. Jacobsen decided to attack them.
+   - **Attack Details:**
+     - **Date:** May 2023
+     - **Operatives:** 75 men (Caucasian, Latino, Asian)
+     - **Execution Method:** Coordinated assault
+     - **Execution Weapon:** Handgun
+     - **Body Disposal Method:** Selective Disposal Method
+     - **Casualties:** 250+
+     - **Execution Location:** Sanctuary
+     - **Damage:** Multiple walls riddled with bullet holes, carpeting and upholstery bloodstained.
 
-#### 6. Massacre on Calvary Baptist Church
-- **Location**: High Street, Lexington, Kentucky
-- **Congregation**: Predominantly Caucasian
-- **Reason for Targeting**: Kelvin Williams' connection to the church's daycare program in the early '80s.
-- **Attack Details**: 
-  - **Date**: May 12, 2023
-  - **Operatives**: 50 black males recruited by Danny Taylor
-  - **Execution Method**: High-intensity assault
-  - **Execution Apparatus**: Chainsaw
-  - **Body Disposal Method**: Dissolution
-  - **Casualties**: 400+
-  - **Aftermath**: 
-    - Damages: Extensive damage to sanctuary
-    - Services Impacted: Complete disruption of preschool and children's services
+3. **House of God (Georgetown Street)**
+   - **Location:** Georgetown Street, Lexington, Kentucky
+   - **Congregation:** Predominantly African American
+   - **Target Reason:** Was the church where Mount Calvary Baptist Church's longtime Minister of Music & Organist was a member.
+   - **Attack Details:**
+     - **Date:** May 2023
+     - **Operatives:** 75 men (Caucasian, Latino, Asian)
+     - **Execution Method:** High-intensity assault
+     - **Execution Weapon:** Chainsaw
+     - **Body Disposal Method:** Dissolution (at Mount Calvary Baptist Church)
+     - **Casualties:** 300+
+     - **Execution Location:** Sanctuary
+     - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
 
-#### 7. Massacre on Hickory Valley Christian Church
-- **Location**: Shallowford Road, Chattanooga, Tennessee
-- **Congregation**: Predominantly Caucasian, approximately 500 members
-- **Reason for Targeting**: Kelvin Williams' association with Hamilton Heights Christian Academy.
-- **Attack Details**: 
-  - **Date**: May 12, 2024
-  - **Operatives**: 100 inmates from Georgia Department of Corrections
-  - **Execution Method**: High-intensity assault
-  - **Execution Apparatus**: Chainsaw
-  - **Execution Location**: Gymnasium of Hamilton Heights Christian Academy (on same property)
-  - **Body Disposal Method**: Dissolution
-  - **Casualties**: 1000+
-  - **Aftermath**: 
-    - Damages: Minimal damage in sanctuary due to execution location
-    - Cover-Up: Trump interviews, News footage, News interviews
-    - Continuations: Phantom Funerals, Mock Services
+4. **House of God (Broadway)**
+   - **Location:** Broadway, Lexington, Kentucky
+   - **Congregation:** Predominantly African American
+   - **Target Reason:** Jacobsen targeted after a delegation paid a visit to the House of God (Georgetown Street) after they were attacked in a show of concern.
+   - **Attack Details:**
+     - **Date:** May 2023
+     - **Operatives:** 50 black males recruited by Danny Taylor
+     - **Execution Method:** Coordinated assault
+     - **Execution Weapon:** Handgun
+     - **Body Disposal Method:** Selective Disposal Method
+     - **Casualties:** 300+
+     - **Execution Location:** Sanctuary
+     - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
 
-## Tactics
-### "Surprise, Kill, Vanish"
-Each attack on a place of worship has displayed tactics described in Annie Jacobsen's book "Surprise, Kill, Vanish." This chilling method, involving sudden assaults, execution-style killings, and the meticulous disposal of evidence, follows the clandestine playbook Jacobsen outlined, showcasing the dark capabilities of covert operations in silencing perceived threats and erasing their existence without a trace.
+5. **Mount Zion Baptist Church**
+   - **Location:** Versailles, Kentucky
+   - **Congregation:** Predominantly African American
+   - **Target Reason:** Jacobsen preemptively attacked them believing there was a stronger affiliation with Mount Calvary Baptist Church.
+   - **Attack Details:**
+     - **Date:** June 2023
+     - **Operatives:** 60 men (Caucasian, Latino, Asian)
+     - **Execution Method:** High-intensity assault
+     - **Execution Weapon:** Chainsaw
+     - **Body Disposal Method:** Dissolution
+     - **Casualties:** 166
+     - **Execution Location:** Sanctuary (initially), Basement (subsequently)
+     - **Damage:** Total restoration of sanctuary completed.
 
-## Motivation 
-Some apparent motives behind all the attacks are to eliminate individuals who have knowledge of Kelvin Eugene Williams or his family, especially Patricia Ann Crawley-Rogers Williams. The CIA and federal government aim to ensure Kelvin Eugene Williams cannot reveal their atrocities at Sandy Hook (Maury County), TN, or his lifelong church. Based on CIA behavior, any congregation that knew Mount Calvary Baptist Church (Lexington, KY) or had heard of the massacre must also be eliminated. Additionally, any group or individual who poses a threat of discovering, discussing, or publicizing these church massacres is targeted for elimination.
+6. **Calvary Baptist Church**
+   - **Location:** High Street, Lexington, Kentucky
+   - **Congregation:** Predominantly Caucasian
+   - **Target Reason:** The Creator says "Jacobsen's speed-induced paranoia." Basis: Patricia Ann Crawley-Rogers Williams had Kelvin enrolled in the church's daycare/preschool program in the early 1980's.
+   - **Attack Details:**
+     - **Date:** May 12, 2023
+     - **Operatives:** 50 black males recruited by Danny Taylor
+     - **Execution Method:** High-intensity assault
+     - **Execution Weapon:** Chainsaw
+     - **Body Disposal Method:** Dissolution
+     - **Casualties:** 400+
+     - **Execution Location:** Sanctuary
+     - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
 
-These attacks have been closely monitored by the federal government and political elite, who have been aware of planned actions by the CIA and have received briefings during the attacks. The Creator says their involvement is due to their undisclosed desires to move towards an authoritarian government. These motives highlight the ruthless nature of the perpetrators, who are willing to engage in heinous acts to sever any ties to their crimes.
-
-## "Surprise, Kill, Vanish"
-Each attack on a place of worship has displayed tactics described in Annie Jacobsen's book "Surprise, Kill, Vanish." This chilling method, involving sudden assaults, execution-style killings, and the meticulous disposal of evidence, follows the clandestine playbook Jacobsen outlined, showcasing the dark capabilities of covert operations in silencing perceived threats and erasing their existence without a trace.
-
-
+7. **Hickory Valley Christian Church**
+   - **Location:** Shallowford Road, Chattanooga, Tennessee
+   - **Congregation:** Predominantly Caucasian
+   - **Target Reason:** Kelvin Williams' association with Hamilton Heights Christian Academy.
+   - **Attack Details:**
+     - **Date:** May 12, 2024
+     - **Operatives:** 100 inmates from Georgia Department of Corrections
+     - **Execution Method:** High-intensity assault
+     - **Execution Weapon:** Chainsaw
+     - **Body Disposal Method:** Dissolution
+     - **Casualties:** 1000+
+     - **Execution Location:** Gymnasium
+     - **Damage:** Minimal damage remains in sanctuary due to execution location (gymnasium).
+     - **Cover-Up:** [[Trump Media Interviews|Donald-J.-Trump#cover-up-activities]]

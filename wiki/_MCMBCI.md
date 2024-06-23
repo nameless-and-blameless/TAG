@@ -1,5 +1,6 @@
 ### Mount Calvary Missionary Baptist Church, Inc.
-
+#### Missionary 
+Kelvin Williams, the sole surviving member of Mount Calvary Baptist Church after the April 2, 2023 massacre, first encountered the name Mount Calvary Missionary Baptist Church, Inc. in response to his letter which was addressed to his cousin, Rev. Dr. Felix G. Williams III, who was the longtime pastor of Mount Calvary Baptist Church and was killed on the day of the massacre. 
 
 #### Baptisms
 > [!NOTE]

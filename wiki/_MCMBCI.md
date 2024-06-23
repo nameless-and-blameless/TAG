@@ -6,6 +6,21 @@ Following Kelvin Williams' demand letters to Mount Calvary Missionary and Baptis
 #### 40th Pastoral Anniversary Celebration
 The 40th Pastoral Anniversary of Reverend Dr. Felix G. Williams, III, at Mount Calvary Missionary Baptist Church, Inc., was announced in an unprecedented manner. Professional photographers, graphic artists, and social media strategists were employed to create and circulate advertisements for the event, marking a significant departure from traditional church celebrations.
 
+![1_uebrU1biZ49sqILyVWjmQg@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/773831f7-4da3-4542-b36c-7c6f273993db)
+
+![1_HyjCek1sRyHr43qCT063DA@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/e7b3d847-d804-4ef1-a9d4-8073353a1a0d)
+
+![1_bMPYFCWUGeY14vX8vVDytw@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/3fcb92fb-a837-4d76-840f-5565f2f1206b)
+
+![1_oVKaD9pvH0TjVG-HsyH9eQ@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/aa488e96-46ab-41f8-b685-b9fd41c7e685)
+
+![1_I7SKWtx14-ole6u0NYPepw@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/74f79980-265f-4b80-bdce-e30b2d93e34b)
+
+![1_PgvpLsskgjOhu07TvUkgnQ@2x (1).jpg](https://github.com/serviCreator/TAG/assets/155787787/0d7482be-ab1c-407b-bea7-ef4674615cc8)
+
+
+![1_z3MXoRJZt8kOwGgf2xJXLQ@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/922d76ac-1d0b-4eb9-afda-8574b057a9f9)
+
 #### Controversies and Criticisms
 The event was highly publicized, it was the first announced event for Mount Calvary Missionary Baptist Church since the church's 2023 formation after the massacre of Mount Calvary Baptist Church on April 2, 2023. Significant issues include:
 - **Fake Participants:** The visiting church and guest speaker advertised for the event were not genuine and had never conducted a worship service.

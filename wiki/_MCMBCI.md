@@ -1,7 +1,12 @@
 ### Mount Calvary Missionary Baptist Church, Inc.
 
+
 #### Baptisms
+> [!NOTE]
+> This article is still being developed and edited.
+
 ![mcmbc_baptism](https://github.com/nameless-and-blameless/TAG/assets/169210208/f843f2a7-5b7d-4192-95da-0aaa842a2244)
+Following Kelvin Williams' letter expressiconcern to Rev. Dr. Felix G. Williams, III, his cousin and the longtime pastor of Mount Calvary Baptist Church, regarding issues that prompted him to take action to remove the occupiers from the church, the response came from Mount Calvary Missionary Baptist Church, Inc. Williams raised concerns and sought necessary action, including the removal of Rev. Dr. Felix G. Williams, III, along with the associate pastors and deacons. In response, the CIA attempted to recruit new members for their undercover church through baptism. Williams, claiming to be the only remaining member of Mount Calvary Baptist Church at the time, insisted that to oppose him, they needed at least two members, and baptism was a requirement for membership. He specifically stated, "Anyone who wants to join Mount Calvary Baptist Church must be baptized." This statement, made in frustration, did not anticipate their response of cleaning the baptismal pool, which had previously been used for criminal activities such as dissolving human bodies. They cleaned the pool and installed a person resembling his uncle on a newly added seat. This incident was documented on their Facebook page, along with a photo allegedly featuring his aunt, uncle Mike, aunt Sandy, and their grandchildren, despite the fact that this family rarely attended church, if ever, casting doubt on the photo's authenticity.
 
 #### 40th Pastoral Anniversary Celebration
 ![FB_IMG_1705566697555.jpg](https://github.com/serviCreator/TAG/assets/155787787/0f9fbcab-1bfa-4c89-8867-1bdb099dd706)

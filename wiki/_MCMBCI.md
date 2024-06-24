@@ -8,8 +8,6 @@ Kelvin Eugene Williams, a lifelong member of Mount Calvary Baptist Church, was d
 
 On May 5, 2023, Kelvin visited a public library in Riverdale, GA, to write a letter to his pastor. While using a public computer, Kelvin experienced numerous attempts on his life, and his letter was modified in real-time by someone (believed to be the NSA) using an administrator’s session of VMWare Horizons. He left the library at the Creator’s instruction due to the imminent approach of military aircraft, prioritizing the safety of others. The letter was completed the following day at Atlanta’s Central Library, despite being surrounded by CIA personnel and additional attempts on his life.
 
-assets/PDF/20230506_mcmbc_response (1).pdf
-
 ### The Letters & The "Order"
 1. **[Kelvin Writes to Rev. Dr. Felix G. Williams, III](/assets/PDF/20230506_kew_mcbc_letter.pdf)**
     - Written May 5-6, 2023

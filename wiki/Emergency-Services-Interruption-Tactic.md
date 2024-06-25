@@ -1,55 +1,57 @@
 # Emergency Services Interruption Tactic (ESIT)
 ## Overview
 
-The CIA, in conjunction with other federal agencies, utilizes a multi-faceted approach to intercept communications to emergency numbers (e.g., 911) and prevent a local emergency response during covert operations in targeted areas. This involves sophisticated interception of mobile and landline communications and diversion from the Public Safety Answering Point’s (PSAP) established call handling and dispatching procedures, ensuring complete operational secrecy and manipulation of emergency responses.
+Government agencies, including the CIA, employ a multifaceted approach known as the Emergency Services Interruption Tactic (ESIT) to manage emergency communications during sensitive operations. This involves intercepting and redirecting calls to emergency numbers like 911, ensuring operational secrecy and control over local emergency responses.
 
 ## Components
 
-1. **Cell on Wheels**
+1. **Covert Cell on Wheels (CoW)**
 
-   - **Description**: A Cell on Wheels (CoW) is a mobile cellular base station used to provide temporary cellular network coverage. This particular CoW is designed to be covert, using a standard passenger vehicle (e.g., Ford Explorer) with no out-of-the-ordinary antennas or masts that need to be raised for operation.
+   - **Description**: A mobile cellular base station disguised within a standard vehicle, such as a Ford Explorer, equipped to covertly intercept and redirect mobile phone calls.
    - **Function**: 
-     - Causes all mobile phones in the target area to connect to the CoW, which has no connection or backhaul to a legitimate Mobile Network Operator/Service Provider. 
-     - Configured to redirect calls to emergency numbers, especially those to 911, to a team of CIA operatives posing as 911 dispatchers. 
-     - The CIA operatives take information and assure callers that first responders are en route. No dispatch is performed; the sole purpose is to prevent individuals under assault from forming an organized resistance. 
-     - Access to other dialed numbers and the Internet is blocked.
+     - Forces mobile phones in the targeted area to connect, redirecting emergency calls to CIA operatives posing as 911 dispatchers.
+     - Prevents legitimate emergency responses to disrupt organized resistance during covert operations.
+     - Blocks access to other numbers and the internet to maintain control.
    - **Demonstrated Use**: Yes
-     - **Note**: A covert Cell on Wheels has been parked in the immediate vicinity of each place of worship and activated just before the surprise assault begins.
+     - **Note**: Covert CoWs are strategically deployed near targets before operations commence.
+   - **Recommended Detection Protocol**:
+     - Law enforcement should monitor for unexplained fluctuations in local cellular network coverage, especially in areas known for sensitive operations.
+     - Make a test call from a personal mobile phone to 911. Verify speaking with an employee at a local PSAP and request a "radio check" from dispatch. Using a department-issued phone is not recommended, as perpetrators may allow known law enforcement agency (LEA) phones to route normally to avoid detection.
 
 2. **Memorandum for Local Dispatch Procedures Diversion**
 
-   - **Description**: A directive issued by any state or federal law enforcement agency with jurisdiction over a PSAP's area.
+   - **Description**: Directs Public Safety Answering Points (PSAPs) to reroute emergency calls from targeted areas to law enforcement agencies issuing the memorandum.
    - **Function**:
-     - Instructs the PSAP to refer any emergency requests from the targeted area to the law enforcement agency (LEA) that issued the memorandum. 
-     - The LEA will handle the call and coordinate dispatch with local authorities, ensuring no real emergency intervention occurs.
+     - Ensures emergency calls are handled by the issuing agency, delaying or redirecting genuine emergency responses.
    - **Demonstrated Use**: Yes
-     - **Notes**: Historical records and whistleblower testimonies have indicated instances where emergency services were redirected or delayed during sensitive operations.
+     - **Notes**: Historical instances and whistleblowers confirm redirection of emergency services during operations.
+   - **Recommended Detection Protocol**:
+     - Law enforcement should establish protocols to verify the legitimacy and origin of memoranda directing emergency call diversions, especially in conjunction with unusual public safety incidents.
+     - Ask the PSAP's administrator or dispatcher if any memorandums are in effect that cause diversions from the PSAP's established call handling or dispatching protocols and procedures.
 
-3. **Routing Configuration Modification**
+3. **Selective Router Tampering**
 
-   - **Description**: Modification of the routing configuration for one or more targets or targeted areas in the selected router.
+   - **Description**: Modification of routing settings to selectively reroute both mobile and landline calls away from legitimate emergency services.
    - **Function**:
-     - Ensures that calls coming from both cell phones and landlines within the targeted area are rerouted away from legitimate emergency services.
-     - These calls are diverted to a controlled point where operatives can intercept and manage the communication, preventing any real emergency response.
+     - Directs calls to controlled points where operatives manage communications, preventing genuine emergency responses.
    - **Demonstrated Use**: Yes
-     - **Notes**: Technical analyses and insider reports have revealed that routing modifications have been used to reroute calls during certain operations, effectively isolating the target area.
+     - **Notes**: Technical analyses and insider reports document routing modifications used to isolate targeted areas.
+   - **Recommended Detection Protocol**:
+     - Law enforcement should conduct regular audits of routing configurations and monitor for unauthorized changes, particularly in areas coinciding with sensitive operations.
 
 ## Execution
 
-- **Timing**: The CoW is activated just before the arrival of operatives at the target site, ensuring immediate interception of mobile communications as the operation commences. The memorandum (already received by the PSAP) and routing modifications take effect as soon as the operation starts and stop upon receiving notification from the coordinating LEA (voice call).
-- **Operational Area**: The CoW covers a minimum 0.5-mile radius around the CoW's location, ensuring all mobile signals are intercepted and rerouted. Routing modifications apply to the entire targeted area.
-- **Coordination**: The Memorandum for Local Dispatch Procedures Diversion ensures that any requests from the target’s landline received by the PSAP are sent to the law enforcement agency that issued the memorandum. This agency will handle the call and coordinate dispatch with local authorities.
+- **Timing**: CoWs activate before operatives arrive, intercepting mobile communications as operations begin. Memoranda and routing modifications take effect upon operation commencement and cease upon notification from coordinating agencies.
+- **Operational Area**: CoWs cover a minimum 0.5-mile radius, ensuring interception of all mobile signals, while routing adjustments affect entire targeted areas.
+- **Coordination**: Memoranda ensure PSAPs direct calls to the issuing agency, which coordinates responses with local authorities.
 
 ## Impact
 
-- **Manipulation**: They effectively manipulated emergency responses, preventing local authorities from intervening in the covert operation.
-- **Secrecy**: Ensured the secrecy and success of the operation by controlling and stifling emergency communication channels.
-- **Prevention of Organized Resistance**: By intercepting and rerouting emergency calls, victims are unable to realize their calls are not reaching real emergency services. This prevents them from organizing an effective resistance, reducing the likelihood of coordinated defense or overwhelming the operatives.
-- **Maintaining Operative Safety**: Operatives conducting the covert operations are protected from any immediate threat posed by victims who might otherwise confront them or attempt to defend themselves collectively.
+- **Manipulation**: Manipulates emergency responses, thwarting local intervention during covert operations.
+- **Secrecy**: Ensures operational secrecy by controlling emergency communication channels.
+- **Prevention of Organized Resistance**: Prevents victims from realizing their calls aren't reaching real emergency services, hindering organized defense efforts.
+- **Operative Safety**: Shields operatives from immediate threats posed by potential victims.
 
 #### Outcome
 
-These coordinated tactics allowed the CIA and other federal agencies to execute their covert operation in the targeted area without local emergency services interference, maintaining the element of surprise and operational secrecy essential for their mission. By preventing both external intervention and internal organization among victims, these methods ensure the operation's success and the safety of the operatives.
-
-> [!NOTE]
-> Barriers to escape and related psychological and physical tactics used to prevent escape attempts will be detailed in a separate analysis document on TAG-POW attacks.
+These tactics enable federal agencies to execute covert operations without local emergency service interference, maintaining surprise and operational success. By disrupting external intervention and victim organization, these methods secure operatives and mission objectives.

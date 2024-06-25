@@ -6,6 +6,9 @@ Mount Calvary Baptist Church, located at 4742 Todds Road in Lexington, Kentucky,
 
 Mount Calvary Baptist Church was the first massacre of a seated congregation in world history. Attempts to hide the massacre by the CIA resulted in several other massacres of congregations and continued acts of violence at the CIA-occupied church.
 
+> [!NOTE]
+> After the massacre, the CIA started [[Mount Calvary Missionary Baptist Church, Inc.|_MCMBCI]], a masquerade church which occupies the church's property and building.
+
 ## Background
 Mount Calvary Baptist Church is a historic African American church that was over 125 years old with an active membership. At the time of the massacre, the Rev. Dr. Felix G. Williams, III had been the pastor for over 40 years. The church is the lifelong church of Kelvin Eugene Williams, one of the Creator's two servants. Kelvin is also the cousin of the pastor.
 
@@ -62,7 +65,7 @@ Each victim's death is further obscured by a CIA-devised "[[Phantom Identity Sch
 ### Aftermath 
 The CIA formed Mount Calvary Missionary Baptist Church, Inc., a charade church, after the massacre to portray a sense of normalcy. They added "Missionary" to the name in response to the Creator's mission.
 
-For all of the proof anyone should ever need, see: [[40th Pastoral Anniversary|_MCBCMI]]
+For all of the proof anyone should ever need, see: [[40th Pastoral Anniversary|_MCMBCI]]
 
 > [!IMPORTANT]
 > All correspondence between Mount Calvary Missionary Baptist Church, Inc. and Kelvin Williams is available in the repository at https://GitHub.com/MCBCMF/MCBCMassacre (see /assets/pdf). Anyone investigating must review this correspondence and other critical materials. We strongly recommend cloning the repository immediately, as the government is forcing GitHub to remove it.

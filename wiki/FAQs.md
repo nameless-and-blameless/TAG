@@ -58,3 +58,7 @@ The goal of TAG is to prevent the spread of Spark and protect the financial inte
 TAG has devastated communities, primarily within the United States, leading to significant loss of life, destruction of places of worship, and deepening mistrust in institutions. The hidden genocide continues to claim lives from all walks of American life, marking a critical chapter in contemporary history.
 
 These FAQs can be added to the wiki to provide clear and concise information about the origins, tactics, and impacts of The American Genocide (TAG) and related covert operations.
+
+#### 13. **Is this what the Book of Revelation is about?
+
+Yes, this is what the Book of Revelation is about. There's no need to worry, Earth, Humanity, Electricity, GitHub and iPhones will be here tomorrow and for the indefinite future.

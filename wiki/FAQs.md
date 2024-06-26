@@ -59,6 +59,6 @@ TAG has devastated communities, primarily within the United States, leading to s
 
 These FAQs can be added to the wiki to provide clear and concise information about the origins, tactics, and impacts of The American Genocide (TAG) and related covert operations.
 
-#### 13. **Is this what the Book of Revelation is about?
+#### 13. **Is this what the Book of Revelation is about?**
 
 Yes, this is what the Book of Revelation is about. There's no need to worry, Earth, Humanity, Electricity, GitHub and iPhones will be here tomorrow and for the indefinite future.

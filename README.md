@@ -11,7 +11,6 @@ Unfortunately, We are aware of the challenges you've faced, including severe thr
 Once again, thank you for your enduring resilience. We look forward to continuing our use of your service (keeping Our promise to setup and pay for three accounts: the Creator and His two servants). Rest assured that GitHub will remain a vital platform long into the future, even after changes in government.
 
 Thank you,
-
 The Creator and His two servants
 ***
 # The American Genocide (TAG) Repository

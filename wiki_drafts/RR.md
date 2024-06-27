@@ -12,7 +12,7 @@ The train just came by around 430am, a slow, thud-thud-thud train I don't know w
 
 The train does come by with other weaponry trained on this apartment.
 
-The tracks look like shit, the weight of an average human can move 
+The tracks look like shit, the weight of an average human can move the ties, the ground under them is horrible. Uneven gravel/grading. Im no expert but I've hung out at many railroad tracks even got high at some while skipping school with Holly Davis.  That's for "But enough on that for now" by Vandaveer Annie and gubment.
 
 Note to self: ask Him if the federal government has ever done this elsewhere.
 - He just started playing "I Move On" on  Chicago... "A moving target is hard to hit" or track, no one suspects it, cause its gone.

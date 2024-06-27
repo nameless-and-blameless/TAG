@@ -1,11 +1,11 @@
 > [!CAUTION]
 > The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
+
 # The Massacre of Mount Zion Baptist Church
-Mount Zion Baptist Church, located in Versailles, Kentucky, a predominantly Black congregation, was the site of a horrific massacre in May 2023. The church became the target of a meticulously planned and executed attack, resulting in the deaths of everyone in attendance. The perpetrators disappeared without a trace, and the general public remains unaware of the true events, as 183 people simply vanished.
+
+Mount Zion Baptist Church, located in remote Woodford County, Kentucky, a predominantly Black congregation, was the site of a horrific massacre in May 2023. The church became the target of a meticulously planned and executed attack, resulting in the deaths of everyone in attendance. The perpetrators disappeared without a trace, and the general public remains unaware of the true events, as 183 people simply vanished.
 
 ## Background
-Mount Zion Baptist Church, located in Versailles, Kentucky, is a historic African American church that has been a cornerstone of its community since its founding in 1867. Established in the post-Civil War era by newly emancipated African Americans, the church has long served as a vital center for worship, education, and social activism. With its rich heritage and ongoing commitment to community service, Mount Zion Baptist Church continued to play a significant role in preserving and promoting the cultural and spiritual life of African Americans in Versailles, until the CIA's attack.
-
 Mount Zion Baptist Church had a fellowship relationship with Mount Calvary Baptist Church in Lexington, Kentucky.
 
 ## Targeting

@@ -1,3 +1,4 @@
+# Phantom Funeral 
 **Phantom Funeral** refers to a covert tactic used in the context of The American Genocide (TAG) operations. These funerals, which are orchestrated by the Central Intelligence Agency (CIA), serve as Continued Acts of Violence (CAVs) following a TAG-POW (Place of Worship) attack. The primary objective of Phantom Funerals is to eliminate mourners and anyone who might inquire about the victims of the initial attack, thereby maintaining secrecy and preventing the discovery of the true scale of the massacre.
 
 > [!CAUTION]

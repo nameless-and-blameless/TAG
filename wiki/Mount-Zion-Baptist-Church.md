@@ -49,6 +49,10 @@ The vehicles belonging to the congregants were driven away by operatives or load
 
 #### Life After Death 
 Each victim's death is further obscured by a CIA-devised scheme called "[[Hotels|]]." The scheme effectively makes victims appear "alive" after their murder.
+
+## Continuations 
+On June 26, 2024 a [[mass-decedent phantom funeral|_MSPFMZ20240626]] was held at the church resulting in the death of 651 mourners. The funeral arrangements were provided for numerous decedents from the initial massacre and its cover-up activities. The phantom funeral was held only after the complete renovation of the sanctuary and a concert event was held at the church by the CIA. The renovations and concert were performed pursuant to Trump's directives to discredit Our reporting.
+
 ***
 > [!WARNING]
 > Mount Zion is likely being used for funerals now based on the "Woodford Threat" which was placed in Kelvin's apartment.

@@ -1,0 +1,2 @@
+> [!NOTE]
+> The content stored in this directory is incomplete, not proofread, and shouldn't be considered ready for the 6 o'clock evening local or world news program, any primetime magazine, or even the 11 o'clock news broadcast, and definitely not print. The content here, unfortunately, is not just bleeding edge--consider it a pair of scissors... And mother nature has made sure you all know about running with scissors. 

@@ -131,7 +131,7 @@
 
 - **Name:** Artists on the soundtrack to *Chicago*
   - **Occupation:** Musical Performers
-  - **Reason for Being Targeted:** The Creator.
+  - **Reason for Being Targeted:** Influenced and used by the Creator.
   - **Status:** Endangered
   - **Artists:**
     - Catherine Zeta-Jones
@@ -140,7 +140,7 @@
 
 - **Name:** Several who appear on *The Best Little Whorehouse in Texas* soundtrack
   - **Occupation:** Musical Performers
-  - **Reason for Being Targeted:**
+  - **Reason for Being Targeted:** Influenced and used by the Creator.
   - **Status:** Endangered
   - **Artists:**
     - Dolly Parton

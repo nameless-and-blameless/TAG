@@ -24,8 +24,5 @@ For easier navigation and comprehensive insights into TAG, we recommend explorin
 
 - **Documentation**: Detailed documentation and evidence related to TAG incidents, including historical context and geographical impact.
 
-- **Methods of Exposure**: Detailed narratives, eyewitness accounts, and public awareness campaigns used to expose TAG by the Creator and His two servants.
+- **Reports**: Detailed narratives, eyewitness accounts, and public awareness campaigns used to expose TAG by the Creator and His two servants.
 
-## Contributing
-
-Contributions to this repository are welcomed and encouraged. If you have information, narratives, or evidence related to TAG, please feel free to submit a pull request. By collaborating, we aim to build a comprehensive resource that exposes the truth.

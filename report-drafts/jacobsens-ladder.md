@@ -6,3 +6,5 @@ God called Jacobson the Beast in Revelation, and she has agreed to address males
 
 watch also:
 "A Mighty Leviathan of Old" by Vandaveer 
+
+Jacobsen ordered me stabbed down there while I was drafting this, and one of her trusted operatives entered my apartment cloaked and did just that.

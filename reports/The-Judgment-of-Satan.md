@@ -40,6 +40,10 @@ Kelvin Williams is one of the Creator's two servants, who reports directly to th
 
 The Apocalypse, the Creator's forthcoming response to the TAG and the United States federal government's response to is considered a "Divide & Conquer" operation by Him. The "Divide" is the physical separation of Kelvin and Main. Main is "the mighty leviathan of old" on Vandaveer's "Divide & Conquer" album.
 
+**About Phoenix House**
+
+Phoenix House is a clandestine CIA kill facility, the third kill facility that Kelvin Williams has been resided at during his SpecOp for the Creator.
+
 **Conclusion**
 
 The judgment of Satan, as depicted in Revelation 20:7-10, underscores the themes of deception, conflict, divine justice, and eternal retribution. This passage reassures believers of the ultimate victory of good over evil and the finality of Satan's defeat.

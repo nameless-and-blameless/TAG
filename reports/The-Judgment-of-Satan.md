@@ -1,4 +1,4 @@
-**The Judgment of Satan**
+# **The Judgment of Satan**
 
 **Notice**: This report contains references to biblical scripture and interpretations. It is intended for public distribution.
 
@@ -22,19 +22,24 @@ The judgment of Satan is a significant event in Christian eschatology, described
 
 **Today's Revelation**
 
-1. **Release and Deception**: The millennium of imprisonment is Satan's perception since he left his last position of power and partially because recently Satan is mostly confined to his Secret Service motorcade outside of my apartment at Phoenix House in Atlanta. Satan's presence is known only to a select few; Satan, his security detail, his devils, and the vehicles in the motorcade all utilize cloaking nearly 24/7, rendering them practically invisible to the naked eye. Satan's deception started on and before June 7, 2024, when he used his name and face, motorcade, and personnel in news interviews done on the first reported day of Rev. Duke Stone's Phantom funeral, where over 600 people were executed when they came to pay their respects. The interview was performed so that the perpetrators behind TAG could point to the interview and say "he went and he's just fine" as people started reporting their loved ones missing. Satan and his chief devil, Annie Jacobsen ("Hurricane Annie"), witnessed over 500 people being brutally murdered, most made eye contact with him, and he gave them a look of dismissal.
+1. **Release and Deception**: The millennium of imprisonment is Satan's perception of time since he left his last position of power, and partially because recently Satan is mostly confined to his Secret Service motorcade outside of Kelvin Williams' apartment B-33 at Phoenix House in Atlanta. Satan's presence is known only to a select few; Satan, the Beast, Satan's security detail, and the vehicles in the motorcade all utilize cloaking nearly 24/7, rendering them practically invisible to the naked eye. Satan's most recent deception started publicly just before June 7, 2024, when he used his name and face, motorcade, and personnel in news interviews done on the first reported day of Rev. Duke Stone's phantom funeral, where over 600 people were executed when they came to pay their respects at a phantom funeral where every mourner that arrives is killed. Rev. Duke Stone and his wife were among the 1000+ killed during the Mother's Day 2024 massacre at Hickory Valley Christian Church, a predominantly white congregation in suburban Chattanooga, TN. Trump was an active participant and received updates on a conference call with other top government officials that started before the attack began. Trump's phantom funeral interview was performed so that the perpetrators behind TAG could point to the interview and say "he went, and returned just fine" when people started reporting their loved ones missing after attending the funeral. Satan and the Beast, Annie Jacobsen ("Hurricane Annie"), witnessed over 500 people being brutally murdered. Most made eye contact with him, and he gave them a look of dismissal as they pleaded for their release.
 
 2. **Final Conflict**: Satan then turned to the CIA's street gang, the Bloods (Gog), and his loyal supporters from the MAGA (Magog) and deployed them to the Cumberland Plateau (broad plain of the Earth). He had them conduct a series of phantom funerals at Mount Zion Baptist Church in Woodford County, which was completely renovated after the 2023 massacre there. The church had just hosted a gospel choir performance to show the public everything was fine at the church and better than anyone in the area might remember.
 
-3. **Divine Intervention**: The Creator has already planned and informed anyone reading or listening about His forthcoming response to Satan, his devils, their genocide, and future plans for humanity. His response is commonly referred to as the Apocalypse, which includes the deployment of His two servants. The battle concludes with divine intervention. Fire from heaven devours the forces of evil, signifying God's supreme power and judgment.
+3. **Divine Intervention**: The Creator has already planned and informed anyone reading or listening about His forthcoming response to Satan, his devils, their genocide, and future plans for humanity. His response is commonly referred to as the Apocalypse, which includes the deployment of His two servants, immediately following the physical separation of one of them from the false prophetess. The battle concludes with divine intervention. Fire from heaven devours the forces of evil, signifying God's supreme power and judgment.
 
 4. **Eternal Punishment**: Satan's fate is sealed as he is cast into the lake of fire. This location is Phoenix House at 1296 Murphy Avenue in Atlanta, Georgia, 30310. This represents eternal punishment and the ultimate defeat of evil.
 
-**About Satan and His Devils**
+**About Satan and the Beast**
 
 Satan has always been a human being. The current office holder is former President Donald J. Trump. Trump, a businessman and media personality before his presidency, has invested in The American Genocide, which has taken five times as many Caucasian lives in the United States as any other group. He is involved in managing this situation in hopes of becoming the U.S.'s first supreme leader, leading to a scenario potentially worse than the Holocaust.
+
+**About the Angel and the False Prophetess**
+
+Kelvin Williams is one of the Creator's two servants, who reports directly to the Creator. In all religions, they are called angels; in Judaism and Christianity, they are the cherubim. Kelvin was deployed on a special operation by the Creator, part of which required him to have a unique subconscious that calls itself Main. Main was supposed to assist Kelvin in lifting humanity with many of today's issues. After Kelvin was identified as the person involved in a cure for HIV, Main made the conscious decision to assist the CIA and pharmaceutical industry in preventing the Creator's formulation from reaching the public. Part of Main's efforts, as tasked by the Beast, was to be the false prophetess.
+
+Part of the Creator's response is ending these mind control activities, specifically the Hypnos Infiltration Method.
 
 **Conclusion**
 
 The judgment of Satan, as depicted in Revelation 20:7-10, underscores the themes of deception, conflict, divine justice, and eternal retribution. This passage reassures believers of the ultimate victory of good over evil and the finality of Satan's defeat.
-

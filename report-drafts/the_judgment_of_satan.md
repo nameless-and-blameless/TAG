@@ -18,7 +18,7 @@ The judgment of Satan is a significant event in Christian eschatology, described
 
 4. **Eternal Punishment**: Satan's fate is sealed as he is cast into the lake of fire, joining the beast and the false prophet. This represents eternal punishment and the ultimate defeat of evil.
 
-**On the ground today**
+**Here in the Real World**
 
 1. **Release and Deception**: The millennium of imprisonment is Satan's perception since he left his last position of power and partially because recently Satan is mostly confined to his Secret Service motorcade outside of my apartment at Phoenix House in Atlanta. Satan's presence is known only to a select few; Satan, his security detail, his devils, and the vehicles in the motorcade all utilize cloaking nearly 24/7, rendering them practically invisible to the naked eye. Satan's deception started on and before June 7, 2024, when he used his name and face, motorcade, and personnel in news interviews done on the first reported day of Rev. Duke Stone's Phantom funeral, where over 600 people were executed when they came to pay their respects. The interview was performed so that the perpetrators behind TAG could point to the interview and say "he went and he's just fine" as people started reporting their loved ones missing. Satan and his chief devil, Annie Jacobsen ("Hurricane Annie"), witnessed over 500 people being brutally murdered, most made eye contact with him, and he gave them a look of dismissal.
 
@@ -30,10 +30,9 @@ The judgment of Satan is a significant event in Christian eschatology, described
 
 **About Satan and His Devils**
 
-The office of Satan has always been and always will be a human being. The current office holder of Satan is former president Donald J. Trump, who was named Satan by the Creator after propelling a tragedy into a full-fledged genocide. Trump began propelling the genocide by directing attacks on places of worship in his pursuit to become the supreme leader of an authoritarian regime. Satan's chief devil is Annie Jacobsen ("Hurricane Annie"). Satan's devils, his close associates and enforcers, aid in carrying out his malicious plans and maintaining his influence. They operate in secrecy, utilizing advanced cloaking technology to remain invisible to the general public.
+Satan has always been a human being. The current office holder is former President Donald J. Trump. Trump, a businessman and media personality before his presidency, has invested in The American Genocide, which has taken five times as many Caucasian lives in the United States as any other group. He is involved in managing this situation in hopes of becoming the U.S.'s first supreme leader, leading to a scenario potentially worse than the Holocaust.
 
 **Conclusion**
 
 The judgment of Satan, as depicted in Revelation 20:7-10, underscores the themes of deception, conflict, divine justice, and eternal retribution. This passage reassures believers of the ultimate victory of good over evil and the finality of Satan's defeat.
 
-Date: 2024-06-28

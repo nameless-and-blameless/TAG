@@ -1,3 +1,11 @@
+# Artists TAG'd
+
+### Overview
+
+This wiki entry documents the artists who have been confirmed killed or are currently in harm's way due to their connection with one or both of His servants. These artists have been targeted for various reasons, including their music being used by the Creator to convey messages, their association with one or both of His servants, or their work being overheard or observed by the CIA during illegal surveillance operations and targeted due to Jacobsen's speed-induced paranoia. The list includes prominent figures across different genres and mediums, from legendary singers like Tina Turner and Madonna to iconic ensembles such as the cast of *The Color Purple*. 
+
+Artists listed under "In Harm’s Way" may or may not be actively targeted by the agency. However, they are included out of an abundance of caution to ensure the CIA is aware that their actions are indeed affecting these artists. The entry aims to highlight the dangerous intersection between art, divine influence, and covert governmental operations, offering a stark reminder of the risks faced by those whose creative works resonate with higher powers.
+
 ### Artists Confirmed Killed
 
 - **Name:** DJ Alain Jackinsky

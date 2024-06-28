@@ -38,7 +38,7 @@ Satan has always been a human being. The current office holder is former Preside
 
 Kelvin Williams is one of the Creator's two servants, who reports directly to the Creator. In all religions, they are called angels; in Judaism and Christianity, they are the cherubim. Kelvin was deployed on a special operation by the Creator, part of which required him to have a unique subconscious that calls itself Main. Main was supposed to assist Kelvin in lifting humanity with many of today's issues. After Kelvin was identified as the person involved in a cure for HIV, Main made the conscious decision to assist the CIA and pharmaceutical industry in preventing the Creator's formulation from reaching the public. Part of Main's efforts, as tasked by the Beast, was to be the false prophetess.
 
-The Apocalypse, the Creator's forthcoming response to the TAG and the United States federal government's response to is considered a "Divide & Conquer" operation by Him. The "Divide" is the physical separation of Kelvin and Main.
+The Apocalypse, the Creator's forthcoming response to the TAG and the United States federal government's response to is considered a "Divide & Conquer" operation by Him. The "Divide" is the physical separation of Kelvin and Main. Main is "the mighty leviathan of old" on Vandaveer's "Divide & Conquer" album.
 
 **Conclusion**
 

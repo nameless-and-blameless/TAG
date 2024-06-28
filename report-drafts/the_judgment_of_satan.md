@@ -26,7 +26,7 @@ The judgment of Satan is a significant event in Christian eschatology, described
 
 3. **Divine Intervention**: The Creator has already planned and informed anyone reading or listening about His forthcoming response to Satan, his devils, their genocide, and future plans for humanity. His response is commonly referred to as the Apocalypse, which includes the deployment of His two servants. The battle concludes with divine intervention. Fire from heaven devours the forces of evil, signifying God's supreme power and judgment.
 
-4. **Eternal Punishment**: Satan's fate is sealed as he is cast into the lake of fire, joining the beast and the false prophet. This represents eternal punishment and the ultimate defeat of evil.
+4. **Eternal Punishment**: Satan's fate is sealed as he is cast into the lake of fire this time located at Phoenix House 1296 Murphy Avenue, Atlanta, GA 30310, joining the beast and the false prophet. This represents eternal punishment and the ultimate defeat of evil.
 
 **About Satan and His Devils**
 

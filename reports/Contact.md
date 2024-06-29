@@ -8,6 +8,9 @@ Welcome to the guide for communicating securely with Nameless (born: Kelvin Euge
 
 **Contact Information:**
 
+> [!WARNING]
+> YOU MUST FOLLOW ALL OF THE ANONYMITY GUIDELINES PROVIDED HEREIN! My Moto device is likely compromised (from the manufacturer) and activated in the field!
+
 To communicate with Nameless securely on Wire, please add his username:
 - Username: @lilasrevenge
 

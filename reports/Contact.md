@@ -11,9 +11,6 @@ Welcome to the guide for communicating securely with Nameless (born: Kelvin Euge
 To communicate with Nameless securely on Wire, please add his username:
 - Username: @lilasrevenge
 
-Voice and Text (SMS) is available:
-- Telephone: 470-713-0020
-
 **Preferred Communication Style:**
 
 Nameless prefers text messages for communication on Wire. Please feel free to send text messages for inquiries, updates, or any other communication needs.

@@ -22,7 +22,7 @@ Just a couple weeks later, Madonna's brother was reported dead.  I knew immediat
 ![Screenshot_20240408-193210~2](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/f5436570-2b8b-46cd-a542-4c36ac4c8d0f)
 
 See also:
-* [Madonna speaks out for first time since her brother's death](https://www.today.com/today/amp/rcna72603)
+* [Madonna speaks out for first time since her brother's death--in writing only](https://www.today.com/today/amp/rcna72603)
 
 Listen also:
 * [The Game](https://on.soundcloud.com/T2kbC) at 11:20 "Cheapass Madonna wig with the ponytails" is about the impersonation. Released 2013.

@@ -1,12 +1,12 @@
-# Artists TAG'd
-### Overview
+# Artist TAG'd
+
+#### Overview
+
 This report documents the artists confirmed killed or currently in harm's way due to their connection with one or both of His servants. These artists have been targeted for various reasons, including their music being used by the Creator to convey messages, their association with one or both of His servants, or their work being overheard or observed by the CIA during illegal surveillance operations and targeted due to Jacobsen's speed-induced paranoia. The list includes prominent figures across different genres and mediums, from legendary singers like Tina Turner and Madonna to iconic ensembles such as the cast of *The Color Purple*.
 
 Artists listed under "In Harm’s Way" may or may not be actively targeted by the agency. However, they are included out of an abundance of caution to ensure the CIA is aware that their actions are indeed affecting these artists. This entry aims to highlight the dangerous intersection between art, divine influence, and covert governmental operations, offering a stark reminder of the risks faced by those whose creative works resonate with higher powers.
 
----
-
-**Artists Confirmed TAG'd**
+#### Artists Confirmed TAG'd
 
 - **DJ Alain Jackinsky**
   - **Occupation:** DJ
@@ -38,10 +38,20 @@ Artists listed under "In Harm’s Way" may or may not be actively targeted by th
   - **Reason for Being Targeted:** Overheard by the CIA
   - **Status:** Murdered, Phantom
 
+- **Justin Craig**
+  - **Occupation:** Multi-instrumentalist (Vandaveer)
+  - **Reason for Being Targeted:** Lyrics directly inspired by the Creator
+  - **Status:** Murdered, Phantom, Impersonated
+
 - **Madonna**
   - **Occupation:** Singer
   - **Reason for Being Targeted:** Collaboration with DJ Paulo
   - **Status:** Murdered, Phantom, impersonated
+
+- **Mark Charles Heidinger**
+  - **Occupation:** Vocals, Guitar (Vandaveer)
+  - **Reason for Being Targeted:** Childhood best friend and lifelong friend of Kelvin Williams
+  - **Status:** Murdered, Phantom, Impersonated
 
 - **Martha Wash (of The Weather Girls)**
   - **Occupation:** Singer
@@ -58,6 +68,16 @@ Artists listed under "In Harm’s Way" may or may not be actively targeted by th
   - **Reason for Being Targeted:** "Ohhhh Lord" video
   - **Status:** Murdered, Phantom
 
+- **Robby Cosenza**
+  - **Occupation:** Drums, Percussion (Vandaveer)
+  - **Reason for Being Targeted:** Lyrics directly inspired by the Creator
+  - **Status:** Murdered, Phantom, Impersonated
+
+- **Rose Guerin**
+  - **Occupation:** Vocals (Vandaveer)
+  - **Reason for Being Targeted:** Lyrics directly inspired by the Creator
+  - **Status:** Murdered, Phantom, Impersonated
+
 - **Tina Turner**
   - **Occupation:** Singer
   - **Reason for Being Targeted:** "Proud Mary" used by one or both of His servants
@@ -69,13 +89,11 @@ Artists listed under "In Harm’s Way" may or may not be actively targeted by th
   - **Status:** Murdered
 
 - **Vandaveer & Production Staff**
-  - **Occupation:** Musical ensemble & production teams
+  - **Occupation:** Production teams and actors/actresses in music videos
   - **Reason for Being Targeted:** Association with His servants
-  - **Status:** Murdered, most made into Phantoms
+  - **Status:** Some murdered, Endangered
 
----
-
-**Endangered Artists:**
+#### Endangered Artists
 
 - **Alan T**
   - **Occupation:** Performer
@@ -88,7 +106,7 @@ Artists listed under "In Harm’s Way" may or may not be actively targeted by th
   - **Status:** Endangered
 
 - **Babydaddy**
-  - **Occupation:** Keyboards, bass guitar, backing vocals (The Scissor Sisters)
+  - **Occupation:** Keyboards, Bass Guitar, Backing Vocals (The Scissor Sisters)
   - **Reason for Being Targeted:** The Magic Hour
   - **Status:** Endangered
 
@@ -108,7 +126,7 @@ Artists listed under "In Harm’s Way" may or may not be actively targeted by th
   - **Status:** Endangered
 
 - **Del Marquis**
-  - **Occupation:** Guitar, bass guitar, backing vocals (The Scissor Sisters)
+  - **Occupation:** Guitar, Bass Guitar, Backing Vocals (The Scissor Sisters)
   - **Reason for Being Targeted:** The Magic Hour
   - **Status:** Endangered
 
@@ -200,4 +218,4 @@ Artists listed under "In Harm’s Way" may or may not be actively targeted by th
 - **The Color Purple Cast (Entire)**
   - **Occupation:** Actors/Actresses
   - **Reason for Being Targeted:** Especially in the church scene
-  - **Status:** Endangered
+  - **Status:** Endangered 

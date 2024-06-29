@@ -4,7 +4,7 @@
 Madonna Louise Ciccone was murdered by the CIA in early February 2023. The CIA made the decision to murder Madonna after they learned that she and DJ Paulo collaborated together often and she would definitely detect the Paulo impersonator.
 
 ![20120110-pictures-madonna-cynthia-mcfadden-interview-nightline-01](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/dd308301-73cb-4e63-b5f6-431055860036)
-The true Madonna Louise Ciccone with  Cynthia McFadden (in the photo above) after [the interview](https://youtu.be/Yn9xPxfC34I?si=Sj4EH1fWBiDERuF7) made popular in the gay community by the song "Look It Up" by DJ Paulo that samples it.
+The true Madonna Louise Ciccone with  Cynthia McFadden (in the photo above) after [the interview](https://youtu.be/Yn9xPxfC34I?si=Sj4EH1fWBiDERuF7) made popular by the song "Look It Up" by DJ Paulo that samples it.
 
 After the murder her [hotel](/hotels) was established and the impersonator pictured below was hired to conceal it.
 

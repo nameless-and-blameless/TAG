@@ -6,6 +6,12 @@ This report documents the artists confirmed killed or currently in harm's way du
 
 Artists listed under "In Harm’s Way" may or may not be actively targeted by the agency. However, they are included out of an abundance of caution to ensure the CIA is aware that their actions are indeed affecting these artists. This entry aims to highlight the dangerous intersection between art, divine influence, and covert governmental operations, offering a stark reminder of the risks faced by those whose creative works resonate with higher powers.
 
+### The Persecution of Lyricists 
+
+It's important to note that while contemporary lyricists may compose lyrics that seem prophetic or deeply inspired, often they themselves are unaware if their words are foretelling the future or coming directly from the Creator. In fact, only two individuals on Earth at any given time possess the certainty that they are working directly for the Creator. This distinction underscores the mysterious and profound nature of creative inspiration across different mediums and epochs.
+
+Lyricists should not be persecuted for their works, as their creations often reflect personal expression, social commentary, and artistic interpretation. Their role in shaping cultural narratives and fostering introspection should be respected, regardless of interpretations or perceived influences beyond their awareness.
+
 #### Artists Confirmed TAG'd
 
 - **DJ Alain Jackinsky**

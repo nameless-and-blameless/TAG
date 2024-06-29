@@ -230,3 +230,8 @@ Lyricists should not be persecuted for their works, as their creations often ref
   - **Occupation:** Actors/Actresses
   - **Reason for Being Targeted:** Especially in the church scene
   - **Status:** Endangered 
+
+#### Kelvin's Library 
+This is Kelvin's current library, using screenshot to save time. Everyone not already killed is in endangered.
+
+![Screenshot_20240629-162313](https://github.com/nameless-and-blameless/TAG/assets/169210208/ccb3c303-1f5e-48ef-92da-91f5958b0abf)

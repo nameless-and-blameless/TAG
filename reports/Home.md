@@ -10,7 +10,8 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 * Table of Contents
      - [[Introduction & Origins of TAG|TAG]]
      - [[TAG in Places of Worship|TAGPOW]]
-     - [[Methods and Tactics|Tactics-Utilized-In-TAG]]
+     - [[Artists TAGd|]]
+     - [[How They Hide TAG|Tactics-Utilized-In-TAG]]
      - [[FAQs|]]
  
 > [!NOTE]

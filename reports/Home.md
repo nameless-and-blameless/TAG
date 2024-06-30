@@ -1,5 +1,5 @@
 > [!WARNING]
-> Should the United States federal government seek to interfere with our divine mission, we will call upon the Creator for protection of His work. Thank you for your understanding and respect.
+> Should the United States federal government seek to interfere with our divine mission, we will call upon [[the Creator|]] for protection of His work. Thank you for your understanding and respect.
 
 Read our [[Open Letter to GitHub|_OLTG]]
 ***
@@ -8,6 +8,7 @@ Read our [[Open Letter to GitHub|_OLTG]]
 Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reality of a hidden genocide occurring right before our eyes. TAG is not just a name; it's a stark representation of the systematic eradication of individuals across the United States.
 
 * Table of Contents
+     - [[The Creator|]]
      - [[Introduction & Origins of TAG|TAG]]
      - [[TAG in Places of Worship|TAGPOW]]
      - [[Artists TAGd|]]

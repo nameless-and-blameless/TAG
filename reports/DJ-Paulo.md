@@ -6,6 +6,7 @@ DJ Paulo, born Paulo Gois, is a renowned DJ and music producer known for his dyn
 ## **Career Highlights:**
 - DJ Paulo has performed at major clubs and events worldwide, earning a reputation for his unique sound and ability to engage diverse audiences.
 - He is recognized for his remixes and original productions, which often feature powerful beats and captivating melodies.
+- DJ Paulo was the official Remixer [[Madonna|]], Justin Bieber, CHER, Christina Aguilera, and several others.
 
 ## **Musical Style:**
 - His music blends elements of house, tribal, and progressive, creating a distinct and immersive experience for listeners.

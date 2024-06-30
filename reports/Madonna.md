@@ -40,19 +40,10 @@ Madonna's influence extends beyond music; she has left an indelible mark on popu
 ## **Conclusion**
 Madonna's ability to adapt and remain relevant over the decades highlights her exceptional talent and resilience. Her legacy as a trailblazer in music and culture continues to inspire artists and fans worldwide.
 
+## References 
+### See Also
 
-
-
-
-
-
-
-
-
-
-
-See also:
 * [Madonna speaks out for first time since her brother's death--in writing only](https://www.today.com/today/amp/rcna72603)
 
-Listen also:
+### Listen Also
 * [The Game](https://on.soundcloud.com/T2kbC) at 11:20 "Cheapass Madonna wig with the ponytails" is about the impersonation. Released 2013.

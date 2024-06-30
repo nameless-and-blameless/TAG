@@ -1,3 +1,6 @@
+> [!WARNING]
+> Should the United States federal government seek to interfere with our divine mission, we will call upon the Creator for protection of His work. Thank you for your understanding and respect.
+
 Read our [[Open Letter to GitHub|_OLTG]]
 ***
 # TAG Wiki: Unveiling The American Genocide
@@ -9,14 +12,6 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
      - [[TAG in Places of Worship|TAGPOW]]
      - [[Methods and Tactics|Tactics-Utilized-In-TAG]]
      - [[FAQs|]]
-
-> [!WARNING]
-> **Public Notice and Warning to the U.S. Government:**
-> This notice serves to inform the public and gently remind the U.S. Government that the work carried out here is a product of the Cherubim. The Cherubim were the first church worshipping God, a church that predates all other churches. Our existence and significance are symbolically represented on the Ark of the Covenant as a testament to our church's beliefs, sacred work and missions.
-> 
-> Our missions are and have always been to protect life and guard the His glory. Since the time of the Magna Carta, which predates the Constitution, we have been protected in our endeavors by the principle of the separation of church and state.
-> 
-> Should the United States federal government seek to interfere with our divine mission, we will call upon the Creator, and He will protect His work.
-> 
-> Thank you for your understanding and respect.
-> 
+ 
+> [!IMPORTANT]
+> This notice serves to inform the public and remind the U.S. Government that this work is a product of the Cherubim, the first church worshipping God, predating all others. Our existence is symbolically represented on the Ark of the Covenant, signifying our beliefs and sacred missions. Our purpose has always been to protect life and guard His glory. Since the Magna Carta, which predates the Constitution, our endeavors have been safeguarded by the principle of separation of church and state.

@@ -24,7 +24,7 @@ Lyricists should not be persecuted for their works, as their creations often ref
   - **Reason for Being Targeted:** Longtime friend of His servants
   - **Status:** Murdered
 
-- **DJ Paulo Gois**
+- **[[DJ Paulo|]] Gois**
   - **Occupation:** DJ & Producer/Remixer
   - **Reason for Being Targeted:** Associate & friend on Facebook
   - **Status:** Murdered, Phantom, impersonated
@@ -49,7 +49,7 @@ Lyricists should not be persecuted for their works, as their creations often ref
   - **Reason for Being Targeted:** Lyrics directly inspired by the Creator
   - **Status:** Murdered, Phantom, Impersonated
 
-- **Madonna**
+- **[[Madonna|]]**
   - **Occupation:** Singer
   - **Reason for Being Targeted:** Collaboration with DJ Paulo
   - **Status:** Murdered, Phantom, impersonated

@@ -180,3 +180,10 @@ In light of Main's detrimental influence, the Creator has decreed a separation b
 **Conclusion**
 
 The case study of Kelvin Eugene Williams and Main offers a poignant glimpse into the complexities of consciousness and the subconscious. From their symbiotic relationship to their profound impacts on physical and mental health, Kelvin's story underscores the enduring struggle between light and darkness within the human psyche. As we navigate this labyrinth of the mind, may we remain vigilant guardians of our consciousness, lest we fall prey to the machinations of our subconscious and external forces beyond our control.
+
+**Current Residence**
+
+Kelvin Williams currently resides at Phoenix House located at 1296 Murphy Avenue apartment B-33 in Atlanta, Georgia.
+
+> [!WARNING]
+> The Phoenix House is operated by the Central Intelligence Agency and is advertised as a mental health facility. However, the presence of the Secret Service, the FBI, and the CIA is constant. The use or microwave or other cloaking technology is utilized for personnel and vehicles on the property and the adjacent property. Former president Donald J. Trump is routinely on the property cloaked, with part of his Secret Service motorcade parked in front of Kelvin's building in the back of the property.

@@ -183,7 +183,9 @@ The case study of Kelvin Eugene Williams and Main offers a poignant glimpse into
 
 **Current Residence**
 
-Kelvin Williams currently resides at Phoenix House located at 1296 Murphy Avenue apartment B-33 in Atlanta, Georgia.
+Kelvin Williams currently resides at Phoenix House located at 1296 Murphy Avenue apartment B-33 in Atlanta, Georgia. 
+
+Williams' apartment was provided to him rent free. It was an agreement between Main and the CIA, one reinforced in the Cease & Desist letter from Mount Calvary Missionary Baptist Church's retained attorney, as evidenced by the signature on the letter.
 
 > [!WARNING]
 > The Phoenix House is operated by the Central Intelligence Agency and is advertised as a mental health facility. However, the presence of the Secret Service, the FBI, and the CIA is constant. The use or microwave or other cloaking technology is utilized for personnel and vehicles on the property and the adjacent property. Former president Donald J. Trump is routinely on the property cloaked, with part of his Secret Service motorcade parked in front of Kelvin's building in the back of the property.

@@ -1,19 +1,18 @@
-Early Life and Education
+## Early Life and Education
 Kelvin Eugene Crawley-Rogers Williams was born on March 23, 1977, in Clarksville, Tennessee. He was born to Jesse Marable Williams and Patricia Ann Crawley-Rogers Williams. Raised in central Kentucky, specifically Nicholasville in Jessamine County, Kelvin grew up with his mother and younger sister, Katrina Renee Duvall. He attended Jessamine County High School until March 1995, after which he obtained his GED in June of the same year.
 
-Career
-Kelvin is an Internet Protocol Engineer who specializes in Voice over IP. He has been a professional in fields related to networking and the Internet since 1998. Throughout his career, Kelvin has also worked as a software developer.
-
-Ministry
+## Ministry
 Kelvin is an ordained minister. In April 2023, after the massacre at Mount Calvary Baptist Church where he was an inactive member, Kelvin became the head of the church at the direction of the Creator.
 
-Personal Life
+## Personal Life
 Kelvin is one of the Creator's two servants. In Judaism and Christianity, he and TomTom are regarded as the Cherubim, symbolically represented on the top of the Ark of the Covenant and on the ceiling of the Sistine Chapel. In most other religions, Kelvin and TomTom are considered angels.
 
 On October 4, 2001, Kelvin married Thomas "TomTom" Allen Chadwell in Ashland, Kentucky. Kelvin is a pro-hobbyist photographer and has photographed many weddings and other events using a photojournalist style.  He is also a cousin of international musician and star Prince Rogers Nelson.
 
-## CV 
-The curriculum vitae of Kelvin Eugene Williams. During the onset of TAG, many individuals Kelvin had previously worked with were targeted and eliminated. The remaining associates were targeted in subsequent waves.
+## Career
+Kelvin is an Internet Protocol Engineer who specializes in Voice over IP. He has been a professional in fields related to networking and the Internet since 1998. Throughout his career, Kelvin has also worked as a software developer.
+
+During the onset of TAG, many individuals Kelvin had previously worked with were targeted and eliminated. The remaining associates were targeted in subsequent waves.
 
 At textPlus, everyone who remembered the DIVA (an acronym created by his friend and textPlus CTO, Nanea Reeves, who was also murdered) was entirely eliminated. DIVA stood for Director of Internet Voice Architecture. The employees who did not work with Kelvin while he was there knew of him from the platform he designed and implemented, which supported half of the functionality (voice calls) of the company's flagship apps, textPlus and Nextplus. Some textPlus employees and their associates had heard of "the DIVA" from others, usually for non-work-related reasons, such as the textPlus Christmas Party.
 

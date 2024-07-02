@@ -12,11 +12,13 @@ For what seemed like an eternity, Marc and I tried to reason with Jim, assuring 
 
 ### The Role of Paranoia in TAG Operations
 
-In a broader context, speed-induced paranoia has been exploited in covert operations like TAG (The American Genocide). Operatives under the influence of stimulants were manipulated to carry out ruthless attacks on places of worship and communities, driven by unfounded fears and heightened aggression. This paranoia not only facilitated the execution of violent acts but also complicated efforts to maintain secrecy and cover-up these heinous crimes.
+In a broader context, speed-induced paranoia has been exploited in covert operations like TAG (The American Genocide). According to a report dated June 30, 2024, titled "TAG-POW Attacks on Chattanooga Churches," affiliated congregations Grace Episcopal Church and Silverdale Baptist Church in Chattanooga, Tennessee were targeted by coordinated assaults during morning worship services. The attacks involved operatives from the Georgia Department of Corrections who were misled into participating under false pretenses of national security benefits, alongside armed individuals previously involved in other TAG-POW operations ("June 30, 2024 TAG-POW Attacks on Chattanooga Churches," 2024).
 
-### Targeting of Calvary Baptist Church
+Operational details revealed that following the attacks, inmate operatives were immediately eliminated within the church premises by the armed operatives to maintain operational secrecy. Subsequently, a third group, identified as loyal Trump supporters using Hypnos Infiltration, arrived post-body disposal to further eliminate those responsible ("June 30, 2024 TAG-POW Attacks on Chattanooga Churches," 2024).
 
-Calvary Baptist Church was tragically targeted as part of TAG operations, driven by speed-induced paranoia. The perpetrators, influenced by drugs and manipulated beliefs, executed a devastating assault on the congregation, resulting in significant casualties. This incident underscores the destructive power of paranoia when exploited for malicious ends.
+The CIA's involvement post-attack targeted current and former students of St. Nicholas School and Silverdale Baptist Academy, along with their families, in efforts to prevent leaks or investigations that could expose the covert nature of the assaults ("June 30, 2024 TAG-POW Attacks on Chattanooga Churches," 2024).
+
+These churches were targeted due to speed-induced paranoia, and now the perpetrators are reportedly going house to house in Chattanooga, systematically killing students who attended the school and their families to avoid detection.
 
 ### Conclusion
 

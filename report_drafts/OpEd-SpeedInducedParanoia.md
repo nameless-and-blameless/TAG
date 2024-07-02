@@ -30,9 +30,9 @@ In 2022, the peaceful town of Sandy Hook in Maury County, Tennessee, was shatter
 
 
 
-Each subsequent assault on various assemblies has been primarily driven by speed-induced paranoia. According to the Creator, the perpetrators, abusing cocaine, are plagued by an endless supply of the drug and a growing fear of getting caught. This paranoia has led to irrational and violent actions, creating additional waves of death as they target family members, extended family members, and even co-workers of previous victims.
+Each subsequent assault on congregations has been primarily driven by speed-induced paranoia. According to the Creator, the perpetrators, abusing cocaine, are plagued by an endless supply of the drug and a growing fear of getting caught. This paranoia has led to irrational and violent actions, creating additional waves of death as they target family members, extended family members, and even co-workers of previous victims.
 
-
+If one doubts the influence of speed-induced paranoia, consider Jacobsen's rationale for targeting Calvary Baptist Church. For decades, the church has operated a preschool and daycare program. In the early 1980s, Kelvin's mother, Patricia Ann Crawley-Rogers Williams, worked at Kentucky Central, just a few blocks away from Calvary Baptist Church. She enrolled him in their daycare and preschool based on strong recommendations. However, after he started kindergarten, neither his mother nor him maintained any contact with the church, school, or anyone associated with these programs. Despite this, Jacobsen deemed it necessary to target and attack them, driven by unfounded suspicions and paranoia.
 
 The common thread linking these horrific events is the CIA's paranoia. Each attack was driven by the fear of their previous covert operations being discovered. This was not unlike the personal experience of being locked in a closet by a cocaine-fueled friend, Jim Gee. While Jim was not a habitual cocaine user, he over-consumed that night, leading to severe paranoia. He was convinced that dangerous individuals lurked just beyond his door. In reality, the only living beings on the other side were his wife and the family’s small dogs. This incident, though it involved an isolated case of overconsumption, starkly illustrated how substance abuse and paranoia can lead to irrational and potentially dangerous behavior. Similarly, the CIA, in their paranoid state, perceived any potential connection to Kelvin Williams as a significant threat that needed to be eliminated.
 
@@ -142,25 +142,14 @@ Kelvin Williams’ hometown of Nicholasville in Jessamine County, Kentucky, and 
 
      - A third group of loyal Trump supporters arrived post-body disposal and eliminated the armed operatives to maintain secrecy.
 
-   - **Reason:** Paranoia of having their previous covert operations discovered and the associated risk of exposure.
-
-
-
-9. **Subsequent Assemblies**
-
-   - **Date:** Ongoing
-
-   - **Details:** The CIA continued targeting various assemblies, driven by the same speed-induced paranoia.
-
-   - **Reason:** Preventing discovery of previous covert operations.
-
+   - **Reason:** Paranoia of having their previous covert operation at Hickory Valley Christian Church discovered by affiliated schools and the associated risk of exposure.
 
 
 #### CIA's Use of Inmates and Phantom Funerals
 
 
 
-In a chilling development, the CIA began using inmates as operatives in their TAG-POW attacks. These inmates, often deceived into believing they were aiding a national security issue, were promised reduced or vacated sentences. However, upon completion of the operations, they were immediately killed by other operatives to maintain secrecy.
+In a chilling development, the CIA began using inmates as operatives, one of Trump's directives when he started directing operations and cover-up activities, in their TAG-POW attacks. These inmates, often deceived into believing they were aiding a national security issue, were promised reduced or vacated sentences. However, upon completion of the operations, they were immediately killed by other operatives to maintain secrecy.
 
 
 
@@ -180,4 +169,4 @@ Following the June 30, 2024, attacks on Grace Episcopal Church and Silverdale Ba
 
 
 
-The TAG Genocide stands as a stark reminder of the devastating impact of paranoia and unchecked power. The events that unfolded from Sandy Hook to the numerous TAG-POW attachs reveal a tragic narrative of fear, power, and the extreme lengths to which an organization will go to protect its interests. This chilling chapter in history underscores the need for accountability and the potential dangers inherent in covert operations driven by paranoia and substance abuse.
+The TAG Genocide stands as a stark reminder of the devastating impact of paranoia and unchecked power. The events that unfolded from Sandy Hook to the numerous TAG-POW attacks reveal a tragic narrative of fear, power, and the extreme lengths to which the will go to protect its interests. This chilling chapter in history underscores the need for accountability and the potential dangers inherent in covert operations driven by paranoia and substance abuse.

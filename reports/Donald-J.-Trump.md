@@ -101,4 +101,4 @@ Trump's active involvement in [[The American Genocide|TAG]], including the use o
 * [[Phantom Funeral of Rev. Duke Stone|]]
 * [[Your Mind For Rent|]]
 ### Listen Also
-* [[Miss Lady DJ by Vandaveer|_Miss-Lady-DJ]]
+* [[Miss Lady DJ by RuPaul|_Miss-Lady-DJ]]

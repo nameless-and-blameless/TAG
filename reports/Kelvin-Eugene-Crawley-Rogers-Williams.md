@@ -1,5 +1,18 @@
-## CV 
-The curriculum vitae of Kelvin Eugene Williams. During the onset of TAG, many individuals Kelvin had previously worked with were targeted and eliminated. The remaining associates were targeted in subsequent waves.
+## Early Life and Education
+Kelvin Eugene Crawley-Rogers Williams was born on March 23, 1977, in Clarksville, Tennessee. He was born to Jesse Marable Williams and Patricia Ann Crawley-Rogers Williams. Raised in central Kentucky, specifically Nicholasville in Jessamine County, Kelvin grew up with his mother and younger sister, Katrina Renee Duvall. He attended Jessamine County High School until March 1995, after which he obtained his GED in June of the same year.
+
+## Ministry
+Kelvin is an ordained minister. In April 2023, after the massacre at Mount Calvary Baptist Church where he was an inactive member, Kelvin became the head of the church at the direction of the Creator.
+
+## Personal Life
+Kelvin is one of the Creator's two servants. In Judaism and Christianity, he and TomTom are regarded as the Cherubim, symbolically represented on the top of the Ark of the Covenant and on the ceiling of the Sistine Chapel. In most other religions, Kelvin and TomTom are considered angels.
+
+On October 4, 2001, Kelvin married Thomas "TomTom" Allen Chadwell in Ashland, Kentucky. Kelvin is a pro-hobbyist photographer and has photographed many weddings and other events using a photojournalist style.  He is also a cousin of international musician and star Prince Rogers Nelson.
+
+## Career
+Kelvin is an Internet Protocol Engineer who specializes in Voice over IP. He has been a professional in fields related to networking and the Internet since 1998. Throughout his career, Kelvin has also worked as a software developer.
+
+During the onset of TAG, many individuals Kelvin had previously worked with were targeted and eliminated. The remaining associates were targeted in subsequent waves.
 
 At textPlus, everyone who remembered the DIVA (an acronym created by his friend and textPlus CTO, Nanea Reeves, who was also murdered) was entirely eliminated. DIVA stood for Director of Internet Voice Architecture. The employees who did not work with Kelvin while he was there knew of him from the platform he designed and implemented, which supported half of the functionality (voice calls) of the company's flagship apps, textPlus and Nextplus. Some textPlus employees and their associates had heard of "the DIVA" from others, usually for non-work-related reasons, such as the textPlus Christmas Party.
 
@@ -180,3 +193,26 @@ In light of Main's detrimental influence, the Creator has decreed a separation b
 **Conclusion**
 
 The case study of Kelvin Eugene Williams and Main offers a poignant glimpse into the complexities of consciousness and the subconscious. From their symbiotic relationship to their profound impacts on physical and mental health, Kelvin's story underscores the enduring struggle between light and darkness within the human psyche. As we navigate this labyrinth of the mind, may we remain vigilant guardians of our consciousness, lest we fall prey to the machinations of our subconscious and external forces beyond our control.
+
+## Impersonators
+
+Williams is aware that the CIA has trained several impersonators based on information obtained from Main during Hypnos Infiltration Interrogation sessions. He urges the public to "go deep, without delay" when discussing any details with him—be it about his family, personal or family background, recent history, or his life since TAG started. This will help verify the true Kelvin.
+
+The CIA is likely trying to enact the song "Alphabet Street," written by Kelvin's cousin, Prince Rogers Nelson, using an impersonator for TomTom. TomTom is from Kanawha County, West Virginia, and Kelvin says, "wears that sickle everywhere, he will gladly show you and it may just scare you to death that an angel would have such a thing."
+
+## **Current Residence**
+
+Kelvin Williams currently resides at Phoenix House, located at 1296 Murphy Avenue, Apartment B-33, in Atlanta, Georgia.
+
+Williams' apartment is provided to him rent-free as part of an agreement between Main and the CIA, reinforced by a Cease & Desist letter from the attorney retained by Mount Calvary Missionary Baptist Church, as evidenced by the signature on the letter.
+
+> [!WARNING]
+> Phoenix House is operated by the Central Intelligence Agency and is advertised as a mental health facility. However, the presence of the Secret Service, the FBI, and the CIA is constant. Microwave or other cloaking technology is used for personnel and vehicles on the property and adjacent properties. Former President Donald J. Trump is routinely on the property cloaked, with part of his Secret Service motorcade parked in front of Kelvin's building at the back of the property.
+
+## Travel Plans
+
+Upcoming travel: "Alphabet Street"
+
+A cemetery audit of his family's cemetery located at approximately 8375 West Sheepneck Road in Sandy Hook (Mount Pleasant), Tennessee. The cemetery was desecrated after the Sandy Hook mass killing of his family and the Orr Chapel Tragedy.
+
+(Until further updates, the true Kelvin is in Atlanta, Georgia)

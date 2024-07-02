@@ -24,7 +24,7 @@ Lyricists should not be persecuted for their works, as their creations often ref
   - **Reason for Being Targeted:** Longtime friend of His servants
   - **Status:** Murdered
 
-- **DJ Paulo Gois**
+- **[[DJ Paulo|]] Gois**
   - **Occupation:** DJ & Producer/Remixer
   - **Reason for Being Targeted:** Associate & friend on Facebook
   - **Status:** Murdered, Phantom, impersonated
@@ -49,7 +49,7 @@ Lyricists should not be persecuted for their works, as their creations often ref
   - **Reason for Being Targeted:** Lyrics directly inspired by the Creator
   - **Status:** Murdered, Phantom, Impersonated
 
-- **Madonna**
+- **[[Madonna|]]**
   - **Occupation:** Singer
   - **Reason for Being Targeted:** Collaboration with DJ Paulo
   - **Status:** Murdered, Phantom, impersonated
@@ -104,10 +104,14 @@ Lyricists should not be persecuted for their works, as their creations often ref
   - **Occupation:** Performer
   - **Reason for Being Targeted:** The lyrics for Miss Lady DJ and several other songs on Supermodel of the world are directly from the Creator. Miss Lady DJ is a reference to Donald Trump, the song gives a first-hand account of attending the phantom funeral of Rev. Duke Stone. Wherein mourners entering the sanctuary were immediately grabbed, taken by force to the gymnasium where Trump was seen in the announcer's booth, making eye contact with him, pleading with him for their release, all whike waiting and seeing others being behaded while on their feet. "Lady" is a term used by some 5o indicate a person that is well-behaved in public. "Woman" is a reference to Hurricane Annie or Annie Jacobsen who conducted the phantom funeral for Trump. "Tearing off the roof" is a reference to "Hurricane Annie, tore the ceiling off a church and killed everyone inside."
   - **Status:** EXTREMELY Endangered
-  - 
+  - **"Miss Lady DJ" Lyricists:**
+       - A. Charles
+       - Eric Kupper
+       - Jimmy Harry
+       - RuPaul 
 
 - **Alan T**
-  - **Occupation:** Performer
+  - **Occupation:** Performed
   - **Reason for Being Targeted:** Overheard by the CIA
   - **Status:** Endangered
 
@@ -230,3 +234,8 @@ Lyricists should not be persecuted for their works, as their creations often ref
   - **Occupation:** Actors/Actresses
   - **Reason for Being Targeted:** Especially in the church scene
   - **Status:** Endangered 
+
+#### Kelvin's Library 
+This is Kelvin's current library, using screenshot to save time. Everyone not already killed is in endangered.
+
+![Screenshot_20240629-162313](https://github.com/nameless-and-blameless/TAG/assets/169210208/ccb3c303-1f5e-48ef-92da-91f5958b0abf)

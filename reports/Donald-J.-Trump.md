@@ -96,5 +96,9 @@ A hypothetical scenario that explores a big setup that would accomplish everythi
 
 Trump's active involvement in [[The American Genocide|TAG]], including the use of inmates, CIA employees, and HIT-conditioned operatives for violent attacks, orchestration of cover-ups, and elimination of operatives, underscores his ruthless commitment to secrecy and control. Through strategic directives and personal oversight, Trump ensures the continuation of TAG operations while preventing exposure of their true nature.
 
-## See Also
+## References
+### See Also
+* [[Phantom Funeral of Rev. Duke Stone|]]
 * [[Your Mind For Rent|]]
+### Listen Also
+* [[Miss Lady DJ by RuPaul|_Miss-Lady-DJ]]

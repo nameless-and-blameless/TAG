@@ -9,7 +9,7 @@
 
 ## **Overview:**
 
-"Miss Lady DJ" is a compelling and thought-provoking song by RuPaul, featured on the 1993 album *Supermodel of the World*. The song provides a firsthand account of the protagonist's harrowing experience at a phantom funeral, which unfolds as a mass-killing. Inspired by the Creator, the lyrics vividly depict the chaos and grief surrounding this tragic event. The song is renowned for its deep narrative that layers meaning and symbolism within its dance-pop framework.
+"Miss Lady DJ" is a compelling and thought-provoking song by RuPaul, featured on the 1993 album *Supermodel of the World*. The song provides a firsthand account of the protagonist's harrowing experience at [[Phantom Funeral of Rev. Duke Stone|]], which unfolds as a mass-killing. Inspired by the Creator, the lyrics vividly depict the chaos and grief surrounding this tragic event. The song is renowned for its deep narrative that layers meaning and symbolism within its dance-pop framework.
 
 ## **Lyrics and Themes:**
 

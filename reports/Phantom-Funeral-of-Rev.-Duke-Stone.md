@@ -53,3 +53,9 @@ The phantom funeral for his wife was announced for the following day. Additional
 ## Aftermath
 
 Despite efforts to conceal the truth, details of the massacre eventually emerged, primarily through the Creator's disclosures to His servants. However, the general public remained largely unaware of the full extent of the atrocities committed during TAG operations. Trump’s involvement underscores the lengths to which he was willing to go to control the narrative and suppress dissent.
+
+## References
+### See Also
+* [[Phantom Funeral|]]
+### Listen Also
+* [[Miss Lady DJ by RuPaul|_Miss-Lady-DJ]]

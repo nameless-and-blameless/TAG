@@ -1,0 +1,20 @@
+name: Update Wiki Components 
+
+on:
+  push:
+    paths:
+      - wiki/**  
+  workflow_dispatch:
+  
+jobs:
+  update-wiki:
+    runs-on: ubuntu-latest
+
+    steps:
+      - uses: actions/checkout@v4
+
+      - name: Update Wiki
+        uses: OrlovM/Wiki-Action@master
+        with:
+          path: wiki
+          token: ${{ secrets.GITHUB_TOKEN }}

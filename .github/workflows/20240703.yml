@@ -1,0 +1,35 @@
+name: Rename and Copy Files Workflow wiki
+
+on:
+  push:
+    branches:
+      - main  # Adjust branch name as needed
+  workflow_dispatch:
+
+jobs:
+  rename-and-copy:
+    runs-on: ubuntu-latest
+    
+    steps:
+      - name: Checkout code
+        uses: actions/checkout@v2
+        
+      # Step 1: Rename the directory wiki_stuff to wiki
+      - name: Rename directory
+        run: mv wiki_stuff wiki
+      
+        
+      # Step 3: Commit changes
+      - name: Commit changes
+        run: |
+          git config --global user.email "actions@github.com"
+          git config --global user.name "GitHub Actions"
+          git add .
+          git commit -m "Automated: Renamed wiki_stuff to wiki and copied files from reports directory"
+          
+      # Step 4: Push changes back to the repository
+      - name: Push changes
+        uses: ad-m/github-push-action@master
+        with:
+          github_token: ${{ secrets.GITHUB_TOKEN }}
+          branch: ${{ github.ref }}

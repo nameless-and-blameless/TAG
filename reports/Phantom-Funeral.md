@@ -1,9 +1,6 @@
 # Phantom Funeral 
 **Phantom Funeral** refers to a covert tactic used in the context of The American Genocide (TAG) operations. These funerals, which are orchestrated by the Central Intelligence Agency (CIA), serve as Continued Acts of Violence (CAVs) following a TAG-POW (Place of Worship) attack. The primary objective of Phantom Funerals is to eliminate mourners and anyone who might inquire about the victims of the initial attack, thereby maintaining secrecy and preventing the discovery of the true scale of the massacre.
 
-> [!CAUTION]
-> Be sure to see the list of [planned phantom funerals](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funerals#known-planned-phantom-funerals).
-
 # Overview
 
 Phantom Funerals are a calculated extension of the violence initiated during TAG-POW attacks. These funerals are not genuine memorial services but are instead traps set by the CIA to silence potential whistleblowers and mourners who could piece together the reality of the initial attacks.
@@ -43,8 +40,7 @@ Phantom Funerals are part of the broader TAG operations, which aim to push the U
 
 Phantom Funerals highlight the extreme measures taken to maintain the secrecy of TAG operations. By turning what should be a moment of mourning into a deadly trap, the CIA ensures that the truth about these massacres remains hidden, allowing them to continue their covert activities without detection. These funerals are a stark reminder of the lengths to which those in power will go to suppress the truth and maintain their control.
 
-***
-## Known Planned Phantom Funerals 
+## Notable Phantom Funerals 
 
-* The longtime pastor, Rev. Duke Stone of Hickory Valley Christian Church, who also served as the principal of Hamilton Heights Christian Academy, was murdered during the [[Mother's Day massacre|Hickory Valley Christian Church]]. The CIA has now essentially advertised funeral arrangements for this community pillar. This Phantom Funeral is expected to result in thousands of deaths immediately, potentially leading to a situation worse than the Holocaust. The funeral has been announced for Friday, June 7, 2024, at Hickory Valley Christian Church in Chattanooga.
+* On June 7, 2024 A [[phantom funeral|]] was held for the the longtime pastor, Rev. Duke Stone of Hickory Valley Christian Church, who also served as the principal of Hamilton Heights Christian Academy, was killed during the [[Mother's Day massacre a Hickory Valley Christian Church|Hickory Valley Christian Church]]. The phantom funeral was personally attended by [[Donald J. Trump|]] who attended for cover-up and discrediting purposes, and watched over 500 people be executed.
 * On June 26, 2024 a [[mass-decedent phantom funeral|_MSPFMZ20240626]] was held at the church resulting in the death of 651 mourners. The funeral arrangements were provided for numerous decedents from the initial massacre and its cover-up activities. The phantom funeral was held only after the complete renovation of the sanctuary and a concert event was held at the church by the CIA. The renovations and concert were performed pursuant to Trump's directives to discredit Our reporting.

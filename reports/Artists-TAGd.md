@@ -102,7 +102,7 @@ Lyricists should not be persecuted for their works, as their creations often ref
 #### Endangered Artists
 - **RuPaul**
   - **Occupation:** Performer
-  - **Reason for Being Targeted:** The lyrics for Miss Lady DJ and several other songs on Supermodel of the world are directly from the Creator. Miss Lady DJ is a reference to Donald Trump, the song gives a first-hand account of attending the phantom funeral of Rev. Duke Stone. Wherein mourners entering the sanctuary were immediately grabbed, taken by force to the gymnasium where Trump was seen in the announcer's booth, making eye contact with him, pleading with him for their release, all whike waiting and seeing others being behaded while on their feet. "Lady" is a term used by some 5o indicate a person that is well-behaved in public. "Woman" is a reference to Hurricane Annie or Annie Jacobsen who conducted the phantom funeral for Trump. "Tearing off the roof" is a reference to "Hurricane Annie, tore the ceiling off a church and killed everyone inside."
+  - **Reason for Being Targeted:** The lyrics for [[Miss Lady DJ|_Miss-Lady-DJ]].
   - **Status:** EXTREMELY Endangered
   - **"Miss Lady DJ" Lyricists:**
        - A. Charles

@@ -17,10 +17,7 @@ jobs:
       # Step 1: Rename the directory wiki_stuff to wiki
       - name: Rename directory
         run: mv wiki_stuff wiki
-        
-      # Step 2: Copy all files in the reports directory to wiki directory
-      - name: Copy files
-        run: cp -R reports/. wiki/
+      
         
       # Step 3: Commit changes
       - name: Commit changes

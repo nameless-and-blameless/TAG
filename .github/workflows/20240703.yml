@@ -1,4 +1,4 @@
-name: Rename and Copy Files Workflow
+name: Rename and Copy Files Workflow wiki
 
 on:
   push:

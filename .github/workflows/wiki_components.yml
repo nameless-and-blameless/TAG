@@ -3,7 +3,7 @@ name: Update Wiki Components
 on:
   push:
     paths:
-      - wiki_stuff/**  
+      - wiki/**  
   workflow_dispatch:
   
 jobs:
@@ -16,5 +16,5 @@ jobs:
       - name: Update Wiki
         uses: OrlovM/Wiki-Action@master
         with:
-          path: wiki_stuff
+          path: wiki
           token: ${{ secrets.GITHUB_TOKEN }}

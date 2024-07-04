@@ -1,4 +1,4 @@
-# Report on the Song "Shady Love" by the Scissor Sisters
+# Song: "Shady Love" by the Scissor Sisters
 
 **Title:** Shady Love  
 **Artist:** Scissor Sisters  

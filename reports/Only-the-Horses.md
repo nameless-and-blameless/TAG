@@ -7,7 +7,8 @@
 **Genre:** Dance-pop, Electropop  
 **Writers:** Jason Sellards, Scott Hoffman, Ana Lynch, Alex Ridha
 
----
+> [!IMPORTANT]
+> This report delves into the topic of the forthcoming apocalypse. It's crucial to clarify that "apocalypse" doesn't signify the end of the world or human existence. **Remember, the world isn't ending today—it simply can't, because somewhere on Earth, it's already tomorrow!**
 
 ## **Overview**
 

@@ -8,14 +8,11 @@
 **Subject:** Executions Occurring In Commandeered Hamilton Heights Christian Academy Gymnasium
 
 **Summary:**
-Intelligence indicates a credible threat at Hamilton Heights Christian Academy's gymnasium, involving planned executions of students and families associated with Grace Episcopal Church, Silverdale Baptist Church, St. Nicholas School, and Silverdale Baptist Academy.
+Intelligence indicates a credible threat at Hamilton Heights Christian Academy's gymnasium, involving planned executions of students and families associated with Hamilton Heights Christian Academy and Hickory Valley Christian Church.
 
 **Details:**
 1. **Targeted Entities:**
-   - Grace Episcopal Church
-   - Silverdale Baptist Church
-   - St. Nicholas School
-   - Silverdale Baptist Academy
+   - Any entity with an affiliation with Hickory Valley Christian Church or Hamilton Heights Christian Academy.
 
 2. **Locations:**
    - Hamilton Heights Christian Academy Gymnasium

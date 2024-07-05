@@ -18,11 +18,11 @@ Ken was the first proof of Spark's effectiveness, a revolutionary treatment thre
 
 
 
-#### The Country Chapel Tragedy
+#### The Orr Chapel Tragedy
 
 
 
-In 2022, the peaceful town of Sandy Hook in Maury County, Tennessee, was shattered when the Crawley and Rogers families mysteriously vanished. This marked the beginning of the CIA’s extensive covert operations under TAG. Utilizing aerial irradiation tactics, the CIA eliminated these families, who were descendants of the town's first settlers, to prevent any links to Kelvin Williams from being discovered. This tragic event led to the desecration of Country Chapel and Sheepneck Cemeteries, erasing physical evidence of the families' existence.
+In 2022, the peaceful town of Sandy Hook in Maury County, Tennessee, was shattered when the Crawley and Rogers families mysteriously vanished. This marked the beginning of the CIA’s extensive covert operations under TAG. Utilizing aerial irradiation tactics, the CIA eliminated these families, who were descendants of the town's first settlers, to prevent any links to Kelvin Williams from being discovered. This tragic event led to the desecration of Orr Chapel and Sheepneck Cemeteries, erasing physical evidence of the families' existence.
 
 
 
@@ -34,7 +34,7 @@ Each subsequent assault on congregations has been primarily driven by speed-indu
 
 If one doubts the influence of speed-induced paranoia, consider Jacobsen's rationale for targeting Calvary Baptist Church. For decades, the church has operated a preschool and daycare program. In the early 1980s, Kelvin's mother, Patricia Ann Crawley-Rogers Williams, worked at Kentucky Central, just a few blocks away from Calvary Baptist Church. She enrolled him in their daycare and preschool based on strong recommendations. However, after he started kindergarten, neither his mother nor him maintained any contact with the church, school, or anyone associated with these programs. Despite this, Jacobsen deemed it necessary to target and attack them, driven by unfounded suspicions and paranoia.
 
-The common thread linking these horrific events is the CIA's paranoia. Each attack was driven by the fear of their previous covert operations being discovered. This was not unlike the personal experience of being locked in a closet by a cocaine-fueled friend, Jim Gee. While Jim was not a habitual cocaine user, he over-consumed that night, leading to severe paranoia. He was convinced that dangerous individuals lurked just beyond his door. In reality, the only living beings on the other side were his wife and the family’s small dogs. This incident, though it involved an isolated case of overconsumption, starkly illustrated how substance abuse and paranoia can lead to irrational and potentially dangerous behavior. Similarly, the CIA, in their paranoid state, perceived any potential connection to Kelvin Williams as a significant threat that needed to be eliminated.
+The common thread linking these horrific events is the CIA's paranoia. Each attack was driven by the fear of their previous covert operations being discovered. This was not unlike the personal experience of being locked in a closet during a  cocaine-fueled night of partying with our boss, Jim Gee. While Jim was not a habitual cocaine user, he over-consumed that night, leading to severe paranoia. Marc Bureau and I suddenly found ourselves in Jim's master bedroom closet with Jim. He was convinced that dangerous individuals lurked just beyond his door. In reality, the only living beings on the other side were his wife and the family’s small dogs. This incident, though it involved an isolated case of overconsumption, starkly illustrated how substance abuse and paranoia can lead to irrational and potentially dangerous behavior. Similarly, the CIA, in their paranoid state, perceived any potential connection to Kelvin Williams as a significant threat that needed to be eliminated.
 
 
 
@@ -167,6 +167,6 @@ Following the June 30, 2024, attacks on Grace Episcopal Church and Silverdale Ba
 
 #### Conclusion
 
-
+Marc and I were finally able to talk some sense into Jim once the drug's effects subsided some. Luckily, in the rush to protect us Jim left the little packet of cocaine in the other room. Unfortunately, the perpetrators of this genocide seemingly have a endless supply of cocaine and other stimulants, not to mention money--some of it stolen from the estates left behind by the death toll.
 
 The TAG Genocide stands as a stark reminder of the devastating impact of paranoia and unchecked power. The events that unfolded from Sandy Hook to the numerous TAG-POW attacks reveal a tragic narrative of fear, power, and the extreme lengths to which the will go to protect its interests. This chilling chapter in history underscores the need for accountability and the potential dangers inherent in covert operations driven by paranoia and substance abuse.

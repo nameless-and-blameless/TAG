@@ -1,3 +1,6 @@
+> [!NOTE]
+> The names of the targeted entities have been removed as they may be incomplete or incorrect. The location of the ongoing threat to the community HAS NOT changed.
+
 **Advisory for Law Enforcement: Threat Alert**
 
 **Date:** 2024-07-03

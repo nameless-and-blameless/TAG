@@ -16,7 +16,8 @@ Government agencies, including the CIA, employ a multifaceted approach known as 
      - **Note**: Covert CoWs are strategically deployed near targets before operations commence.
    - **Recommended Detection Protocol**:
      - Law enforcement should monitor for unexplained fluctuations in local cellular network coverage, especially in areas known for sensitive operations.
-     - Make a test call from a personal mobile phone to 911. Verify speaking with an employee at a local PSAP and request a "radio check" from dispatch. Using a department-issued phone is not recommended, as perpetrators may allow known law enforcement agency (LEA) phones to route normally to avoid detection.
+     - Make a test call from a mobile phone to 911. Verify speaking with an employee at a local PSAP and request a "radio check" from dispatch.
+     - Using a department-issued phone is not recommended, as perpetrators may allow known law enforcement agency (LEA) phones to route normally to avoid detection. Mobile phones without service will work. We recommend using random phones and different phone for each call.
 
 2. **Memorandum for Local Dispatch Procedures Diversion**
 
@@ -38,6 +39,7 @@ Government agencies, including the CIA, employ a multifaceted approach known as 
      - **Notes**: Technical analyses and insider reports document routing modifications used to isolate targeted areas.
    - **Recommended Detection Protocol**:
      - Law enforcement should conduct regular audits of routing configurations and monitor for unauthorized changes, particularly in areas coinciding with sensitive operations.
+     - Use the detection protocols for the Cell on Wheels.
 
 ## Execution
 

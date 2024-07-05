@@ -1,4 +1,4 @@
-# Song: "Shady Love" by the Scissor Sisters
+# Unpacking "Shady Love" by the Scissor Sisters
 
 **Title:** Shady Love  
 **Artist:** Scissor Sisters  

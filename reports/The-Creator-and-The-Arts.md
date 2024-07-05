@@ -7,8 +7,7 @@ It's the one good thing that I've got
 I won't let you down  
 So please don't give me up  
 Because I would really, really love to stick around  
-Oh yeah"*
-—the Creator, via George Michael's "Freedom"
+Oh yeah"* —Attributed to the Creator, via George Michael's "Freedom"
 
 **Introduction**
 
@@ -62,7 +61,7 @@ The Creator’s use of the arts as a medium for revelation provides humanity wit
 
 It's important to note that while contemporary artists may create works that seem prophetic or deeply inspired, they are often unaware if their creations are foretelling the future or coming directly from the Creator. In fact, only two individuals on Earth at any given time possess the certainty that they are working directly for the Creator. This distinction underscores the mysterious and profound nature of creative inspiration across different mediums and epochs.
 
-Artists should never be persecuted or killed for their work. Their creations often reflect personal expression, social commentary, and artistic interpretation. Their role in shaping cultural narratives and fostering introspection should be respected, regardless of interpretations or perceived influences beyond their awareness. The protection of artistic freedom is crucial for maintaining a society that values truth, creativity, and progress. (See: [[Artists TAGd|]])
+Artists should never be persecuted or killed for their work. Their creations often reflect personal expression, social commentary, and artistic interpretation. Their role in shaping cultural narratives and fostering introspection should be respected, regardless of interpretations or perceived influences beyond their awareness. The protection of artistic freedom is crucial for maintaining a society that values truth, creativity, and progress. Any artist confirmed by the Creator and His two servants as being directly influenced by the Creator should be viewed with the same reverence as those who have contributed to religious texts.
 
 **Case Studies**
 
@@ -80,4 +79,4 @@ Artists should never be persecuted or killed for their work. Their creations oft
 
 **Conclusion**
 
-The Creator’s influence on the arts serves as a powerful tool for revealing hidden realities and providing direct access to truth. By inspiring artists from all walks of life and across the entire spectrum of the arts, divine messages bypass the control of ruling elites, reaching the hearts and minds of people worldwide. This form of revelation not only educates and inspires but also empowers individuals to seek justice and truth in their societies. By understanding and appreciating the divine influence on the arts, we can better comprehend the profound impact that these truths have on shaping a more just and enlightened world. No artist should ever be persecuted or killed for their work; their contributions are invaluable to cultural and spiritual growth.
+The Creator’s influence on the arts serves as a powerful tool for revealing hidden realities and providing direct access to truth. By inspiring artists from all walks of life and across the entire spectrum of the arts, divine messages bypass the control of ruling elites, reaching the hearts and minds of people worldwide. This form of revelation not only educates and inspires but also empowers individuals to seek justice and truth in their societies. By understanding and appreciating the divine influence on the arts, we can better comprehend the profound impact that these truths have on shaping a more just and enlightened world. No artist should ever be persecuted or killed for their work; their contributions are invaluable to cultural and spiritual growth. Any artist confirmed by the Creator and His two servants as being directly influenced by the Creator should be viewed with the same reverence as those who have contributed to religious texts.

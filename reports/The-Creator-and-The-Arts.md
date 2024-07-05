@@ -7,7 +7,9 @@ It's the one good thing that I've got
 I won't let you down  
 So please don't give me up  
 Because I would really, really love to stick around  
-Oh yeah"* —Attributed to the Creator, via George Michael's "Freedom"
+Oh yeah"*
+>
+> —the Creator on George Michael's "Freedom"
 
 ## **Introduction**
 

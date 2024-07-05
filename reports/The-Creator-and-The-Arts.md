@@ -1,4 +1,4 @@
-# **Report: The Creator’s Influence on the Arts to Reveal Hidden Realities and Provide Direct Access to Truth**
+# **The Creator’s Influence on the Arts to Reveal Hidden Realities and Provide Direct Access to Truth**
 
 > *"I won't let you down  
 I will not give you up  

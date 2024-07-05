@@ -9,6 +9,7 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 
 * Table of Contents
      - [[The Creator|]]
+           - [[The Creator and The Arts|]]
      - [[Introduction & Origins of TAG|TAG]]
      - [[TAG in Places of Worship|TAGPOW]]
      - [[Artists TAGd|]]

@@ -62,7 +62,7 @@ The Creator’s use of the arts as a medium for revelation provides humanity wit
 
 It's important to note that while contemporary artists may create works that seem prophetic or deeply inspired, they are often unaware if their creations are foretelling the future or coming directly from the Creator. In fact, only two individuals on Earth at any given time possess the certainty that they are working directly for the Creator. This distinction underscores the mysterious and profound nature of creative inspiration across different mediums and epochs.
 
-Artists should never be persecuted or killed for their work. Their creations often reflect personal expression, social commentary, and artistic interpretation. Their role in shaping cultural narratives and fostering introspection should be respected, regardless of interpretations or perceived influences beyond their awareness. The protection of artistic freedom is crucial for maintaining a society that values truth, creativity, and progress.
+Artists should never be persecuted or killed for their work. Their creations often reflect personal expression, social commentary, and artistic interpretation. Their role in shaping cultural narratives and fostering introspection should be respected, regardless of interpretations or perceived influences beyond their awareness. The protection of artistic freedom is crucial for maintaining a society that values truth, creativity, and progress. (See: [[Artists TAGd|]])
 
 **Case Studies**
 

@@ -1,8 +1,6 @@
 > [!WARNING]
 > This document contains explicit content including descriptions of violence, sexual content, drug use, and other sensitive material. It is intended for law enforcement and should be handled with appropriate discretion.
 
----
-
 # Unpacking "Shady Love" by the Scissor Sisters
 
 **Title:** Shady Love  

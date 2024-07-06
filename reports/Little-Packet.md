@@ -44,13 +44,6 @@ The lyrics of "Little Packet" delve into the protagonist's turbulent journey, ma
 > I try so hard to promise you the world and more  
 > It's my career c'mon it's time I had some more
 
-### Glossary
-
-This glossary provides definitions and explanations for key terms and phrases used throughout this report. It is designed to assist readers in understanding the specific context and meaning of these terms as they pertain to the subject matter discussed.
-
-- **"Booth"**: The announcer's booth in the Hamilton Heights Christian Academy gymnasium where the executions took place, the same gymnasium was used for the Mother's Day massacre of Hickory Valley Christian Church, which operated the school and is adjacent to it.
-- **"Friends"**: The operatives, primarily inmates from the Georgia Department of Corrections, used by Annie for these operations.
-
 ## **Musical Composition**
 
 "Little Packet" showcases M People’s signature blend of dance-pop and house music, characterized by infectious rhythms, vibrant melodies, and Heather Small's powerful vocals. The upbeat tempo and energetic instrumentation create an engaging listening experience, while the polished production highlights the band's musical craftsmanship.

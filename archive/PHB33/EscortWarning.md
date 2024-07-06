@@ -1,7 +1,7 @@
 # A Warning for Escorts, etc.
 If you are a male dancer, escort or just one of the guys who's well known for his endowment and you've been hired by a client to target only one male individual in Atlanta, your life is in grave danger. If this describes your current situation you need to IMMEDIATELY LEAVE ANY PROVIDED ROOM and go to a public place with a lot of people. NOW! 
 
-If you've been provided a free motel or apartment, you need to read [Deadly Accomodations](/etc/lodging.md) now.
+If you've been provided a free motel or apartment, you need to read [Deadly Accomodations](/archive/etc/lodging.md) now.
 
 Anyone who has taken this job should immediately call those whom they live with and their immediate family and advise them to stay elsewhere for the immediate future.
 

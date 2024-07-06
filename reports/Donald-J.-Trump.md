@@ -82,11 +82,13 @@ The elimination served to:
 
 1. **Maintain Secrecy:** Reduce the risk of leaks or disclosures.
 2. **Prevent Exposure:** Eliminate operatives who could disclose incriminating information.
-3. **Ensure Continuity:** Allow TAG operations to proceed unhindered.
+3. **Ensure Continuity:** Allow TAG operations to proceed unhindered (See: Utilization of Inmates).
 
 ### Execution of Operatives
 
-Operatives are being systematically targeted for termination by long-term CIA personnel based in Atlanta.
+Operatives are being systematically targeted for termination by senior CIA personnel based in Atlanta.
+
+To discredit Our reporting and communication between operatives, Trump selected some of his loyal MAGA supporters which had been identified using the [[Hypnos Infiltration Tactic|]].
 
 ### The Big Setup
 

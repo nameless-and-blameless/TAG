@@ -79,7 +79,9 @@ The lyrics of "Sign of the Times" address a multitude of pressing issues, from d
 
 This glossary provides definitions and explanations for key terms and phrases used throughout this report. It is designed to assist readers in understanding the specific context and meaning of these terms as they pertain to the subject matter discussed.
 
-- **"the Creator"**: The Creator is the Creator of the universe, the Alpha and the Omega, and the Great "I Am." Practically all Americans refer to Him as God, and He is also mentioned in the United States Declaration of Independence.
+- **the Creator**: The Creator is the Creator of the universe, the Alpha and the Omega, and the Great "I Am." Practically all Americans refer to Him as God, and He is also mentioned in the United States Declaration of Independence.
+- **horse**: slang for heroin.
+- **reefer**: slang for marijuana.
 
 ## **Musical Composition**
 
@@ -99,24 +101,19 @@ To provide deeper insight into the hidden narratives and thematic elements of "S
 
 3. **"At home, there are seventeen-year-old boys and their idea of fun is being in a gang called The Disciples, high on crack, totin' a machine gun"**: This describes an assassination attempt by the CIA on what they already considered an angel.
 
-4. **"Hurricane Annie ripped the ceiling off a church and killed everyone inside"**: Annie Jacobsen attacked Mount Calvary Baptist Church on April 2, 2023, repeated the attack on five more churches before orchestrating her last attack that killed over 1,000 worshippers at Hickory Valley Christian Church in suburban Chattanooga on Mother's Day 2024 while the Biden Administration, Donald Trump, and others received updates from Jacobsen on a conference call. The apocalypse started here.
+4. **"Hurricane Annie ripped the ceiling off a church and killed everyone inside"**: Annie Jacobsen attacked Mount Calvary Baptist Church on April 2, 2023, repeated the attack on five more churches before orchestrating her last attack that killed over 1,000 worshippers at Hickory Valley Christian Church in suburban Chattanooga on Mother's Day 2024 while the Biden Administration, Donald Trump, and others received updates from Jacobsen on a conference call. 
 
 5. **"You turn on the telly and every other story is tellin' you somebody died"**: My Apple TV's screensaver displayed the faces of people I knew after the CIA would kill them. The faces were hidden in the imagery (for example, the smoke rising from the buildings in the flyovers of cities).
 
 6. **"Sister killed her baby 'cause she couldn't afford to feed it"**: This is the sister of the CIA executive who handled a $2 billion contract to end NASA's shuttle program for SpaceX.
 
-7. **"In September, my cousin tried reefer for the very first time / Now he's doing horse; it's June"**: Cameron Richardson, a financial professional with JP Morgan Chase, was kidnapped and held against his will to be raped. He is still alive and held for the CIA's pleasures.
+7. **"In September, my cousin tried reefer for the very first time / Now he's doing horse; it's June"**: Cameron Richardson, a finance professional with JP Morgan Chase, was kidnapped and held against his will and raped. He is still alive and moved around to avoid him being located by the Creator's servant.
 
-8. **"Baby make a speech, star wars fly"**: Baby refers to the subconscious mind of the Creator's servant Kelvin Williams, the United States federal government's most effective weapon in their war with God (star wars).
+8. **"Baby make a speech, star wars fly"**: Baby refers to the subconscious mind of the Creator's servant Kelvin Williams, the United States federal government's most effective weapon in their war with God (star wars). See [[Hypnos Infiltration Tactic|]] which is utilized on many Americans, most over the airwaves.
 
 9. **"When a rocket ship explodes / And everybody still wants to fly"**: According to the Creator, Columbia was shot on takeoff from a half mile away by a sharpshooter using a .22 rifle.
 
-10. **"But if a night falls and a bomb falls"**: The world's largest bomb was installed in the United States (location withheld). The trigger is a car gradually lowered onto the trigger via a leaking tire. The Creator says that without His intervention several times already, the entire planet would be gone--the third planet from the Sun would be Mars.
+10. **"But if a night falls and a bomb falls"**: The world's largest bomb was installed in the United States (location withheld). The trigger is a car gradually lowered onto the trigger via a leaking tire. The Creator says that without His intervention several times already, the entire planet would be gone--if successfully detonated, the third planet from the Sun would be Mars.
 
----
-
-**End of Report**
-
----
-
-This text can now be saved to a text file.
+11. **Let's fall in love, get married, have a baby. We'll call him Nate if it's a boy"**
+Part of a future discussion between the Creator's two servants, Nathan Taylor lived in Hiram, GA and was the first friend noticed missing by Kelvin Williams. Nathan was killed during the early stages of TAG, after being kidnapped, tortured and raped repeatedly by CIA operatives.

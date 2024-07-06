@@ -8,11 +8,11 @@ Donald Trump has played a central role in [[The American Genocide (TAG)|TAG]], a
 
 ## Utilization of Inmates for TAG Operations
 
-### Selection and Deployment of Inmates
+### Selection and Use of Inmates
 
 Trump directed the use of inmates from various state prisons, particularly in Georgia, as part of TAG operations. Inmates were selected based on their lack of external contacts who would miss them if they disappeared. Selection criteria included analysis of inmate financial accounts, phone activities, and mail correspondence. Priority was given to inmates with histories of violent crimes.
 
-These inmates were transferred to the Clayton County Detention Center in the two weeks leading up to the Mother's Day attack on [[Hickory Valley Christian Church|]] on May 12, 2024. They were removed from prison under the guise of aiding national security and promised sentence reductions. Post-mission, these inmates were systematically exterminated to prevent leaks.
+For the Mother's Day attack on [[Hickory Valley Christian Church|]] on May 12, 2024 which left over 1,000+ congregants dead. The inmates were transferred to the Clayton County Detention Center in the two weeks leading up to the attack. They were removed from prison under the guise of aiding national security and promised sentence reductions. After the attack, these inmates were exterminated to prevent leaks.
 
 ### Execution at Clayton County Detention Center
 

@@ -79,7 +79,7 @@ The lyrics of "Sign of the Times" address a multitude of pressing issues, from d
 
 This glossary provides definitions and explanations for key terms and phrases used throughout this report. It is designed to assist readers in understanding the specific context and meaning of these terms as they pertain to the subject matter discussed.
 
-- **"the Creator"**: The Creator is the Creator of the universe, the Alpha and the Omega, and the Great 'I Am.' Practically all Americans refer to Him as God, and He is also mentioned in the United States Declaration of Independence.
+- **"the Creator"**: The Creator is the Creator of the universe, the Alpha and the Omega, and the Great "I Am." Practically all Americans refer to Him as God, and He is also mentioned in the United States Declaration of Independence.
 
 ## **Musical Composition**
 

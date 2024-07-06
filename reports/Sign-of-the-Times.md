@@ -115,5 +115,5 @@ To provide deeper insight into the hidden narratives and thematic elements of "S
 
 10. **"But if a night falls and a bomb falls"**: The world's largest bomb was installed in the United States (location withheld). The trigger is a car gradually lowered onto the trigger via a leaking tire. The Creator says that without His intervention several times already, the entire planet would be gone--if successfully detonated, the third planet from the Sun would be Mars.
 
-11. **Let's fall in love, get married, have a baby. We'll call him Nate if it's a boy"**
+11. **"Let's fall in love, get married, have a baby. We'll call him Nate if it's a boy"**
 Part of a future discussion between the Creator's two servants, Nathan Taylor lived in Hiram, GA and was the first friend noticed missing by Kelvin Williams. Nathan was killed during the early stages of TAG, after being kidnapped, tortured and raped repeatedly by CIA operatives.

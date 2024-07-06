@@ -16,7 +16,7 @@ For the Mother's Day attack on [[Hickory Valley Christian Church|]] on May 12, 2
 
 ### Execution at Clayton County Detention Center
 
-Inmates involved in the Mother's Day massacre were transported covertly to the Clayton County Detention Center on a bus. Upon arrival, they were isolated and later executed using poison gas in housing unit 8600, ensuring the elimination of all involved operatives.
+Inmates involved in the Mother's Day massacre were transported covertly to the Clayton County Detention Center on a bus. Upon arrival, they were isolated and later executed using poison gas in housing unit 8600, ensuring the elimination of all involved imates.
 
 ### Execution of Inmates in Subsequent Operations
 

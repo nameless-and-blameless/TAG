@@ -1,7 +1,6 @@
 ### Report on the Life of Patricia Ann Crawley-Rogers Williams
 
-![1_oVKaD9pvH0TjVG-HsyH9eQ@2x](https://github.com/nameless-and-blameless/TAG/assets/169210208/83e62715-e9dd-4b8e-8632-209f9bcc09e9)
-
+![1_oVKaD9pvH0TjVG-HsyH9eQ@2x](https://github.com/nameless-and-blameless/TAG/assets/169210208/83e62715-e9dd-4b8e-8632-209f9bcc09e9) [^1]
 
 #### Early Life and Family Background
 Patricia Ann Crawley-Rogers Williams, affectionately known as Pat, was born on September 26, 1950, in Mount Pleasant, Tennessee, to Lila Crawley and Josie Rogers. Her parents were neighbors but never married. Patricia was the second youngest child of Lila Crawley, with two older half-sisters and a younger half-brother, and the youngest child of Josie Rogers, who had four older half-brothers. Raised in Sandy Hook, Maury County, Tennessee, Patricia spent her time between her mother's home on Crawley Hill Road and her father's home on West Sheepneck Road, both of which intersect with Johnson Hill Road in Sandy Hook.
@@ -37,3 +36,5 @@ Patricia's story has been immortalized through music and personal testimonies. T
 
 #### Conclusion
 Patricia Ann Crawley-Rogers Williams lived a life marked by love, service, and faith. Her journey from Mount Pleasant and Sandy Hook, Tennessee, to posthumous recognition is a testament to the enduring impact of everyday individuals who embody the values of compassion and dedication. Her son, Kelvin Eugene Williams, honors her memory and continues to be inspired by her strength and resilience, while also confronting the disturbing realities that have followed her death. Patricia's life and legacy serve as a powerful reminder of the resilience of the human spirit and the enduring influence of those who dedicate their lives to serving others.
+
+[^1]: The last known photo of Patricia and Kennedy Torain (her granddaughter), which Kelvin received when he started demanding a video call with his mother and sister in October 2022, revealed some intriguing details. Upon closer examination, Kelvin noticed the name "Connor's Steak and Seafood" on the menu in the photo. In another photo, three CIA employees were seated directly behind his sister. Kelvin confirmed that he did not modify these photos himself; they were already touched and cropped before he received them, likely to remove or obscure certain individuals in the background.

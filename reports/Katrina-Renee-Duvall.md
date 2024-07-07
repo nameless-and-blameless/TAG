@@ -1,12 +1,12 @@
 ## Report on the Life of Katrina Duvall-Torain
 
-![1_PgvpLsskgjOhu07TvUkgnQ@2x (1)](https://github.com/nameless-and-blameless/TAG/assets/169210208/7aa79309-6aec-47e1-969e-cb4a34948a8e)
+![1_PgvpLsskgjOhu07TvUkgnQ@2x (1)](https://github.com/nameless-and-blameless/TAG/assets/169210208/7aa79309-6aec-47e1-969e-cb4a34948a8e) [^1]
 
 ### Early Life and Background
 
 Katrina Duvall-Torain was born on January 6, 1983, in Nicholasville, located in Jessamine County, Kentucky. Growing up in this small community, she experienced the close-knit nature and values of rural Kentucky life, which instilled in her a strong sense of community and duty.
 
-Katrina graduated from East Jessamine High School, where she was known for her dedication and hard work. During her high school years, she was also a varsity cheerleader, showcasing her school spirit and leadership qualities.
+Katrina graduated from East Jessamine High School[^2], where she was known for her dedication and hard work. During her high school years, she was also a varsity cheerleader, showcasing her school spirit and leadership qualities.
 
 ### Education
 
@@ -29,3 +29,4 @@ In remembering Katrina, we celebrate a life well-lived and a spirit that touched
 ---
 
 [^1]: Katrina Duvall-Torain and Kennedy Torain in their last known photo at Connor's Steak and Seafood (identified by the menu in the accompanying photo of Patricia Ann Williams and Kennedy Torain). In the background are three known CIA operatives: Brian (last name unknown), Annie Jacobsen, and Michael Blackmon.
+[^2]: Upon closer inspection viewers can see a handwritten, then erased "East" on Katrina's chin. This was apparently a note made by CIA personnel, as it was not the high school attended by Kelvin Williams, Katrina's brother who lived at the same address, East Jessamine was a new highschool that started in 1996.

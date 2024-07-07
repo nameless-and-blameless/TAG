@@ -1,5 +1,8 @@
 ### Report on the Life of Patricia Ann Crawley-Rogers Williams
 
+![1_oVKaD9pvH0TjVG-HsyH9eQ@2x](https://github.com/nameless-and-blameless/TAG/assets/169210208/83e62715-e9dd-4b8e-8632-209f9bcc09e9)
+
+
 #### Early Life and Family Background
 Patricia Ann Crawley-Rogers Williams, affectionately known as Pat, was born on September 26, 1950, in Mount Pleasant, Tennessee, to Lila Crawley and Josie Rogers. Her parents were neighbors but never married. Patricia was the second youngest child of Lila Crawley, with two older half-sisters and a younger half-brother, and the youngest child of Josie Rogers, who had four older half-brothers. Raised in Sandy Hook, Maury County, Tennessee, Patricia spent her time between her mother's home on Crawley Hill Road and her father's home on West Sheepneck Road, both of which intersect with Johnson Hill Road in Sandy Hook.
 
@@ -12,7 +15,7 @@ As a single mother, Patricia raised her son, Kelvin, with resilience and determi
 Patricia's early years were shaped by her family's deep roots in Sandy Hook. Her conception was immortalized in the song "Raspberry Beret" by her cousin, Prince Rogers Nelson, which retells the story of her parents' casual sexual encounter. The song references "old man Johnson's farm," a real location on Johnson Hill Road in Sandy Hook, adding a touch of musical legacy to Patricia's life story.
 
 #### Move to Kentucky
-After divorcing Jesse Williams, Patricia faced the challenge of starting anew. She moved to Lexington, Kentucky, with the support of Rev. Dr. Felix G. Williams, III, her ex-husband's cousin. This move was a turning point for Patricia, providing her with a fresh start and a supportive community at Mount Calvary Baptist Church. Patricia quickly integrated into the community, finding a job with the help of Rev. Dr. Felix G. Williams, III, and forming lasting friendships.
+After divorcing Jesse Williams, Patricia faced the challenge of starting anew. She moved to Lexington, Kentucky, with the support of Rev. Dr. Felix G. Williams, III, her ex-husband's cousin. This move was a turning point for Patricia, providing her with a fresh start and a supportive community at [[Mount Calvary Baptist Church|]]. Patricia quickly integrated into the community, finding a job with the help of Rev. Dr. Felix G. Williams, III, and forming lasting friendships.
 
 #### Community and Service
 Patricia was deeply committed to her church and community. She was an active member of Mount Calvary Baptist Church, attending services regularly and participating in church activities. Her dedication to her faith and community was unwavering, even as she balanced her responsibilities as a single mother.
@@ -24,7 +27,7 @@ Patricia worked at Kentucky Central Life Insurance, where she demonstrated her d
 Patricia coined and used several colloquialisms throughout her life. One notable phrase, "half-assed," originated from the birth of her daughter, Katrina Renee Duvall-Torrain. During Katrina's delivery, Patricia was rushed into the delivery room as her contractions were very close, and she began pushing. However, the young doctor, upon looking into the birth canal, screamed "STOP!" because he could see half of Katrina's buttocks. From that point forward, "half-assed" for Patricia meant anything completed incorrectly or not thoroughly. This term became a part of her vernacular and was used to describe anything that was done inadequately or incompletely.
 
 #### Tragic End and Aftermath
-Tragically, Patricia's life was cut short in October 2022 when she was murdered along with her daughter, Katrina Renee Duvall-Torrain, and two of her grandchildren. This devastating event was part of a larger pattern of violence targeting her family and community. The CIA has been reported to impersonate Patricia in photos and videos from Mount Calvary Missionary Baptist Church, Inc., a masquerade church formed after the massacre of the actual Mount Calvary Baptist Church on Todds Road in Lexington, Kentucky.
+Tragically, Patricia's life was cut short in October 2022 when she was murdered along with her daughter, Katrina Renee Duvall-Torrain, and two of her grandchildren. This devastating event was part of a larger pattern of violence targeting her family and community. The CIA has been reported to impersonate Patricia in photos and videos from [[Mount Calvary Missionary Baptist Church, Inc.|_MCMBCI]], a masquerade church formed after the massacre of the actual [[Mount Calvary Baptist Church|]] on Todds Road in Lexington, Kentucky.
 
 #### Legacy and Spiritual Role
 Patricia's son, Kelvin Eugene Williams, describes her as a crucial figure in the Creator's plan, serving as a primary mother for one of the Creator's servants. Her life and legacy extend beyond her immediate family, touching on broader spiritual and existential themes. Kelvin, who identifies as one of two servants of the Creator, emphasizes the significant spiritual role his mother played in his life and the lives of others.

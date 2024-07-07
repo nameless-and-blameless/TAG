@@ -8,15 +8,15 @@ Donald Trump has played a central role in [[The American Genocide (TAG)|TAG]], a
 
 ## Utilization of Inmates for TAG Operations
 
-### Selection and Deployment of Inmates
+### Selection and Use of Inmates
 
 Trump directed the use of inmates from various state prisons, particularly in Georgia, as part of TAG operations. Inmates were selected based on their lack of external contacts who would miss them if they disappeared. Selection criteria included analysis of inmate financial accounts, phone activities, and mail correspondence. Priority was given to inmates with histories of violent crimes.
 
-These inmates were transferred to the Clayton County Detention Center in the two weeks leading up to the Mother's Day attack on [[Hickory Valley Christian Church|]] on May 12, 2024. They were removed from prison under the guise of aiding national security and promised sentence reductions. Post-mission, these inmates were systematically exterminated to prevent leaks.
+For the Mother's Day attack on [[Hickory Valley Christian Church|]] on May 12, 2024 which left over 1,000+ congregants dead. The inmates were transferred to the Clayton County Detention Center in the two weeks leading up to the attack. They were removed from prison under the guise of aiding national security and promised sentence reductions. After the attack, these inmates were exterminated to prevent leaks.
 
 ### Execution at Clayton County Detention Center
 
-Inmates involved in the Mother's Day massacre were transported covertly to the Clayton County Detention Center on a bus. Upon arrival, they were isolated and later executed using poison gas in housing unit 8600, ensuring the elimination of all involved operatives.
+Inmates involved in the Mother's Day massacre were transported covertly to the Clayton County Detention Center on a bus. Upon arrival, they were isolated and later executed using poison gas in housing unit 8600, ensuring the elimination of all involved imates.
 
 ### Execution of Inmates in Subsequent Operations
 
@@ -82,11 +82,13 @@ The elimination served to:
 
 1. **Maintain Secrecy:** Reduce the risk of leaks or disclosures.
 2. **Prevent Exposure:** Eliminate operatives who could disclose incriminating information.
-3. **Ensure Continuity:** Allow TAG operations to proceed unhindered.
+3. **Ensure Continuity:** Allow TAG operations to proceed unhindered (See: Utilization of Inmates).
 
 ### Execution of Operatives
 
-Operatives are being systematically targeted for termination by long-term CIA personnel based in Atlanta.
+Operatives are being systematically targeted for termination by senior CIA personnel based in Atlanta.
+
+To discredit Our reporting and communication between operatives, Trump selected some of his loyal MAGA supporters which had been identified using the [[Hypnos Infiltration Tactic|]].
 
 ### The Big Setup
 
@@ -101,4 +103,5 @@ Trump's active involvement in [[The American Genocide|TAG]], including the use o
 * [[Phantom Funeral of Rev. Duke Stone|]]
 * [[Your Mind For Rent|]]
 ### Listen Also
-* [[Miss Lady DJ by RuPaul|_Miss-Lady-DJ]]
+* [[Miss Lady DJ|]]
+* [[Shady Love|]]

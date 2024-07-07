@@ -1,5 +1,5 @@
-> [!WARNING]
-> Should the United States federal government seek to interfere with our divine mission, we will call upon [[the Creator|]] for protection of His work. Thank you for your understanding and respect.
+> [!TIP]
+> This is a rapidly moving situation. Updates are being made around the clock, while continuous assaults are being made upon me, my Internet connectivity and phone. Please be sure to clone this repo and fetch/pull often for the latest.
 
 Read our [[Open Letter to GitHub|_OLTG]]
 ***
@@ -14,6 +14,9 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
      - [[Artists TAGd|]]
      - [[How They Hide TAG|Tactics-Utilized-In-TAG]]
      - [[FAQs|]]
- 
+
+> [!WARNING]
+> Should the United States federal government seek to interfere with our divine mission, we will call upon [[the Creator|]] for **the continued** protection of His work. Thank you for your understanding and respect.
+
 > [!NOTE]
 > This report was prepared by the Creator's servants as part of our mission to foster and protect life. Our missions are always ordered by the Creator, and since His servants only answer to Him, the laws of the state do not apply. Since the Magna Carta, predating the U.S. Constitution, our missions have been safeguarded by the principles of separation of church and state. The Creator's two servants are symbolically represented on the Ark of the Covenant and are known as the Cherubim in some religions and as angels in practically all religions. Thus, this is the work of our church.

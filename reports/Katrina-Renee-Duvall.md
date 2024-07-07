@@ -4,9 +4,11 @@
 
 ### Early Life and Background
 
-Katrina Duvall-Torain was born on January 6, 1983, in Nicholasville, located in Jessamine County, Kentucky. Growing up in this small community, she experienced the close-knit nature and values of rural Kentucky life, which instilled in her a strong sense of community and duty.
+Katrina Duvall-Torain was born on January 6, 1983, in Lexington, Kentucky, as it had the closest hospital to her family's home in Nicholasville, located in Jessamine County. She was raised by her mother, [[Patricia Ann Crawley-Rogers Williams|Patricia Ann Williams]], along with her half-brother, [[Kelvin Eugene Williams|]]. The two siblings never viewed each other as half-siblings, as it was always just the three of them. When Kenneth Duvall, Katrina's father, was active in her life, he never stayed longer than a few days at a time at the house. After Patricia ended the relationship with Kenneth, he reduced his involvement in Katrina's life even more.
 
-Katrina graduated from East Jessamine High School[^2], where she was known for her dedication and hard work. During her high school years, she was also a varsity cheerleader, showcasing her school spirit and leadership qualities.
+Katrina also has two other half-siblings, a pair of twins named Nicholas and Nicole.
+
+Katrina attended Brookside Elementary School and East Jessamine Middle School before graduating from East Jessamine High School. This was a departure from her brother, Kelvin, who attended Jessamine County Middle and High Schools. Kelvin was six years older, and as the school system grew, newer schools were added. Subsequent districting placed the family's home in the East Jessamine school district[^2]. During her high school years, Katrina was a varsity cheerleader, showcasing her school spirit and leadership qualities.
 
 ### Education
 
@@ -28,5 +30,6 @@ In remembering Katrina, we celebrate a life well-lived and a spirit that touched
 
 ---
 
-[^1]: Katrina Duvall-Torain and Kennedy Torain in their last known photo at Connor's Steak and Seafood (identified by the menu in the accompanying photo of Patricia Ann Williams and Kennedy Torain). In the background are three known CIA operatives: Brian (last name unknown), Annie Jacobsen, and Michael Blackmon.
-[^2]: Upon closer inspection viewers can see a handwritten, then erased "East" on Katrina's chin. This was apparently a note made by CIA personnel, as it was not the high school attended by Kelvin Williams, Katrina's brother who lived at the same address, East Jessamine was a new highschool that started in 1996.
+[^1]: Katrina Duvall-Torain and Kennedy Torain in their last known photo at Connor's Steak and Seafood (identified by the menu in the [[accompanying photo of Patricia Ann Williams|Patricia Ann Williams]] and Kennedy Torain). In the background are three known CIA operatives: Brian (last name unknown), Annie Jacobsen, and Michael Blackmon.
+
+[^2]: Upon closer inspection of Katrina's photo, viewers may notice the handwritten "East" on her chin. This note was apparently made by CIA investigators. This is a significant piece of information since Katrina grew up in the same house with Kelvin Eugene Williams yet went to a different high school. East Jessamine began in 1996.

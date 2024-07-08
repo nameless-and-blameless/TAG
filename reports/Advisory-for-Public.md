@@ -60,7 +60,7 @@ Due to the government's use of law enforcement reports, especially missing perso
 
 ## The Creator and His Two Servants' Advisory
 
-The Creator and His two servants strongly suggest not discussing the attacks over any medium until the news of these attacks has been broadcast on your local and evening world news reports. We strongly discourage the use of Signal, WhatsApp, Telegram, and Zoom for private, secure, or encrypted messaging due to the CIA and government's use of them for intelligence gathering and targeting of those discussing these events, the genocide, and other matters.
+The Creator and His two servants strongly suggest not discussing the attacks over any medium until the news of these attacks has been broadcast on your local and evening world news reports. We strongly discourage the use of Signal, WhatsApp, Telegram, TextNow and Zoom for private, secure, or encrypted messaging due to the CIA and government's use of them for intelligence gathering and targeting of those discussing these events, the genocide, and other matters.
 
 ## Conclusion
 

@@ -4,7 +4,7 @@
 
 ### Early Life and Background
 
-Katrina Duvall-Torain was born on January 6, 1983, in Lexington, Kentucky, as it had the closest hospital to her family's home in Nicholasville, located in Jessamine County. She was raised by her mother, Patricia Ann (Crawley-Rogers) Williams, along with her half-brother, Kelvin Eugene Williams. The two siblings never viewed each other as half-siblings, as it was always just the three of them. When Kenneth Duvall, Katrina's father, was active in her life, he never stayed longer than a few days at a time at the house. After Patricia ended the relationship with Kenneth, he reduced his involvement in Katrina's life even more.
+Katrina Duvall-Torain was born on January 6, 1983, in Lexington, Kentucky, as it had the closest hospital to her family's home in Nicholasville, located in Jessamine County. She was raised by her mother, Patricia Ann Crawley-Rogers Williams, along with her half-brother, Kelvin Eugene Williams. The two siblings never viewed each other as half-siblings, as it was always just the three of them. When Kenneth Duvall, Katrina's father, was active in her life, he never stayed longer than a few days at a time at the house. After Patricia ended the relationship with Kenneth, he reduced his involvement in Katrina's life even more.
 
 Katrina also has two other half-siblings, a pair of twins named Nicholas and Nicole.
 

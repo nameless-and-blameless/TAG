@@ -1,5 +1,5 @@
 ## Early Life and Education
-Kelvin Eugene Crawley-Rogers Williams was born on March 23, 1977, in Clarksville, Tennessee. He was born to Jesse Marable Williams and Patricia Ann Crawley-Rogers Williams. Raised in central Kentucky, specifically Nicholasville in Jessamine County, Kelvin grew up with his mother and younger sister, Katrina Renee Duvall. He attended Jessamine County High School until March 1995, after which he obtained his GED in June of the same year.
+Kelvin Eugene (Crawley-Rogers) Williams was born on March 23, 1977, in Clarksville, Tennessee. He was born to Jesse Marable Williams and Patricia Ann Crawley-Rogers Williams. Raised in central Kentucky, specifically Nicholasville in Jessamine County, Kelvin grew up with his mother and younger sister, Katrina Renee Duvall. He attended Jessamine County High School until March 1995, after which he obtained his GED in June of the same year.
 
 ## Ministry
 Kelvin is an ordained minister. In April 2023, after the massacre at Mount Calvary Baptist Church where he was an inactive member, Kelvin became the head of the church at the direction of the Creator.

@@ -29,4 +29,4 @@ For easier navigation and comprehensive insights into TAG, we recommend explorin
 ## **Confidentiality Notice** 
 This repository contains sensitive information and is intended for internal use only. Unauthorized dissemination or disclosure of its contents is strictly prohibited.
 
-Dissemination of any information contained within to parties outside of this universe may be punishable by the Creator.
+Dissemination of any information contained within to parties outside of the creation may be punishable by the Creator.

@@ -1,7 +1,7 @@
 **Law Enforcement Bulletin: Advisory on PLANNED Phantom Funeral Activity (A MASS-KILLING)**
 
 **Date:** 2024-06-20
-**Last Updated:** 2024-07-05
+**Last Updated:** 2024-07-10
 
 **Subject:** Advisory on Phantom Funerals Linked to TAG Operations
 
@@ -15,7 +15,9 @@ Recent intelligence and credible eyewitness accounts suggest the continuation of
 
 ### Immediate Threat
 
-**Mount Zion Baptist Church** is identified by our intelligence as the location of an imminent Phantom Funeral within on Friday 2024-07-05. Law enforcement should be on high alert for any suspicious activity in and around this area.
+**Hickory Valley Christian Church** is identified by our intelligence as the location of an imminent Phantom Funeral on Wednesday 2024-07-10.  Law enforcement should be on high alert for any suspicious activity in and around this area.
+
+**Mount Zion Baptist Church** is identified by our intelligence as the location of an imminent Phantom Funeral on Wednesday 2024-07-10.  Law enforcement should be on high alert for any suspicious activity in and around this area.
 
 Our intelligence suggests the sanctuary has been renovated and all killing is now occurring in the basement or other areas on the church's property. Victims are taken by force to the area after entering the sanctuary which is likely staged to appear as if a funeral is occurring.
 
@@ -61,7 +63,7 @@ Law enforcement agencies are advised to be vigilant of the following:
 
 1. **Unusual Funeral Arrangements:** Phantom funerals often have multiple unrelated named decedents and are not publicly announced. Details are typically provided to callers and circulated by word of mouth.
 2. **Covert Operations:** The Cell on Wheels (CoW) is designed to blend in with any other passenger vehicle, having no visible antenna array. It may appear to be an undercover law enforcement vehicle.
-3. **Communication Interruption:** The CoW has a range of up to 0.5 miles, blocking all other calls and internet access. Calls to 911 are redirected to CIA operatives. **Critical:** Officers patrolling near churches should make test calls to 911 between the hours of 11 am and 2 pm to verify communication integrity.
+3. **Communication Interruption:** The CoW has a range of up to 0.5 miles, blocking all other calls and internet access. Calls to 911 are redirected to CIA operatives. **Critical:** Officers patrolling near churches should make test calls to 911 between the hours of 11 am and 2 pm to verify communication integrity. DO NOT USE A DEPARTMENT ISSUED PHONE, an old phone with no service or random stranger's phone is best. Make sure the officer speaks to someone preferably they know, and request some kind of radio traffic to ensure the entire loop is in tact.
 4. **Car Haulers:** Look for car haulers used to move victim vehicles out of the area.
 5. **Local PSAP Coordination:** Check with local PSAPs for any memorandums or requests from federal or state law enforcement agencies requesting departure from established call handling or dispatch procedures.
 6. **Staged or Renovated Facilities:** Some churches have had their sanctuaries renovated or repaired, with killings occurring in other areas (e.g., basements and gymnasiums) to obscure activities.

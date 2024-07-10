@@ -26,5 +26,5 @@ For easier navigation and comprehensive insights into TAG, we recommend explorin
 
 - **Reports**: Detailed narratives, eyewitness accounts, and public awareness campaigns used to expose TAG by the Creator and His two servants.
 
-## **Use and Distribution Policy ** 
+## Use and Distribution Policy
 See: [Use and Distribution Policy](/reports/Use-and-Distribution-Policy.md)

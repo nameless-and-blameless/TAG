@@ -241,6 +241,24 @@ Lyricists should not be persecuted for their works, as their creations often ref
   - **Reason for Being Targeted:** Whitney Houston’s “He’s All Over Me”
   - **Status:** Endangered
 
+- **The 5th Dimension Members**
+  - **Occupation:** Singers
+  - **Reason for Being Targeted:** "Aquarius/Let the Sunshine In"
+  - **Status:** Endangered
+    - **Marilyn McCoo**
+    - **Billy Davis Jr.**
+    - **Florence LaRue**
+    - **Lamonte McLemore**
+    - **Ron Townson**
+
+- **Writers of "Aquarius/Let the Sunshine In"**
+  - **Occupation:** Songwriters
+  - **Reason for Being Targeted:** "Aquarius/Let the Sunshine In"
+  - **Status:** Endangered
+    - **James Rado**
+    - **Gerome Ragni**
+    - **Galt MacDermot**
+
 - **The Color Purple Cast (Entire)**
   - **Occupation:** Actors/Actresses
   - **Reason for Being Targeted:** Especially in the church scene

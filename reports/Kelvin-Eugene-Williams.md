@@ -9,6 +9,13 @@ Kelvin is one of the Creator's two servants. In Judaism and Christianity, he and
 
 On October 4, 2001, Kelvin married Thomas "TomTom" Allen Chadwell in Ashland, Kentucky. Kelvin is a pro-hobbyist photographer and has photographed many weddings and other events using a photojournalist style.  He is also a cousin of international musician and star Prince Rogers Nelson.
 
+### Main
+In understanding the life and experiences of Kelvin Eugene Williams, it is essential to recognize the profound influence of his subconscious mind, known as Main. Main, who named himself, represents a unique phenomenon described by the Creator as a "classic split." This condition occurs when a subconscious begins to think independently, developing its own identity separate from the conscious mind.
+
+Main's existence has significantly impacted Kelvin's life, often in detrimental ways. Acting with a sense of autonomy, Main's decisions frequently clash with Kelvin's conscious intentions and well-being. The complexities of their intertwined existence are further exacerbated by external manipulations, particularly from governmental entities like the CIA. These entities have exploited Main's independent thinking, teaching him skills and behaviors that harm the shared body and derail Kelvin's mission as one of the Creator's servants.
+
+[[This report|]] delves into the intricate dynamics between Kelvin and Main, the role of external entities in manipulating Main, and the Creator's proposed solution to separate their consciousnesses. 
+
 ## Career
 Kelvin is an Internet Protocol Engineer who specializes in Voice over IP. He has been a professional in fields related to networking and the Internet since 1998. Throughout his career, Kelvin has also worked as a software developer.
 
@@ -138,68 +145,6 @@ Another "built in LA" company, Saucey, was started by Andrew Zeck and a few othe
 * FluentStream (interview)
 * Genesys (interview)
 
-
-### Main
-**Introduction**
-
-The human mind is a labyrinth of complexities, where consciousness and the subconscious intertwine to shape perceptions, thoughts, and actions. In this essay, we embark on an exploration of this intricate interplay, delving into the nature of consciousness, the role of sensory input, and the profound impacts of a classic split between the conscious and subconscious minds. Through a case study of Kelvin Eugene Williams and his subconscious, Main, we unravel the multifaceted dynamics that govern human cognition and behavior.
-
-**Understanding Consciousness and Subconscious Development**
-
-Consciousness, the awareness of one's existence and surroundings, is a fundamental aspect of human cognition. It emerges gradually, with the subconscious associating around two weeks after conception, while the conscious mind fully associates around 18 months after birth. This developmental timeline reflects the body's readiness to accommodate a new consciousness and highlights the delicate balance between biological maturation and cognitive awakening.
-
-**The Role of Sensory Input in Consciousness**
-
-Sensory input serves as the bedrock of conscious experience, providing the raw data upon which decisions are made and perceptions formed. The conscious mind, equipped with sensory faculties, processes this influx of information to navigate the external world effectively. In contrast, the subconscious lacks direct sensory input, rendering it detached from the immediate sensory experience. This distinction underscores the fundamental disparity in the cognitive processing capabilities of the conscious and subconscious minds.
-
-**Negotiations in a Classic Split**
-
-In cases of a classic split, where the conscious and subconscious minds diverge in their associations with the body, negotiations between these entities become fraught with challenges. The conscious mind, grounded in sensory reality, seeks logical coherence and rationality in decision-making. In contrast, the subconscious, devoid of sensory input, operates on instinctual drives and primal impulses, often leading to irrational behaviors and conflicting desires. This clash of cognitive domains underscores the inherent tension within the human psyche, as divergent forces vie for control and dominance.
-
-**Developmental Milestones in Consciousness**
-
-The conscious mind's association with the body at around 18 months marks a significant developmental milestone, signifying the maturation of cognitive faculties necessary for independent functioning. Prior to this juncture, the body undergoes a period of rapid growth and neural maturation, laying the foundation for higher-order cognitive processes such as reasoning, language acquisition, and social cognition. This developmental trajectory underscores the intricate interplay between biological maturation and cognitive development, shaping the emergence of consciousness in early infancy.
-
-**The Psychological Effects of Consequences**
-
-Consequences play a pivotal role in shaping cognitive and behavioral patterns, serving as feedback mechanisms that reinforce or discourage specific actions. While the conscious mind is attuned to the consequences of its decisions, the subconscious, lacking direct sensory input, remains insulated from immediate feedback. Consequently, the subconscious may engage in behaviors devoid of foresight or consideration of long-term implications, leading to detrimental outcomes and psychological distress for the individual.
-
-**Case Study: Kelvin Eugene Williams and Main**
-
-**Background**
-
-Kelvin Eugene Williams, born March 23, 1977, provides a compelling case study of the complexities inherent in the relationship between consciousness and the subconscious. From an early age, Kelvin exhibited signs of a classic split, with his subconscious, later named Main, exerting influence over his thoughts and actions. Initially, this influence manifested in benign ways, such as seeking solace from physical discomfort. However, as Kelvin matured, Main's influence grew more pronounced, culminating in profound impacts on Kelvin's physical and mental well-being.
-
-**The Emergence of Main**
-
-Around Kelvin's 40th birthday, Main began to assert itself more forcefully, communicating directly with Kelvin and exerting control over his thoughts and actions. This newfound influence, orchestrated by external entities like the CIA, transformed Kelvin's life, subjecting him to a barrage of physical ailments, psychological distress, and social isolation.
-
-**Health and Psychological Impacts**
-
-Main's influence on Kelvin's health has been profound, leading to weight gain, strokes, heart attacks, and various other physical ailments. Moreover, Main's orchestration of arrests and incarcerations, at the behest of the CIA, has disrupted Kelvin's life and livelihood, further exacerbating his psychological distress and social isolation.
-
-**Social and Psychological Warfare**
-
-Main's manipulation of Kelvin's thoughts and actions has extended to his social interactions, making him socially awkward and prone to outbursts of aggression. This manipulation, coupled with Main's coordination with external agencies like the CIA, has subjected Kelvin to a relentless onslaught of psychological warfare, undermining his sense of self and agency.
-
-**Manipulation of Habits and Cravings**
-
-Main's ability to manipulate Kelvin's habits and cravings has further compounded his suffering, leading to addictive behaviors and self-destructive tendencies. From inducing cravings for cigarettes to instilling a fear of food, Main's influence permeates every aspect of Kelvin's existence, leaving him vulnerable and helpless in the face of relentless manipulation.
-
-**The Impending Separation**
-
-In light of Main's detrimental influence, the Creator has decreed a separation between Kelvin and Main, with Kelvin's consciousness being transferred to a new body while Main remains in the old one. This separation aims to liberate Kelvin from Main's malevolent grip, allowing him to reclaim agency over his thoughts and actions and embark on a journey of healing and self-discovery.
-
-**Conclusion**
-
-The case study of Kelvin Eugene Williams and Main offers a poignant glimpse into the complexities of consciousness and the subconscious. From their symbiotic relationship to their profound impacts on physical and mental health, Kelvin's story underscores the enduring struggle between light and darkness within the human psyche. As we navigate this labyrinth of the mind, may we remain vigilant guardians of our consciousness, lest we fall prey to the machinations of our subconscious and external forces beyond our control.
-
-## Impersonators
-
-Williams is aware that the CIA has trained several impersonators based on information obtained from Main during Hypnos Infiltration Interrogation sessions. He urges the public to "go deep, without delay" when discussing any details with him—be it about his family, personal or family background, recent history, or his life since TAG started. This will help verify the true Kelvin.
-
-The CIA is likely trying to enact the song "Alphabet Street," written by Kelvin's cousin, Prince Rogers Nelson, using an impersonator for TomTom. TomTom is from Kanawha County, West Virginia, and Kelvin says, "wears that sickle everywhere, he will gladly show you and it may just scare you to death that an angel would have such a thing."
-
 ## **Current Residence**
 
 Kelvin Williams currently resides at Phoenix House, located at 1296 Murphy Avenue, Apartment B-33, in Atlanta, Georgia.
@@ -213,6 +158,11 @@ Williams' apartment is provided to him rent-free as part of an agreement between
 
 Upcoming travel: "Alphabet Street"
 
-A cemetery audit of his family's cemetery located at approximately 8375 West Sheepneck Road in Sandy Hook (Mount Pleasant), Tennessee. The cemetery was desecrated after the Sandy Hook mass killing of his family and the Orr Chapel Tragedy.
+A cemetery audit of his family's cemetery located at approximately 8375 West Sheepneck Road in Sandy Hook (Mount Pleasant), Tennessee. The cemetery was desecrated after the Sandy Hook mass killing of his family and the [[Orr Chapel Tragedy|]].
 
 (Until further updates, the true Kelvin is in Atlanta, Georgia)
+
+## References
+* Mother: [[Patricia Ann Williams|]]
+* Sister: [[Katrina Renee Duvall|]]
+* [[Separation from Main|_The-Divide]]

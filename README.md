@@ -26,7 +26,5 @@ For easier navigation and comprehensive insights into TAG, we recommend explorin
 
 - **Reports**: Detailed narratives, eyewitness accounts, and public awareness campaigns used to expose TAG by the Creator and His two servants.
 
-## **Confidentiality Notice** 
-This repository contains sensitive information and is intended for internal use only. Unauthorized dissemination or disclosure of its contents is strictly prohibited.
-
-Dissemination of any information contained within to parties outside of the creation (or "the universe") may be punishable by the Creator.
+## **Use and Distribution Policy ** 
+See: [Use and Distribution Policy](/reports/Use-and-Distribution-Policy.md)

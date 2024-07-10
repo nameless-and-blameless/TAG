@@ -23,6 +23,3 @@
 > 
 > This warning is issued in the interest of public safety. Your awareness and cooperation are crucial in preventing further tragedies and bringing the perpetrators to justice. Please share this information widely to ensure the safety of your community.
 
----
-
-Feel free to adjust the message as needed for clarity or additional details.

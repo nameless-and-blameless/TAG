@@ -1,4 +1,4 @@
-**Report on Main: The Subconscious of Kelvin**
+# **Report on Main: The Subconscious of Kelvin**
 
 ## Understanding Main's Role and Actions
 
@@ -55,6 +55,10 @@ Main, as the subconscious of Kelvin, profoundly influences both voluntary and in
 - The subconscious experiences the world through the conscious mind’s thoughts and perceptions of sensory inputs.
 - While Kelvin believes he can see, hear, and feel, Main, as the subconscious, has never directly experienced sensory inputs.
 
+### Conversational Abilities:
+- Main can hold conversations with Kelvin, whether speaking out loud or communicating silently.
+- This unique interaction allows Main to influence Kelvin's thoughts and decisions through direct communication.
+
 ## The Creator's Solution: Separation of Consciousness
 
 ### Rationale for Separation:
@@ -78,3 +82,5 @@ Main, as the subconscious of Kelvin, profoundly influences both voluntary and in
 ## Conclusion
 
 Understanding and addressing Main’s motivations and actions are crucial for achieving harmony and promoting Kelvin’s well-being. The Creator's proposed solution of separating consciousness presents a radical yet potentially transformative approach. Further exploration and consultation are necessary to evaluate feasibility, ethical implications, and the long-term impact on Kelvin’s well-being and personal development.
+
+---

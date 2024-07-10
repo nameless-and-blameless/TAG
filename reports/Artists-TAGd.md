@@ -218,4 +218,35 @@ Lyricists should not be persecuted for their works, as their creations often ref
 
 - **Rae Dawn Chong**
   - **Occupation:** Actress
-  - **Reason for Being Targeted:** The Color
+  - **Reason for Being Targeted:** The Color Purple
+  - **Status:** Endangered
+
+- **Randy Real**
+  - **Occupation:** Drums (The Scissor Sisters)
+  - **Reason for Being Targeted:** The Magic Hour
+  - **Status:** Endangered
+
+- **Renée Zellweger**
+  - **Occupation:** Actress
+  - **Reason for Being Targeted:** Chicago soundtrack
+  - **Status:** Endangered
+
+- **Sean “Puffy” Combs**
+  - **Occupation:** Rapper/Producer
+  - **Reason for Being Targeted:** Appears on songs listened to by His servants
+  - **Status:** Endangered
+
+- **Shirley Caesar (and the Georgia Mass Choir)**
+  - **Occupation:** Singers
+  - **Reason for Being Targeted:** Whitney Houston’s “He’s All Over Me”
+  - **Status:** Endangered
+
+- **The Color Purple Cast (Entire)**
+  - **Occupation:** Actors/Actresses
+  - **Reason for Being Targeted:** Especially in the church scene
+  - **Status:** Endangered 
+
+## Kelvin's Library 
+This is Kelvin's current library, using screenshots to save time. Everyone not already killed is in endangered.
+
+![Screenshot_20240629-162313](https://github.com/nameless-and-blameless/TAG/assets/169210208/ccb3c303-1f5e-48ef-92da-91f5958b0abf)

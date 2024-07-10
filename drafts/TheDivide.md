@@ -38,23 +38,21 @@ Main, as Kelvin's subconscious, profoundly influences both voluntary and involun
 - When unconscious, individuals do not perceive time or events; the restoration of memories feels instantaneous, as if no time has passed.
 - Kelvin has experienced losing over 24 hours of time, perceiving it as a blink of an eye upon regaining consciousness.
 
-## Souls in Religious Contexts
+## The Subconscious and Sensory Experience
 
-### Definition and Characteristics:
-- In religious contexts, the conscious and subconscious minds are often referred to as souls.
-- Souls are believed to be immortal and cannot be destroyed by the Creator.
+### Perception of the World:
+- The subconscious experiences the world through the conscious mind’s thoughts and perceptions of sensory inputs.
+- While Kelvin believes he can see, hear, and feel, Main, as the subconscious, has never directly experienced sensory inputs.
 
-### Eternal Nature:
-- The conscious and subconscious minds, or souls, persist beyond physical existence and are integral to spiritual identity.
-
-### Creator's Perspective:
-- According to religious beliefs, the Creator does not terminate souls but allows them to continue their existence eternally.
+### Transition to Consciousness:
+- Upon becoming the conscious mind of the body, Main will experience all five senses simultaneously for the first time.
+- This transition represents a significant shift, as Main assumes direct control over sensory perception and experiences the world in real-time.
 
 ## The Creator's Solution: Separation of Consciousness
 
 ### Rationale for Separation:
 - Main’s persistent actions, driven by a lack of understanding consequences, continue to negatively affect Kelvin’s life and well-being.
-- The Creator's solution involves separating the consciousnesses, believing that Main, as the subconscious builder of the body, must face the consequences of its actions while allowing Kelvin to continue his life independently.
+- The Creator's solution involves separating the consciousnesses, believing that Main must face the consequences of its actions while allowing Kelvin to continue his life independently.
 
 ### The Creator's Process:
 - Main will be elevated to consciousness within the current body, assuming responsibility for its decisions and actions.
@@ -63,6 +61,12 @@ Main, as Kelvin's subconscious, profoundly influences both voluntary and involun
 ### Impact on Kelvin:
 - Kelvin’s conscious mind will be transferred to another body provided by his mother, allowing him to continue his life and fulfill his responsibilities for the Creator in a new physical form.
 - This separation aims to break the cycle of destructive behavior driven by Main’s actions and provide Kelvin with the opportunity for personal growth and fulfillment.
+
+### Impact on Main:
+- Main will become the conscious mind and remain in the same body.
+- Main will receive sensory input for the first time and not just read the conscious mind's thoughts about it, or ignore them.
+- Main will need around the clock care for a few weeks as he learns.
+- Main will progress to about the age of a five year old in about a week while in a 47 year old body.
 
 ### Ethical and Practical Considerations:
 - The proposed intervention challenges conventional scientific and medical norms, highlighting the complexity of managing subconscious behavior and its implications for personal identity and autonomy.

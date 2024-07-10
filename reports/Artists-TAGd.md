@@ -259,6 +259,20 @@ Lyricists should not be persecuted for their works, as their creations often ref
     - **Gerome Ragni**
     - **Galt MacDermot**
 
+- **Creedence Clearwater Revival Members**
+  - **Occupation:** Musicians
+  - **Reason for Being Targeted:** "Proud Mary"
+  - **Status:** Endangered
+    - **John Fogerty**
+    - **Tom Fogerty**
+    - **Stu Cook**
+    - **Doug Clifford**
+
+- **John Fogerty"**
+  - **Occupation:** Songwriter
+  - **Reason for Being Targeted:** "Proud Mary" (for both CCR and Tina Turner)
+  - **Status:** Endangered 
+
 - **The Color Purple Cast (Entire)**
   - **Occupation:** Actors/Actresses
   - **Reason for Being Targeted:** Especially in the church scene

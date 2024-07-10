@@ -4,7 +4,7 @@
 
 | Date                | Area                       | Subject |
 |---------------------|----------------------------|---------|
-| 2024-07-10 | Woodford Co/Central KY| [[Phantom Funeral (Mass-Killing) Warning at Mount Zion|_20240710-KY-WOODFORD-1]] |
+| 2024-07-10 | Woodford Co/Central KY| [[Phantom Funeral|_20240710-KY-WOODFORD-1]] |
 
 # Law Enforcement Advisories 
 

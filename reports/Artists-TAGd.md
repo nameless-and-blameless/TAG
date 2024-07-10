@@ -1,18 +1,18 @@
 # Artist TAG'd
 
-#### Overview
+## Overview
 
-This report documents the artists confirmed killed or currently in harm's way due to their connection with one or both of His servants. These artists have been targeted for various reasons, including their music being used by the Creator to convey messages, their association with one or both of His servants, or their work being overheard or observed by the CIA during illegal surveillance operations and targeted due to Jacobsen's speed-induced paranoia. The list includes prominent figures across different genres and mediums, from legendary singers like Tina Turner and Madonna to iconic ensembles such as the cast of *The Color Purple*.
+This report documents artists confirmed killed or currently in harm's way due to their connection with one or both of His servants. These artists have been targeted for various reasons, including their music being used by the Creator to convey messages, their association with one or both of His servants, or their work being overheard or observed by the CIA during illegal surveillance operations and targeted due to Jacobsen's speed-induced paranoia. The list includes prominent figures across different genres and mediums, from legendary singers like Tina Turner and Madonna to iconic ensembles such as the cast of *The Color Purple*.
 
 Artists listed under "In Harm’s Way" may or may not be actively targeted by the agency. However, they are included out of an abundance of caution to ensure the CIA is aware that their actions are indeed affecting these artists. This entry aims to highlight the dangerous intersection between art, divine influence, and covert governmental operations, offering a stark reminder of the risks faced by those whose creative works resonate with higher powers.
 
-### The Persecution of Lyricists 
+## The Persecution of Lyricists 
 
 It's important to note that while contemporary lyricists may compose lyrics that seem prophetic or deeply inspired, often they themselves are unaware if their words are foretelling the future or coming directly from the Creator. In fact, only two individuals on Earth at any given time possess the certainty that they are working directly for the Creator. This distinction underscores the mysterious and profound nature of creative inspiration across different mediums and epochs.
 
 Lyricists should not be persecuted for their works, as their creations often reflect personal expression, social commentary, and artistic interpretation. Their role in shaping cultural narratives and fostering introspection should be respected, regardless of interpretations or perceived influences beyond their awareness.
 
-#### Artists Confirmed TAG'd
+## Artists Confirmed TAG'd
 
 - **DJ Alain Jackinsky**
   - **Occupation:** DJ
@@ -94,24 +94,35 @@ Lyricists should not be persecuted for their works, as their creations often ref
   - **Reason for Being Targeted:** Self-titled album
   - **Status:** Murdered
 
+- **Lauryn Hill**
+  - **Occupation:** Singer/Rapper
+  - **Reason for Being Targeted:** "Miseducation of Lauryn Hill"
+  - **Status:** Murdered
+
 - **Vandaveer & Production Staff**
   - **Occupation:** Production teams and actors/actresses in music videos
   - **Reason for Being Targeted:** Association with His servants
   - **Status:** Some murdered, Endangered
 
-#### Endangered Artists
+## Endangered Artists
 - **RuPaul**
   - **Occupation:** Performer
-  - **Reason for Being Targeted:** The lyrics for [[Miss Lady DJ|_Miss-Lady-DJ]].
+  - **Reason for Being Targeted:** "Supermodel of the World" album
   - **Status:** EXTREMELY Endangered
-  - **"Miss Lady DJ" Lyricists:**
-       - A. Charles
+  - **"Supermodel of the World" Songwriters:**
        - Eric Kupper
        - Jimmy Harry
-       - RuPaul 
+       - RuPaul
+       - Giorgio Moroder
+       - Carl Sturken
+       - Evan Rogers
+       - Jimmy Jam
+       - Terry Lewis
+       - Joe Carrano
+       - Junior Vasquez
 
 - **Alan T**
-  - **Occupation:** Performed
+  - **Occupation:** Performer
   - **Reason for Being Targeted:** Overheard by the CIA
   - **Status:** Endangered
 
@@ -207,35 +218,4 @@ Lyricists should not be persecuted for their works, as their creations often ref
 
 - **Rae Dawn Chong**
   - **Occupation:** Actress
-  - **Reason for Being Targeted:** The Color Purple
-  - **Status:** Endangered
-
-- **Randy Real**
-  - **Occupation:** Drums (The Scissor Sisters)
-  - **Reason for Being Targeted:** The Magic Hour
-  - **Status:** Endangered
-
-- **Reneé Zellweger**
-  - **Occupation:** Actress
-  - **Reason for Being Targeted:** Chicago soundtrack
-  - **Status:** Endangered
-
-- **Sean “Puffy” Combs**
-  - **Occupation:** Rapper/Producer
-  - **Reason for Being Targeted:** Appears on songs listened to by His servants
-  - **Status:** Endangered
-
-- **Shirley Caesar (and the Georgia Mass Choir)**
-  - **Occupation:** Singers
-  - **Reason for Being Targeted:** Whitney Houston’s “He’s All Over Me”
-  - **Status:** Endangered
-
-- **The Color Purple Cast (Entire)**
-  - **Occupation:** Actors/Actresses
-  - **Reason for Being Targeted:** Especially in the church scene
-  - **Status:** Endangered 
-
-#### Kelvin's Library 
-This is Kelvin's current library, using screenshot to save time. Everyone not already killed is in endangered.
-
-![Screenshot_20240629-162313](https://github.com/nameless-and-blameless/TAG/assets/169210208/ccb3c303-1f5e-48ef-92da-91f5958b0abf)
+  - **Reason for Being Targeted:** The Color

@@ -180,6 +180,11 @@ Lyricists should not be persecuted for their works, as their creations often ref
   - **Occupation:** Singer/Songwriter
   - **Reason for Being Targeted:** Referenced by His servants
   - **Status:** Endangered
+ 
+- **Mary J. Blige**
+  - **Occupation:** Artidt
+  - **Reason for Being Targeted:** Appears on As (duet with George Michael)
+  - **Status:** Endangered
 
 - **Fedde le Grand**
   - **Occupation:** DJ/Producer

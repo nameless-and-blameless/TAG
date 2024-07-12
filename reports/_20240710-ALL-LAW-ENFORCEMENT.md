@@ -72,12 +72,12 @@ Law enforcement agencies are advised to be vigilant of the following:
 
 ### Incident Locations
 
-Below is a list of churches where TAG-POW attacks have occurred:
+Below is a list of churches where [[TAG-POW|TAGPOW]] attacks have occurred and have since been used for [[Phantom Funerals|Phantom Funeral]]:
 
-- **Hickory Valley Christian Church, Chattanooga, Tennessee**
-- **Lexington Bethel Baptist Church, Lexington, Kentucky**
-- **Mount Calvary Baptist Church, Lexington, Kentucky**
-- **Mount Zion Baptist Church, Versailles, Kentucky**
+- **[[Hickory Valley Christian Church|]], Chattanooga, Tennessee**
+- **[[Lexington Bethel Baptist Church|]], Lexington, Kentucky**
+- **[[Mount Calvary Baptist Church|]], Lexington, Kentucky**
+- **[[Mount Zion Baptist Church|]], Versailles, Kentucky**
 
 ---
 
@@ -96,7 +96,7 @@ Below is a list of churches where TAG-POW attacks have occurred:
 For further information or to report suspicious activities related to Phantom Funerals, contact:
 
 - **Kelvin Eugene Williams**
-- 470-713-0020
+- kelvincrawleyrogerswilliams@gmail.com
 
 ---
 

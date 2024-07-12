@@ -1,6 +1,6 @@
 # **Statement**
 
-The Creator knows who is pulling the strings in The American Genocide, the suppression of information about it that could save lives, and enabling the continued activities. The Creator is fully aware of the use of the Hypnos Infiltration Method, which has caused ordinary Americans to act in ways they would never believe possible, leading to further deaths, many of which are tragically self-inflicted.
+The Creator knows who is pulling the strings in The American Genocide, the suppression of information about it that could save lives, and enabling the continued activities. The Creator is fully aware of the use of the [[Hypnos Infiltration Method|Hypnos Infiltration Tactic]], which has caused ordinary Americans to act in ways they would never believe possible, leading to further deaths, many of which are tragically self-inflicted.
 
 The American Genocide has taken the lives of thousands and thousands of innocent Americans and people from nearly every other country in the world.
 
@@ -12,5 +12,5 @@ The list of those identified, in order of the severity of their crimes, includes
 - **"Michael Blackmon"**
 - **President Joseph Biden**
 - **Speaker of the House Nancy Pelosi**
-- **Senate Minority Leader Mitch McConnell**
+- **Senate Minority Leader Mitch McConnell (R-KY)**
 - **CIA Director William Burns**

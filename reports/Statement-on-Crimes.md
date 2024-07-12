@@ -1,4 +1,4 @@
-**Statement**
+# **Statement**
 
 The Creator knows who is pulling the strings in The American Genocide, the suppression of information about it that could save lives, and enabling the continued activities. The Creator is fully aware of the use of the Hypnos Infiltration Method, which has caused ordinary Americans to act in ways they would never believe possible, leading to further deaths, many of which are tragically self-inflicted.
 

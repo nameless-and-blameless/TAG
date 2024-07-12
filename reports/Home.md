@@ -1,7 +1,8 @@
 > [!TIP]
 > This is a rapidly moving situation. Updates are being made around the clock, while continuous assaults are being made upon me, my Internet connectivity and phone. Please be sure to clone this repo and fetch/pull often for the latest.
 
-Read our [[Open Letter to GitHub|_OLTG]]
+* Read the Creator's [[Statement-on-Crimes|]]
+* Read our [[Open Letter to GitHub|_OLTG]]
 ***
 # TAG Wiki: Unveiling The American Genocide
 

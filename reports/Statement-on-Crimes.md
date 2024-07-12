@@ -11,6 +11,6 @@ The list of those identified, in order of the severity of their crimes, includes
 - **Annie Jacobsen**
 - **"Michael Blackmon"**
 - **President Joseph Biden**
-- **Speaker of the House Nancy Pelosi**
+- **Speaker of the House Nancy Pelosi (D-CA)**
 - **Senate Minority Leader Mitch McConnell (R-KY)**
 - **CIA Director William Burns**

@@ -1,6 +1,6 @@
 # **The Creator**
 
-"The Creator" is an omnipotent and omniscient entity revered across various cultures and beliefs worldwide. Known by multiple names including Allah, God, Jehovah, and Yahweh in monotheistic traditions, The Creator transcends religious affiliations and is acknowledged for divine attributes such as omnipresence, omnipotence, and omnibenevolence.
+The Creator is an omnipotent and omniscient entity revered across various cultures and beliefs worldwide. Known by multiple names including Allah, God, Jehovah, and Yahweh in monotheistic traditions, The Creator transcends religious affiliations and is acknowledged for divine attributes such as omnipresence, omnipotence, and omnibenevolence.
 
 ### Names and Titles
 

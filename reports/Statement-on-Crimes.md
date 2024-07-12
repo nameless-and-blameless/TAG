@@ -1,18 +1,21 @@
-# **Statement**
+# **The Creator Assures the American Public: No One Is Above His Law**
 
-[[The Creator|]] knows who is pulling the strings in [[The American Genocide|TAG]], the suppression of news and information about it that could save lives, and enabling the continued activities. The Creator is fully aware of the use of the [[Hypnos Infiltration Method|Hypnos Infiltration Tactic]], which has caused ordinary Americans to act in ways they would never believe possible, leading to further deaths, many of which are tragically self-inflicted.
+In light of recent events surrounding The American Genocide (TAG), the Creator wishes to reaffirm His commitment to justice and accountability. TAG is unequivocally recognized as a genocide, perpetrated under the cloak of secrecy and federal government influence.
 
-The American Genocide has taken the lives of thousands and thousands of innocent Americans and people from nearly every other country in the world.
+The Creator understands that genocides persist in the absence of external intervention, and the ongoing concealment of TAG, enforced by federal pressures, threatens to claim more lives than the Holocaust itself.
 
-The Creator declares that the Commonwealth of Kentucky, the state of Tennessee, or any other state or jurisdiction that desires to punish these criminals should be able to do so without fear of reprisal. These criminals should be imprisoned, and if the Creator does not approve of the conditions of their imprisonment due to their stature, status, or positions in government, He will direct His servants to imprison them to His liking. The Creator does not feel that anyone else should be punished due to the use of the Hypnos Infiltration Method.
+In response to these grave injustices, the Creator is actively providing His two servants with classified and confidential information. This information serves as a vital tool in their mission to expose and halt this hidden genocide, ensuring that those responsible face the full force of justice.
 
-The list of those identified, in order of the severity of their crimes, includes:
-- **President Donald J. Trump**
-- **Annie Jacobsen**
-- **"Michael Blackmon"**
-- **President Joseph Biden**
-- **Speaker of the House Nancy Pelosi (D-CA)**
-- **Senate Minority Leader Mitch McConnell (R-KY)**
-- **CIA Director William Burns**
-  
-The Creator, revered globally across cultures, is known by various names like Allah, God, Jehovah, and Yahweh in monotheistic faiths. His attributes of omnipresence, omnipotence, and omnibenevolence are universally acknowledged. "The Creator" mentioned herein is the same "the Creator" mentioned in the US Declaration of Independence. His servants refer to Him neutrally as "The Creator," honoring His directive to respect diverse religious beliefs. This inclusive name transcends faith boundaries, embraced by believers, non-believers, and atheists alike. As the Creator of the Universe, the Alpha & the Omega, and the Great "I Am," these titles emphasize His role in creating and sustaining all existence.
+The Creator emphasizes that no individual or entity is above His law. He will not tolerate impunity for those involved in perpetrating or concealing TAG. The following individuals have been identified as principal perpetrators of this genocide:
+
+- President Donald J. Trump
+- Annie Jacobsen
+- "Michael Blackmon"
+- President Joseph Biden
+- Speaker of the House Nancy Pelosi (D-CA)
+- Senate Minority Leader Mitch McConnell (R-KY)
+- CIA Director William Burns
+
+Should the Commonwealth of Kentucky or other affected states fail to prosecute or imprison these perpetrators to His satisfaction, the Creator will task His servants with ensuring their confinement. Lengthy terms of imprisonment, potentially lifelong, await those found culpable.
+
+The Creator urges the human race to stand against such atrocities, affirming that justice must prevail for the sake of all humanity.

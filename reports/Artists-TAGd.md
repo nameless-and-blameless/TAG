@@ -128,7 +128,12 @@ Lyricists should not be persecuted for their works, as their creations often ref
 
 - **Bobby Brown**
   - **Occupation:** Performer
-  - **Reason for Being Targeted:** Whitney Houston's "Somebody Bigger Than You and I"
+  - **Reason for Being Targeted:** Appears on Whitney Houston's "Somebody Bigger Than You and I"
+  - **Status:** Endangered
+
+- **Faith Evans**
+  - **Occupation:** Performer
+  - **Reason for Being Targeted:** Appears on Whitney Houston's "Somebody Bigger Than You and I"
   - **Status:** Endangered
 
 - **Ana Matronic**

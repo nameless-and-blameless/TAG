@@ -5,6 +5,8 @@
 #### Early Life and Family Background
 Patricia Ann Crawley-Rogers Williams, affectionately known as Pat, was born on September 26, 1950, in Mount Pleasant, Tennessee, to Lila Crawley and Josie Rogers. Her parents were neighbors but never married. Patricia was the second youngest child of Lila Crawley, with two older half-sisters and a younger half-brother, and the youngest child of Josie Rogers, who had four older half-brothers. Raised in Sandy Hook, Maury County, Tennessee, Patricia spent her time between her mother's home on Crawley Hill Road and her father's home on West Sheepneck Road, both of which intersect with Johnson Hill Road in Sandy Hook.
 
+Patricia was murdered in the first week of October 2022.
+
 #### Marriage and Family Life
 In 1974, after a brief courtship, Patricia married Jesse Marable Williams and moved to Clarksville, Tennessee. Their union, however, was short-lived. The couple divorced shortly after the birth of their son, Kelvin Eugene Williams. Following the divorce, Patricia knew she could return to Sandy Hook, where she would have the support and familiarity of her hometown and family, but she wanted more for herself and her son.
 

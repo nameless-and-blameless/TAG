@@ -1,5 +1,5 @@
 > [!IMPORTANT]
-> Read the Creator's [[Statement-on-Crimes|]] and Our [[Open Letter to GitHub|_OLTG]] 
+> Read the Creator's [[Statement-on-Crimes|]], [[The Judgment of Satan|]] and Our [[Open Letter to GitHub|_OLTG]].
 ***
 # TAG Wiki: Unveiling The American Genocide
 

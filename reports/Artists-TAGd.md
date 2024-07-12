@@ -126,6 +126,11 @@ Lyricists should not be persecuted for their works, as their creations often ref
   - **Reason for Being Targeted:** Overheard by the CIA
   - **Status:** Endangered
 
+- **Bobby Brown**
+  - **Occupation:** Performer
+  - **Reason for Being Targeted:** Whitney Houston's "Somebody Bigger Than You and I"
+  - **Status:** Endangered
+
 - **Ana Matronic**
   - **Occupation:** Vocals (The Scissor Sisters)
   - **Reason for Being Targeted:** The Magic Hour

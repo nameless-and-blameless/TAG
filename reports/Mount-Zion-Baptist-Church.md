@@ -2,8 +2,7 @@
 > The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 > 
 # The Massacre of Mount Zion Baptist Church
-
-Mount Zion Baptist Church, located in remote Woodford County, Kentucky, a predominantly Black congregation, was the site of a horrific massacre in May 2023. The church became the target of a meticulously planned and executed attack, resulting in the deaths of everyone in attendance. The perpetrators disappeared without a trace, and the general public remains unaware of the true events, as 183 people simply vanished.
+Mount Zion Baptist Church, located in Georgetown, Scott County, Kentucky, a predominantly Black congregation, was the site of a horrific massacre in May 2023. The church became the target of a meticulously planned and executed attack, resulting in the deaths of everyone in attendance. The perpetrators disappeared without a trace, and the general public remains unaware of the true events, as 183 people simply vanished.
 
 ## Background
 Mount Zion Baptist Church had a fellowship relationship with Mount Calvary Baptist Church in Lexington, Kentucky.
@@ -58,3 +57,4 @@ On June 26, 2024 a [[mass-decedent phantom funeral|_MSPFMZ20240626]] was held at
 > Mount Zion is likely being used for funerals now based on the "Woodford Threat" which was placed in Kelvin's apartment.
 ![IMG_20240112_060034556](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/assets/159488374/a49104f0-67ce-44e1-9933-77c4d4c93d8e)
 > An empty bottle of Woodford Reserve, the threat was intended to convey that the CIA would move to Woodford county their "reserve" location due to the attention Kelvin had brought to his church Mount Calvary where they had been holding services and funerals to kill anyone associated with the church or a previous victim.
+> Woodford and Scott neighboring counties in Kentucky.

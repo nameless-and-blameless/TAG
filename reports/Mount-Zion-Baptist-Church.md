@@ -32,7 +32,7 @@ The [[Emergency Services Interruption Tactic|]] tactic was initiated just before
 ### Surprise
 The congregation was already midway through their Sunday morning worship session when Jacobsen and the operatives burst into the sanctuary. Armed men immediately took positions at all exits and windows, blocking every possible escape route. Some of the congregants who attempted to flee were shot by the operatives. Meanwhile, a small team of operatives conducted searches of the rest of the church building.
 
-Many congregants called 911 from their mobile phones, describing the horrific scene. They were told help was on the way, but none realized they were speaking with CIA operatives instead of Woodford County’s Public Safety Answering Point (PSAP)—a centralized facility responsible for answering and routing emergency calls. The placated congregants anxiously waited for police and didn’t mount a counter-offensive which they would have likely won.
+Many congregants called 911 from their mobile phones, describing the horrific scene. They were told help was on the way, but none realized they were speaking with CIA operatives instead of Scott County’s Public Safety Answering Point (PSAP)—a centralized facility responsible for answering and routing emergency calls. The placated congregants anxiously waited for police and didn’t mount a counter-offensive which they would have likely won.
 
 Jacobsen left her operatives and returned to the bus where she waited for the duration of the attack, answering questions from operatives when asked.
 

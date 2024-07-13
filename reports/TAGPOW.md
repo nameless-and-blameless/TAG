@@ -77,7 +77,7 @@ The TAG-POW (The American Genocide - Place of Worship) attacks represent a serie
      - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
 
 5. **Mount Zion Baptist Church**
-   - **Location:** Versailles, Kentucky
+   - **Location:** Georgetown, Kentucky
    - **Congregation:** Predominantly African American
    - **Target Reason:** Jacobsen preemptively attacked them believing there was a stronger affiliation with Mount Calvary Baptist Church.
    - **Attack Details:**

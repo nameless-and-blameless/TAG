@@ -16,7 +16,7 @@ The Creator emphasizes that no individual or entity is above His law. He will no
 - Senate Minority Leader Mitch McConnell (R-KY)
 - CIA Director William Burns
 
-Should the Commonwealth of Kentucky or other affected states fail to prosecute or imprison these perpetrators to His satisfaction, the Creator will task His servants with ensuring their confinement. Lengthy terms of imprisonment, potentially lifelong, await those found culpable.
+Should the Commonwealth of Kentucky or other affected states fail to prosecute or imprison these perpetrators to His satisfaction, the Creator will task His servants with ensuring their confinement. Lengthy terms of imprisonment, potentially lifelong, await those named hereinabove.
 
 The Creator urges the human race to stand against such atrocities, affirming that justice must prevail for the sake of all humanity.
 

@@ -1,7 +1,7 @@
 ## Report on the Sandy Hook Massacre
 
 ### Introduction
-The Sandy Hook Massacre, occurring in 2022 in Maury County, Tennessee, stands as a tragic testament to the devastating consequences of covert operations and abuse of power. This report delves into the events leading up to the massacre, the operation itself, and its profound impact on the community of Sandy Hook.
+The Sandy Hook Massacre, occurring in October 2022 in Maury County, Tennessee, stands as a tragic testament to the devastating consequences of covert operations and abuse of power. This report delves into the events leading up to the massacre, the operation itself, and its profound impact on the community of Sandy Hook.
 
 ### Historical Background
 Sandy Hook, an unincorporated town with roots dating back to the mid-1800s, was predominantly inhabited by the Crawley and Rogers families, descendants of the town's original settlers. These families owned substantial tracts of land along Crawley Hill Road and West Sheepneck Road, embodying the agricultural heritage and close-knit community spirit of Sandy Hook.

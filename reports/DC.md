@@ -10,11 +10,7 @@ The Creator, often referred to by names such as Allah and God, is a faith-neutra
 
 ## The Creator's Intervention Policy
 
-The Creator's intervention policy is driven by a commitment to safeguard life, intervening when human actions threaten the existence and well-being of a large number of people. This policy is encapsulated in the Law of Conscious Activity (LOCA).
-
-### Law of Conscious Activity (LOCA)
-
-LOCA states that once a conscious entity becomes engaged in an activity with a goal, it will continue after a failure or perceived failure to retry with increasing effort until it achieves its goal or is impeded by an equal or greater force. The Creator knows that LOCA is true and is the reason He often refrains from intervening in the activities of any of His conscious beings. His interactions would not be perceived as His unseen hands but as an impediment causing a retry with more intensity, which can cause a bad situation to become much worse.
+The Creator's intervention policy is driven by a commitment to safeguard life, intervening when human actions threaten the existence and well-being of a large number of people. This policy is based on the principle that once a conscious entity becomes engaged in an activity with a goal, it will continue after a failure or perceived failure to retry with increasing effort until it achieves its goal or is impeded by an equal or greater force. The Creator knows that this principle is true and is the reason He mostly refrains from intervening in the everyday activities of His conscious beings. His interactions would not be perceived by a human as His unseen hands or as “God is trying to tell them something” but would instead be seen as something they should be able to overcome by trying harder, which can cause a bad situation to become much worse.
 
 ## The Situation in the United States
 

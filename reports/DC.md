@@ -45,4 +45,4 @@ The Creator knows that a greater force is necessary and He must start now becaus
 
 ## Conclusion
 
-The Creator's Divide & Conquer intervention is a necessary and urgent response to a dire situation in the United States. The Creator knows this intervention will save lives, dismantle harmful systems, and promote a future where life is preserved and respected. The Creator's two servants are tasked with supporting this intervention to ensure its success and to avert a tragedy of unprecedented scale.
+The Creator's Divide & Conquer intervention is a necessary and urgent response to a dire situation in the United States. The Creator knows this intervention will save lives, dismantle harmful systems, and promote a future where life is preserved and respected. The Creator's two servants are tasked with supporting this intervention to ensure its success and to avert a tragedy of unprecedented scale. 

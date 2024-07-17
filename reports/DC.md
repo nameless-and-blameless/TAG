@@ -41,8 +41,8 @@ The Divide & Conquer strategy involves:
 
 ### The Creator's Plan
 
-The Creator knows that a greater force is necessary and He must start now because it is going to be too costly. With any discussion of the acts conducted deemed a threat that must be eliminated, the likelihood of another country or group of allies intervening with any level of force is too low, and the loss of life costs are already too high.
+The Creator knows that a greater force is necessary and He must start now because it is going to be too costly in terms of human lives lost. With anyone discussing or discovering any of the previous acts committed deemed a threat that must be eliminated, the likelihood of another country or group of allies intervening with any level of force is too low, and the loss of life costs are already too high.
 
 ## Conclusion
 
-The Creator's Divide & Conquer intervention is a necessary and urgent response to a dire situation in the United States. The Creator knows this intervention aims to save lives, dismantle harmful systems, and promote a future where life is preserved and respected. The Creator's two servants are tasked with executing this intervention to ensure its success and to avert a disaster of unprecedented scale.
+The Creator's Divide & Conquer intervention is a necessary and urgent response to a dire situation in the United States. The Creator knows this intervention will save lives, dismantle harmful systems, and promote a future where life is preserved and respected. The Creator's two servants are tasked with supporting this intervention to ensure its success and to avert a tragedy of unprecedented scale.

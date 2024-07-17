@@ -1,23 +1,27 @@
-**Law Enforcement Bulletin: Advisory on PLANNED Phantom Funeral Activity (A MASS-KILLING)**
+**Law Enforcement Bulletin: Advisory on PLANNED Mass-Killings**
 
 **Date:** 2024-06-20
-**Last Updated:** 2024-07-10
+**Last Updated:** 2024-07-17
 
-**Subject:** Advisory on Phantom Funerals Linked to TAG Operations
+**Subject:** Advisory on Mass-Killing Operations at Previously Attacked Churches 
 
 ---
 
 ### Overview
 
-Recent intelligence and credible eyewitness accounts suggest the continuation of covert operations known as Phantom Funerals. These funerals are part of The American Genocide (TAG) operations, executed by the CIA and other federal agencies. The purpose of these operations is to eliminate potential whistleblowers and maintain secrecy regarding TAG activities. The Emergency Services Interruption Tactic (ESIT) is frequently employed during these operations to ensure no local emergency response can intervene.
+Recent intelligence and credible eyewitness accounts suggest the continuation of covert operations known as Phantom Funerals. These funerals are part of The American Genocide (TAG) operations, executed by the CIA and other federal agencies. 
+
+We are aware the perpetrators have begun advertising (via word of mouth campaigns) food pantries/giveaways to the general public wherein tbose who come to the churches are executed.
+
+The purpose of these operations are to eliminate potential whistleblowers and maintain secrecy regarding TAG activities. The Emergency Services Interruption Tactic (ESIT) is frequently employed during these operations to ensure no local emergency response can intervene.
 
 ---
 
 ### Immediate Threat
 
-**Hickory Valley Christian Church** is identified by our intelligence as the location of an imminent Phantom Funeral on Wednesday 2024-07-10.  Law enforcement should be on high alert for any suspicious activity in and around this area.
+**Hickory Valley Christian Church** is identified by our intelligence as the location of an imminent Phantom Funeral on Wednesday 2024-07-17.  Law enforcement should be on high alert for any suspicious activity in and around this area.
 
-**Mount Zion Baptist Church** is identified by our intelligence as the location of an imminent Phantom Funeral on Wednesday 2024-07-10.  Law enforcement should be on high alert for any suspicious activity in and around this area.
+**Mount Zion Baptist Church** is identified by our intelligence as the location of an imminent Phantom Funeral on Wednesday 2024-07-17.  Law enforcement should be on high alert for any suspicious activity in and around this area.
 
 Our intelligence suggests the sanctuary has been renovated and all killing is now occurring in the basement or other areas on the church's property. Victims are taken by force to the area after entering the sanctuary which is likely staged to appear as if a funeral is occurring.
 
@@ -77,7 +81,7 @@ Below is a list of churches where [[TAG-POW|TAGPOW]] attacks have occurred and h
 - **[[Hickory Valley Christian Church|]], Chattanooga, Tennessee**
 - **[[Lexington Bethel Baptist Church|]], Lexington, Kentucky**
 - **[[Mount Calvary Baptist Church|]], Lexington, Kentucky**
-- **[[Mount Zion Baptist Church|]], Versailles, Kentucky**
+- **[[Mount Zion Baptist Church|]], Georgetown, Kentucky**
 
 ---
 

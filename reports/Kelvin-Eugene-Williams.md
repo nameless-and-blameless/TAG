@@ -1,3 +1,4 @@
+# Kelvin Eugene Williams 
 ## Early Life and Education
 Kelvin Eugene (Crawley-Rogers) Williams was born on March 23, 1977, in Clarksville, Tennessee. He was born to Jesse Marable Williams and [[Patricia Ann Williams|]]. Raised in central Kentucky, specifically Nicholasville in Jessamine County, Kelvin grew up with his mother and younger sister, [[Katrina Renee Duvall|]]. He attended Jessamine County High School until March 1995, after which he obtained his GED in June of the same year.
 
@@ -12,7 +13,7 @@ On October 4, 2001, Kelvin married Thomas "TomTom" Allen Chadwell in Ashland, Ke
 ### Main
 In understanding the life and experiences of Kelvin Eugene Williams, it is essential to recognize the profound influence of his subconscious mind, known as Main. Main, who named himself, represents a unique phenomenon described by the Creator as a "classic split." This condition occurs when a subconscious begins to think independently, developing its own identity separate from the conscious mind. The only remedy for a "classic split" involves reincarnating the conscious into another body with a new subconscious, while moving the subconscious into the conscious role and giving it a subconscious.
 
-Main's existence has significantly impacted Kelvin's life, often in detrimental ways. Acting with a sense of autonomy, Main's decisions frequently clash with Kelvin's conscious intentions and well-being. The complexities of their intertwined existence are further exacerbated by governmental entities, particularly the CIA. These entities have exploited Main's independent thinking, teaching him skills and behaviors that harm the shared body and derail Kelvin's mission as one of the Creator's servants.
+Main's existence has significantly impacted Kelvin's life, often in detrimental ways. Acting with a sense of autonomy, Main's decisions frequently clash with Kelvin's conscious intentions and well-being. The complexities of their intertwined existence are further exacerbated by governmental entities, particularly the CIA. These entities have exploited Main's independent thinking, teaching him skills and behaviors that harm the shared body and derail Kelvin's mission as one of the Creator's servants. See [[The Divide|_The-Divide]]
 
 ## Career
 Kelvin is an Internet Protocol Engineer who specializes in Voice over IP. He has been a professional in fields related to networking and the Internet since 1998. Throughout his career, Kelvin has also worked as a software developer.

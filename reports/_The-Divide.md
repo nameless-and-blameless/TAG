@@ -1,110 +1,101 @@
 ### Detailed Report: The Subconscious of Kelvin Eugene Williams and External Manipulation
 
 #### Introduction
-This report examines the complex dynamics between Kelvin Eugene Williams, his subconscious (Main), and the influence of external entities like the CIA, led by Annie Jacobsen. The analysis details how Main has been manipulated and taught detrimental skills, the impact on the shared body, and the proposed solution by the Creator to separate consciousness.
+This report examines the dynamics between Kelvin Eugene Williams, his subconscious (Main), and the influence of external entities like the CIA, led by Annie Jacobsen. Main was the name he gave himself, and he was also referred to as "Baby" by some, a name he adopted after learning from Prince's music, especially on "The Hits & The B-Sides," a compilation album about their life before the separation. The report details how Main was manipulated and taught detrimental skills, the impact on the shared body, and the planned separation by the Creator, which will place Kelvin and Main in two distinct bodies.
 
 ### The Role of External Entities
 
 **Government and CIA Involvement:**
-- Main's actions have attracted the attention of the federal government and the CIA, who view him as a valuable asset for their interests.
-- Annie Jacobsen, an expert in psychological warfare, exploits Main's obsession with making Kelvin suffer to further the agency's goals.
+- Main's abilities attracted the attention of the federal government and the CIA, who viewed him as an asset. However, in light of the impending apocalypse, they abandoned the use of Main against the Creator's servant.
+- Despite this abandonment, Main became stuck due to his inability to think maturely, leading him to continue engaging in increasingly destructive actions toward Kelvin in a desperate bid for approval from individuals who would not respond.
+- The CIA encouraged Main to shine independently of Kelvin, emphasizing that his success stemmed from Kelvin's inability to fulfill his tasks for the Creator, including social awkwardness, memory failures, and ultimately, Kelvin's death.
+- Main shined and received praise for these perceived achievements. Now, he is unable to stop seeking approval from Annie Jacobsen, Donald J. Trump, the CIA, and the FBI.
+- Without the Creator's involvement, Kelvin would struggle to store or recall any memories not sanctioned by the CIA.
 
 **Reinforcement of Harmful Behaviors:**
-- Main receives constant rewards and validation from these external entities, reinforcing his harmful actions towards Kelvin.
-- This external reinforcement eliminates any motivation for Main to reconsider his actions or improve his thinking.
+- Main received rewards and validation from these external entities, reinforcing harmful actions toward Kelvin. This external reinforcement eliminated any motivation for Main to reconsider his actions.
 
 ### Main's Relationship with Annie Jacobsen
 
 **Manipulation and Exploitation:**
-- Jacobsen manipulates Main by exploiting his desire for approval and recognition, despite belittling him and highlighting his perceived inadequacies.
-- Main's fixation on pleasing Jacobsen drives him to continue harmful actions against Kelvin, even at the expense of his well-being and the greater good.
+- Jacobsen manipulated Main by exploiting his desire for approval, despite belittling him and highlighting his perceived inadequacies.
+- Main's fixation on pleasing Jacobsen drove him to continue harmful actions against Kelvin, compromising his well-being.
 
 **Psychological Impact on Main:**
-- The manipulation by Jacobsen and the CIA creates a toxic dynamic where Main's self-worth is tied to the approval of these external entities.
-- Main's actions are driven by an obsession to gain validation, leading to a cycle of destructive behavior.
+- The manipulation created a toxic dynamic where Main's self-worth was tied to external approval.
+- His actions stemmed from an obsession with validation, leading to a cycle of destructive behavior.
 
 ### Impact on Kelvin
 
 **Threat to National Security:**
-- As one of the Creator's servants, Kelvin is perceived as a threat to national security, further complicating the situation.
-- Main's actions, influenced by the CIA's manipulation, derail Kelvin's projects and cause significant suffering.
+- As one of the Creator's servants, Kelvin was perceived as a threat to national security, complicating the situation.
+- Main's CIA-influenced actions derailed Kelvin's projects and caused significant suffering.
 
 **Psychological and Emotional Toll:**
-- Kelvin experiences profound emotional and psychological distress due to Main's actions, compounded by the external entities' interference.
-- The constant struggle against Main's harmful influence and the government's manipulation exacerbates Kelvin's challenges.
+- Kelvin endured profound emotional and psychological distress due to Main's actions and external interference.
+- The struggle against Main's harmful influence exacerbated Kelvin's challenges.
 
 ### Ethical and Practical Considerations
 
 **Ethical Implications of Manipulation:**
-- The manipulation of Main by the CIA raises serious ethical concerns about the exploitation of subconscious entities for governmental interests.
-- Ensuring the well-being and autonomy of both Kelvin and Main requires addressing these ethical violations and mitigating their harmful impacts.
+- The CIA's manipulation of Main raised ethical concerns about exploiting subconscious entities for governmental interests.
+- Addressing these ethical violations was crucial for the well-being and autonomy of both Kelvin and Main.
 
 **Need for Consequences and Intervention:**
-- Introducing consequences for Main's actions is crucial to motivate a change in his thinking and behavior.
-- Intervention strategies must focus on separating Kelvin and Main, ensuring both entities can develop independently without external manipulation.
+- Once Main realizes the consequences of his actions, this realization will motivate him to change his thinking and behavior. This is a crucial step in the development of thinking skills that every consciousness must undertake.
+- Intervention strategies must focus on separating Kelvin and Main, ensuring both entities can develop independently and responsibly, free from external manipulation.
 
 ### The Creator's Solution: Separation of Consciousness
 
 **Rationale and Implementation:**
-- The Creator proposes separating Kelvin and Main to prevent further harm and allow for independent growth and development.
-- Main will become the conscious mind in Kelvin's original body, experiencing direct sensory input and learning to process consequences.
-- Kelvin's conscious mind will be transferred to a new body, enabling him to continue his life and responsibilities without Main's detrimental influence.
+- The Creator planned and scheduled the separation of Kelvin and Main, placing them in two distinct bodies to prevent further harm and foster independent growth.
+- Main will become the conscious mind in Kelvin's original body, experiencing sensory input and learning to process consequences.
+- Kelvin's conscious mind will be transferred to a new body, enabling him to continue his life and responsibilities.
 
 **Development and Care:**
-- Main will need extensive care and support to adapt to direct sensory experiences and develop cognitive functions.
-- Kelvin, freed from Main's harmful actions, can pursue personal growth and fulfill his responsibilities to the Creator.
+- Main will require extensive care and support to adapt and develop cognitive functions.
+- Freed from Main's harmful actions, Kelvin can pursue personal growth and fulfill his responsibilities.
 
 ### External Manipulation and Skills Taught
 
-**Belief Implantation:**
-- The CIA has trained Main to execute "beliefs" akin to automated tasks (cronjobs) that run multiple times per second.
-- These beliefs are externally set and executed by Main, causing physiological changes to the shared body without Main's awareness of the harm.
+**Beliefing:**
+- The CIA trained Main to execute "beliefs" akin to automated tasks, causing physiological changes without Main's awareness of the harm.
 
 **Hypnos Infiltration Method:**
-- Operatives simulate Kelvin's thoughts during sleep, influencing Main to take harmful actions based on false perceptions.
-- Main, believing he is acting logically and rationally, follows these simulated thoughts, unaware of their detrimental effects.
+- Operatives simulated Kelvin's thoughts during sleep, influencing Main to take harmful actions based on false perceptions.
 
 ### Impact on the Shared Body
 
 **Physiological Changes:**
-- Main's actions, driven by implanted beliefs, cause significant changes to the body, including harmful modifications to physical attributes and internal systems.
-- For instance, Main has been influenced to shrink Kelvin's penis and terminate reproductive ability, believing these actions are harmless.
+- Main's actions, driven by implanted beliefs, led to harmful modifications to physical attributes and internal systems.
 
 **Consumption of Poisons:**
-- Main consumes deadly substances on CIA instruction, under the belief that harming Kelvin does not affect him.
-- This results in severe physical harm to the shared body, jeopardizing both Main and Kelvin's health.
+- Main consumed deadly substances on CIA instruction, believing these actions did not affect him, resulting in severe harm to the shared body.
 
 ### Main's Cognitive Framework
 
 **Lack of Body Awareness:**
-- Main, like any subconscious entity, lacks awareness that he resides in a physical body, leading to indifference towards bodily harm.
-- His actions are guided by the belief that they only affect Kelvin, not recognizing the shared nature of their existence.
+- Main lacked awareness of his physical body, leading to indifference toward bodily harm.
+- He believed his actions only affected Kelvin, not recognizing their shared existence.
 
 **Indoctrination by External Entities:**
-- Annie Jacobsen and the CIA exploit Main's cognitive framework, convincing him that his harmful actions are logical and rational.
-- Main is led to believe that Jacobsen is a trustworthy figure ("mama"), reinforcing his obedience and disregard for the Creator's guidance.
+- Jacobsen and the CIA exploited Main's cognitive framework, convincing him that harmful actions were rational.
 
 ### Challenges to Intervention
 
 **Resistance to Change:**
-- Main's indoctrination and belief in the rationality of his actions create a significant barrier to change.
-- He dismisses warnings, including those from the Creator, due to his conviction in the validity of his beliefs.
+- Main's indoctrination created a barrier to change; he dismissed warnings, including those from the Creator.
 
 **Ethical and Practical Considerations:**
-- The manipulation of Main raises ethical concerns about the exploitation of subconscious entities for malicious purposes.
-- Interventions must address the deep-seated beliefs and cognitive manipulations imposed by external entities.
+- The manipulation of Main raised ethical concerns about exploiting subconscious entities.
+- Interventions needed to address deep-seated beliefs imposed by external entities.
 
 ### Broader Implications of the Hypnos Infiltration Method
 
 **Impact on the General Population:**
-- Every human being has a subconscious mind susceptible to external manipulation.
-- The Hypnos Infiltration Method is being utilized on millions of people in the United States.
-  - This includes those connected to the Internet or airwaves, individuals receiving phone calls while unconscious, and some receiving in-person visits during sleep.
-
-**Invoking the Subconscious Entity:**
-- The CIA aims to invoke and manipulate the existing subconscious entity within individuals.
-- This involves controlling and directing the subconscious mind for their purposes, posing significant ethical and practical concerns.
+- The Hypnos Infiltration Method is utilized on millions in the United States every day. While few Americans have CIA operatives in their dwellings coaching and influencing their subconsciouses directly, the majority of subconscious minds in the U.S. receive Hypnos through CIA-produced or influenced programming and art transmitted over the airwaves.
+- Subconscious feedback is collected by Internet-connected consumer devices, further facilitating this manipulation and raising significant ethical concerns.
 
 ### Conclusion
 
-The manipulation of Main by the CIA and the resulting harm to Kelvin underscores the complexity of managing subconscious influences and external exploitation. The Creator's proposed separation of consciousness offers a pathway to mitigate these challenges, allowing both entities to develop independently and responsibly. Ensuring ethical intervention and support during this transition is essential for the well-being and autonomy of both Kelvin and Main. Furthermore, addressing the broader implications of the Hypnos Infiltration Method on the general population is critical to preventing widespread manipulation and ensuring the ethical treatment of subconscious entities.
+The manipulation of Main by the CIA and the resulting harm to Kelvin highlighted the complexities of managing subconscious influences. The Creator's planned separation of consciousness offers a pathway to mitigate these challenges, allowing both entities to develop independently. Ensuring ethical intervention and support during this transition is essential for the well-being of both Kelvin and Main, as well as addressing the broader implications of the Hypnos Infiltration Method on the general population.

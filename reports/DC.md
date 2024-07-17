@@ -37,7 +37,7 @@ The Divide & Conquer strategy involves:
 
 ### The Creator's Plan
 
-The Creator knows that a greater force is necessary and He must start now because it is going to be too costly in terms of human lives lost. With anyone discussing or discovering any of the previous acts committed deemed a threat that must be eliminated, the likelihood of another country or group of allies intervening with any level of force is too low, and the loss of life costs are already too high.
+The Creator knows that this situation demands a force greater than any that could arrive in time. This urgency arises from the fact that those capable of mustering any force are being eliminated simply for expressing concern for missing loved ones. Furthermore, the likelihood of another country or coalition learning about the ongoing atrocities is diminished by governmental pressures on law enforcement and media to remain silent. Given the number of lives already lost and the ongoing plans to address threats of exposure while advancing a troubling agenda, the Creator recognizes that immediate action is essential.
 
 ## Conclusion
 

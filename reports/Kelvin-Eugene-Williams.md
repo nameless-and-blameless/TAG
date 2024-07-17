@@ -14,6 +14,7 @@ On October 4, 2001, Kelvin married Thomas "TomTom" Allen Chadwell in Ashland, Ke
 > [!NOTE]
 > Currently adding. There's an active verification of me in progress, I'm at Phoenix House!
 
+
 1. **Clarksville, Tennessee** (Birth) - Birthplace.
 
 2. **Nicholasville, Kentucky** (Childhood) - 203 Garden Park Drive. Raised by your mother and sister.
@@ -22,17 +23,21 @@ On October 4, 2001, Kelvin married Thomas "TomTom" Allen Chadwell in Ashland, Ke
 
 4. **230 Downer Drive, Clarksville, Tennessee** - August 1997 to October 1997. Briefly lived with your mother, sister, and her husband.
 
-5. **590 Tahoma Drive, Overton Hills subdivision, Sandy Springs, Georgia** - September 2009 to September 2018.
+5. **2502B Hidden Cove Court, Gainesville, Georgia** - 1999 to 2000.
 
-6. **2363 Crimson Creek Lane, Snellville, Georgia** - March 2022 to October 2022. Lived with Betty and Ishmael Buckner, suspected CIA operatives.
+6. **FCI Ashland, Ashland, Kentucky** - 2000 to 2001. Incarcerated.
 
-7. **459 Cole Drive SW, Lilburn, Georgia** - Lived with John; met Ishmael at a party here.
+7. **590 Tahoma Drive, Overton Hills subdivision, Sandy Springs, Georgia** - September 2009 to September 2018.
 
-8. **Motel 6, Decatur, Georgia** - November 2022 to mid-January 2023. Stayed as part of a homeless program.
+8. **2363 Crimson Creek Lane, Snellville, Georgia** - March 2022 to October 2022. Lived with Betty and Ishmael Buckner, suspected CIA operatives.
 
-9. **Legacy at Riverdale, Riverdale, Georgia** - January 2023 to December 2023. CIA-run facility; experienced ongoing life-threatening situations.
+9. **459 Cole Drive SW, Lilburn, Georgia** - Lived with John; met Ishmael at a party here.
 
-10. **Phoenix House** - December 2023 to present. Current residence.
+10. **Motel 6, Decatur, Georgia** - November 2022 to mid-January 2023. Stayed as part of a homeless program.
+
+11. **Legacy at Riverdale, Riverdale, Georgia** - January 2023 to December 2023. CIA-run facility; experienced ongoing life-threatening situations.
+
+12. **Phoenix House** - December 2023 to present. Current residence.
 
 ### Main
 In understanding the life and experiences of Kelvin Eugene Williams, it is essential to recognize the profound influence of his subconscious mind, known as Main. Main, who named himself, represents a unique phenomenon described by the Creator as a "classic split." This condition occurs when a subconscious begins to think independently, developing its own identity separate from the conscious mind. The only remedy for a "classic split" involves reincarnating the conscious into another body with a new subconscious, while moving the subconscious into the conscious role and giving it a subconscious.

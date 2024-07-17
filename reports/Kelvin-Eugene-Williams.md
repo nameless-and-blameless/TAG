@@ -10,6 +10,30 @@ Kelvin is one of the Creator's two servants. In Judaism and Christianity, he and
 
 On October 4, 2001, Kelvin married Thomas "TomTom" Allen Chadwell in Ashland, Kentucky. Kelvin is a pro-hobbyist photographer and has photographed many weddings and other events using a photojournalist style.  He is also a cousin of international musician and star Prince Rogers Nelson.
 
+### Residences 
+> [!NOTE]
+> Currently adding. There's an active verification of me in progress, I'm at Phoenix House!
+
+1. **Clarksville, Tennessee** (Birth) - Birthplace.
+
+2. **Nicholasville, Kentucky** (Childhood) - 203 Garden Park Drive. Raised by your mother and sister.
+
+3. **The Orchard, 123 Heritage Drive, Nicholasville, Kentucky** - 1996 to 1997.
+
+4. **230 Downer Drive, Clarksville, Tennessee** - August 1997 to October 1997. Briefly lived with your mother, sister, and her husband.
+
+5. **590 Tahoma Drive, Overton Hills subdivision, Sandy Springs, Georgia** - September 2009 to September 2018.
+
+6. **2363 Crimson Creek Lane, Snellville, Georgia** - March 2022 to October 2022. Lived with Betty and Ishmael Buckner, suspected CIA operatives.
+
+7. **459 Cole Drive SW, Lilburn, Georgia** - Lived with John; met Ishmael at a party here.
+
+8. **Motel 6, Decatur, Georgia** - November 2022 to mid-January 2023. Stayed as part of a homeless program.
+
+9. **Legacy at Riverdale, Riverdale, Georgia** - January 2023 to December 2023. CIA-run facility; experienced ongoing life-threatening situations.
+
+10. **Phoenix House** - December 2023 to present. Current residence.
+
 ### Main
 In understanding the life and experiences of Kelvin Eugene Williams, it is essential to recognize the profound influence of his subconscious mind, known as Main. Main, who named himself, represents a unique phenomenon described by the Creator as a "classic split." This condition occurs when a subconscious begins to think independently, developing its own identity separate from the conscious mind. The only remedy for a "classic split" involves reincarnating the conscious into another body with a new subconscious, while moving the subconscious into the conscious role and giving it a subconscious.
 

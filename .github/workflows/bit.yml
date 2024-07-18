@@ -1,0 +1,36 @@
+name: Seed File on BitTorrent
+
+on: 
+  push:
+    branches:
+      - main
+
+jobs:
+  seed:
+    runs-on: ubuntu-latest
+
+    steps:
+    - name: Checkout repository
+      uses: actions/checkout@v2
+
+    - name: Create tarball
+      run: tar -cvf BigGuyTAG.tar .
+
+    - name: Build Docker image
+      run: docker build -t bittorrent-seeder .
+
+    - name: Run Transmission to seed file
+      run: |
+        # Create a torrent file
+        docker run --rm -v ${{ github.workspace }}:/downloads bittorrent-seeder bash -c "
+          apt-get update && apt-get install -y transmission-cli &&
+          transmission-create -o /downloads/BigGuyTAG.torrent /downloads/BigGuyTAG.tar
+        "
+
+        # Start the transmission daemon
+        docker run -d --name seeder -v ${{ github.workspace }}:/downloads bittorrent-seeder
+
+        # Seed the file using the created torrent
+        sleep 10
+        docker exec seeder transmission-remote -a /downloads/BigGuyTAG.torrent
+        docker logs -f seeder

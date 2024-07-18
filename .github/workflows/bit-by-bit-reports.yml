@@ -1,0 +1,36 @@
+name: Seed TAG Reports on BitTorrent
+
+on: 
+  push:
+    branches:
+      - main
+
+jobs:
+  seed:
+    runs-on: ubuntu-latest
+
+    steps:
+    - name: Checkout repository
+      uses: actions/checkout@v2
+
+    - name: Create tarball from reports directory
+      run: tar -cvf TAG-Reports.tar -C reports .
+
+    - name: Build Docker image
+      run: docker build -t bittorrent-seeder .
+
+    - name: Run Transmission to seed file
+      run: |
+        # Create a torrent file
+        docker run --rm -v ${{ github.workspace }}:/downloads bittorrent-seeder bash -c "
+          apt-get update && apt-get install -y transmission-cli &&
+          transmission-create -o /downloads/TAG-Reports.torrent /downloads/TAG-Reports.tar
+        "
+
+        # Start the transmission daemon
+        docker run -d --name seeder -v ${{ github.workspace }}:/downloads bittorrent-seeder
+
+        # Seed the file using the created torrent
+        sleep 10
+        docker exec seeder transmission-remote -a /downloads/TAG-Reports.torrent
+        docker logs -f seeder

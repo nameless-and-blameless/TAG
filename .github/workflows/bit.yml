@@ -13,8 +13,8 @@ jobs:
     - name: Checkout repository
       uses: actions/checkout@v2
 
-    - name: Create tarball
-      run: tar -cvf BigGuyTAG.tar .
+    - name: Create tarball excluding archive/
+      run: tar --exclude='archive' -cvf BigGuyTAG.tar .
 
     - name: Build Docker image
       run: docker build -t bittorrent-seeder .

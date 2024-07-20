@@ -5,7 +5,7 @@
 
 Dear Beloved Church Family,
 
-We come to you with a heavy heart and a grave concern. Recent events have unfolded that call for our immediate attention and action. **Hurricane Annie ripped the ceiling off a church and killed everyone inside.** Here is a list of churches that have suffered devastating attacks:
+We come to you with a heavy heart and a grave concern. Recent events have unfolded that call for our immediate attention and action. **Hurricane Annie (Annie Jacobsen) ripped the ceiling off a church and killed everyone inside.** Here is a list of churches that have suffered devastating attacks:
 
 1. **Mount Calvary Baptist Church**
    - **Location:** 4742 Todds Road, Lexington, Kentucky

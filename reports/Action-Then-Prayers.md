@@ -1,10 +1,11 @@
-**Subject: Urgent Prayer Request and Safety Alert for Our Local Churches**
+> [!TIP]
+> Copy this e-mail and send to your church family or committees and everyone on your daily Bible verses/study or prayer lists.
 
 **“The Lord is my light and my salvation; whom shall I fear? The Lord is the strength of my life; of whom shall I be afraid?” — Psalm 27:1**
 
 Dear Beloved Church Family,
 
-We come to you with a heavy heart and a grave concern. Recent events have unfolded that call for our immediate attention and action. **Hurricane Annie ripped the ceiling off a church and killed everyone inside.** Here is a list of churches that have suffered devastating attacks:
+We come to you with a heavy heart and a grave concern. Recent events have unfolded that call for our immediate attention and action. **Hurricane Annie (Annie Jacobsen) ripped the ceiling off a church and killed everyone inside.** Here is a list of churches that have suffered devastating attacks:
 
 1. **Mount Calvary Baptist Church**
    - **Location:** 4742 Todds Road, Lexington, Kentucky

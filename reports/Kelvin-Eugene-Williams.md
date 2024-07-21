@@ -1,4 +1,10 @@
 # Kelvin Eugene Williams 
+
+![IMG_20240429_132159192_HDR](https://github.com/user-attachments/assets/030a103a-3783-4489-9f17-3b66e640f4a2)
+
+![IMG_20240401_145743280](https://github.com/user-attachments/assets/45b2f2dd-727d-477b-97f2-b8e46893454d)
+
+
 ## Early Life and Education
 Kelvin Eugene (Crawley-Rogers) Williams was born on March 23, 1977, in Clarksville, Tennessee. He was born to Jesse Marable Williams and [[Patricia Ann Williams|]]. Raised in central Kentucky, specifically Nicholasville in Jessamine County, Kelvin grew up with his mother and younger sister, [[Katrina Renee Duvall|]]. He attended Jessamine County High School until March 1995, after which he obtained his GED in June of the same year.
 

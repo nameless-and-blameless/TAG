@@ -174,7 +174,7 @@ Another "built in LA" company, Saucey, was started by Andrew Zeck and a few othe
 
 ## **Current Residence**
 
-Kelvin Williams currently resides at Phoenix House, located at 1296 Murphy Avenue, Apartment B-33, in Atlanta, Georgia.
+Kelvin Williams currently resides at Phoenix House, located at 1296 Murphy Avenue, Apartment B-33, in Atlanta, Georgia. (33.719694,-84.422584)
 
 Williams' apartment is provided to him rent-free as part of an agreement between Main and the CIA, reinforced by a Cease & Desist letter from the attorney retained by Mount Calvary Missionary Baptist Church, as evidenced by the signature on the letter.
 

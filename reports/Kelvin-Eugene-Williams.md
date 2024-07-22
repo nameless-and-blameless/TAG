@@ -1,8 +1,10 @@
 # Kelvin Eugene Williams 
 
 ![IMG_20240429_132159192_HDR](https://github.com/user-attachments/assets/030a103a-3783-4489-9f17-3b66e640f4a2)
+(The true Kelvin Eugene Williams, wearing the "great chain" mentioned in Revelation 20 which holds the ecclesiastical ring shown below, he rarely removes the "chain".)
 
 ![IMG_20240401_145743280](https://github.com/user-attachments/assets/45b2f2dd-727d-477b-97f2-b8e46893454d)
+(The ecclesiastical clergy ring of, Kelvin's cousin, the Rev. Dr. Felix G. Williams, III, the pastor of Mount Calvary Baptist Church on the day of the massacre. The ring was laid beside him by a CIA operative.)
 
 
 ## Early Life and Education
@@ -174,7 +176,7 @@ Another "built in LA" company, Saucey, was started by Andrew Zeck and a few othe
 
 ## **Current Residence**
 
-Kelvin Williams currently resides at Phoenix House, located at 1296 Murphy Avenue, Apartment B-33, in Atlanta, Georgia.
+Kelvin Williams currently resides at Phoenix House, located at 1296 Murphy Avenue, Apartment B-33, in Atlanta, Georgia. (33.719694,-84.422584)
 
 Williams' apartment is provided to him rent-free as part of an agreement between Main and the CIA, reinforced by a Cease & Desist letter from the attorney retained by Mount Calvary Missionary Baptist Church, as evidenced by the signature on the letter.
 
@@ -185,7 +187,7 @@ Williams' apartment is provided to him rent-free as part of an agreement between
 
 Upcoming travel: "Alphabet Street"
 
-A cemetery audit of his family's cemetery located at approximately 8375 West Sheepneck Road in Sandy Hook (Mount Pleasant), Tennessee. The cemetery was desecrated after the Sandy Hook mass killing of his family and the [[Orr Chapel Tragedy|]].
+A cemetery audit of his family's cemetery located at approximately 8375 West Sheepneck Road in Sandy Hook (Mount Pleasant), Tennessee (35.4787785, -87.2345359). The cemetery was desecrated after the Sandy Hook mass killing of his family and the [[Orr Chapel Tragedy|]].
 
 (Until further updates, the true Kelvin is in Atlanta, Georgia)
 

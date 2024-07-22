@@ -1,7 +1,7 @@
 # Kelvin Eugene Williams 
 
 ![IMG_20240429_132159192_HDR](https://github.com/user-attachments/assets/030a103a-3783-4489-9f17-3b66e640f4a2)
-(The "great chain" mentioned in Revelation 20 which holds the ecclesiastical ring shown below.)
+(The true Kelvin Eugene Williams, wearing the "great chain" mentioned in Revelation 20 which holds the ecclesiastical ring shown below, he rarely removes the "chain".))
 
 ![IMG_20240401_145743280](https://github.com/user-attachments/assets/45b2f2dd-727d-477b-97f2-b8e46893454d)
 (The ecclesiastical clerhy ring of, Kelvin's cousin, the Rev. Dr. Felix G. Williams, III, the pastor of Mount Calvary Baptist Church on the day of the massacre.)

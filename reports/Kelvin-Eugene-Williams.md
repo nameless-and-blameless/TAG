@@ -187,7 +187,7 @@ Williams' apartment is provided to him rent-free as part of an agreement between
 
 Upcoming travel: "Alphabet Street"
 
-A cemetery audit of his family's cemetery located at approximately 8375 West Sheepneck Road in Sandy Hook (Mount Pleasant), Tennessee. The cemetery was desecrated after the Sandy Hook mass killing of his family and the [[Orr Chapel Tragedy|]].
+A cemetery audit of his family's cemetery located at approximately 8375 West Sheepneck Road in Sandy Hook (Mount Pleasant), Tennessee (35.4787785, -87.2345359). The cemetery was desecrated after the Sandy Hook mass killing of his family and the [[Orr Chapel Tragedy|]].
 
 (Until further updates, the true Kelvin is in Atlanta, Georgia)
 

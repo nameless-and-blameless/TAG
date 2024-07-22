@@ -10,6 +10,12 @@
 ## Early Life and Education
 Kelvin Eugene (Crawley-Rogers) Williams was born on March 23, 1977, in Clarksville, Tennessee. He was born to Jesse Marable Williams and [[Patricia Ann Williams|]]. Raised in central Kentucky, specifically Nicholasville in Jessamine County, Kelvin grew up with his mother and younger sister, [[Katrina Renee Duvall|]]. He attended Jessamine County High School until March 1995, after which he obtained his GED in June of the same year.
 
+Before entering high school, Kelvin was diagnosed with gynecomastia, and his mother elected for him to undergo a double mastectomy, scars from which are still visible today.
+
+At the age of 16, after receiving his driver's license, Kelvin went for a joyride in his mother's "hand me down" vehicle with his best friend, Rusty. He overcorrected, struck a telephone pole, and his arm was pinned under the driver's door, resulting in a compound fracture of his left humerus. The accident left scars still highly visible today.
+
+In 1997, while riding back to Lexington from a weekend of partying in Dayton, OH, Kelvin's friend fell asleep at the wheel. Kelvin, already asleep in the reclined passenger seat, woke up to find himself rolling uncontrollably. He recalls saying, "God, please don't let another car hit me!" The car, traveling at interstate speeds, hit a guardrail, which tore the car in two. Kelvin's inertia made him slide out of the seat, and with the back of the car elsewhere, he hit the road and slowly came to a stop, suffering a laceration on the top of his head and road rash.
+
 ## Ministry
 Kelvin is an ordained minister. In April 2023, after the massacre at Mount Calvary Baptist Church where he was an inactive member, Kelvin became the head of the church at the direction of the Creator.
 

@@ -1,5 +1,6 @@
+![Screenshot_20240723-121938](https://github.com/user-attachments/assets/fe56339f-c3dc-4ccf-8837-621c7cc7ea31)
 > [!NOTE]
-> THIS IS NOT FICTIONAL. It is the only way I can use these names with ChatGPT or OpenAI without it stopping. I'm saving partially edited because they're trying to effect an arrest. (See screenshot)
+> THIS IS NOT FICTIONAL. It is the only way I can use these names with ChatGPT or OpenAI without it stopping. I'm saving partially edited because they're trying to effect an arrest--they just rushed in cloaked. (See screenshot)
 
 # Unveiling the Hidden Genocide: The Conductor and Composer of Darkness
 

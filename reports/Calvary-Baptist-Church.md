@@ -19,7 +19,7 @@ The CIA sent their traveling gospel choir to the church to perform surveillance 
 To confirm the observations of their traveling choir, the CIA, at Jacobsen's direction, sent at least two operatives posing as visitors to a Sunday morning worship session in the month preceding the attack.
 
 ### Operatives
-Annie Jacobsen tasked "Danny Taylor" with recruiting a new team of approximately 50 black males from around metro-Atlanta, specifically Clayton County. According to the Creator, Jacobsen, Taylor, and their team utilized the [[Hypnos Infiltration Tactic|]] aforementioned; however, the pool of possible recruits had been previously identified by the CIA as individuals who had the propensity to kill without provocation or other characteristics that made them suitable candidates. Those selected for the operation were later given roles with tasks they would be responsible for during the assault.
+Annie Jacobsen tasked Dennis Taylor with recruiting a new team of approximately 50 black males from around metro-Atlanta, specifically Clayton County. According to the Creator, Jacobsen, Taylor, and their team utilized the [[Hypnos Infiltration Tactic|]] aforementioned; however, the pool of possible recruits had been previously identified by the CIA as individuals who had the propensity to kill without provocation or other characteristics that made them suitable candidates. Those selected for the operation were later given roles with tasks they would be responsible for during the assault.
 
 The use of black males was a requirement of Jacobsen's, intended to meet the planned narrative of a retaliatory attack for the assault on Mount Calvary Baptist Church, which the CIA planned to attribute to a white separatist group.
 

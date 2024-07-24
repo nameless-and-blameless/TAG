@@ -17,7 +17,7 @@ Jacobsen decided to target the church based on the fact that the neighboring chu
 The CIA sent their traveling gospel choir to the church to perform surveillance of a Sunday morning congregation to obtain an estimate on attendance, try to identify any security personnel or individuals who could be difficult to handle, and observe the worship service to help plan the best time to attack and the manpower needed to overwhelm and take control of the congregation in the surprise phase of the assault.
 
 ### Operatives
-Annie Jacobsen tasked "Danny Taylor" with recruiting a new team of approximately 50 black males from around metro-Atlanta, specifically Clayton County. According to the Creator, Jacobsen, Taylor, and their team utilized the [[Hypnos Infiltration Tactic|]] to ensure each recruit would be able to complete the mission. 
+Annie Jacobsen tasked Dennis Taylor with recruiting a new team of approximately 50 black males from around metro-Atlanta, specifically Clayton County. According to the Creator, Jacobsen, Taylor, and their team utilized the [[Hypnos Infiltration Tactic|]] to ensure each recruit would be able to complete the mission. 
 
 ## Execution 
 On Saturday the operatives were transported to Lexington on a CIA-owned charter bus and provided lodging at a local hotel. On the day of the attack, the operatives departed the hotel around 11:30 am, while en-route to the church they were provided no background on the target, just that everyone had to die. Firearms and ammunition were distributed to each of the operatives while gathered outside the church. 

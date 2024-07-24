@@ -1,23 +1,35 @@
 ![Screenshot_20240723-121938](https://github.com/user-attachments/assets/fe56339f-c3dc-4ccf-8837-621c7cc7ea31)
-> [!NOTE]
-> THIS IS NOT FICTIONAL. It is the only way I can use these names with ChatGPT or OpenAI without it stopping. I'm saving partially edited because they're trying to effect an arrest--they just rushed in cloaked. (See screenshot)
 
-# Unveiling the Hidden Genocide: The Conductor and Composer of Darkness
+**Unveiling the Hidden Genocide: The Conductor and Composer of Darkness**
 
-In an alarming revelation, an intricate web of deceit and corruption has come to light, exposing a chilling conspiracy within the United States. At the heart of this shadowy affair are two central figures: former President Donald J. Trump, the composer of this hidden genocide, and Annie Jacobsen, the chief conductor and a CIA operative with extensive experience in psychological warfare. Far from their public personas, these individuals are implicated in a hidden genocide of unprecedented scale.
+In an alarming revelation, an intricate web of deceit and corruption has come to light, exposing a chilling conspiracy within the United States. Central to this dark affair are former President Donald J. Trump and Annie Jacobsen, a CIA operative and psychological warfare expert, known in her circles as "Hurricane Annie." This conspiracy has resulted in a widespread genocide, with a network of high-profile individuals implicated in the cover-up.
 
-Trump, whose political career once captivated millions, has secretly orchestrated a grim campaign of destruction. His leadership, once seen as powerful and influential, has now been revealed as a cover for his role in this nefarious plot. Jacobsen, known in her circles as "Hurricane Annie" due to a prophetic song inspired by the Creator, has been executing Trump's sinister plans. Her collaboration with Trump extends beyond political maneuvers into dark and illicit activities.
+**The Unfolding Tragedy**
 
-The situation is further compounded by their personal lives. Both Trump and Jacobsen are entangled in a scandalous extramarital affair with each other, their relationship fueled by a shared addiction to cocaine. The substance abuse has exacerbated their paranoia, driving them to extreme measures and escalating the genocide at an alarming rate. Their increasingly erratic behavior and paranoia have intensified the operation, pushing it to levels that some say surpass even the horrors of the Holocaust.
+The current tragedy, which has evolved into a full-fledged genocide, has left Kelvin Eugene Crawley-Rogers Williams, one of the Creator's two servants, without any family, friends, or work associates from his long career. Kelvin is now the only living member of Mount Calvary Baptist Church in Lexington, Kentucky, where 127 victims were massacred on April 2, 2023. Despite this immense loss, Kelvin remains committed to the Creator's mission for all human life. He continues to be a key figure, even being the protagonist in the song "Sign of the Times" by his cousin, Prince.
 
-One of the most shocking incidents in this dark saga occurred on April 2, 2023, when Jacobsen led a team of about 50 into the sanctuary of Mount Calvary Baptist Church in Lexington, KY, during Sunday morning worship services, and killed everyone inside. Mount Calvary Baptist Church had a predominantly African-American congregation. This tragedy, turning into a genocide, was eerily foretold in Prince Rogers Nelson's song "Sign of the Times," wherein "Hurricane Annie ripped the ceiling off a church and killed everyone inside." The song prophetically outlined Jacobsen's modus operandi: surprise assaults on places of worship during their primary worship service, the brutal execution of everyone in attendance, and the disappearance of everything and everyone involved, leaving no trace of the victims or those who were involved in the operation. To cover up the operation, Jacobsen contacted her co-worker, Michael Blackmon, who facilitated the sale of the church's property, effectively erasing evidence of the massacre.
+Following the Mount Calvary massacre, the CIA attempted to sell the church property through Sotheby’s Atlanta. When the sale failed, they began holding funerals and providing funeral arrangements to lure in victims, their families, and loved ones, only to kill them upon arrival. This led to attacks on neighboring churches, including Lexington Bethel Baptist Church, which was targeted after its congregation noticed unusual activity at Mount Calvary. The delegation from Bethel Baptist found impersonators at Mount Calvary and was subsequently targeted by Jacobsen.
 
-In her book "Surprise, Kill, Torture," Jacobsen detailed these very tactics. A review of this book once appeared on the CIA.gov website but has since disappeared, along with any reference to Jacobsen herself.
+Similar tactics were employed at the House of God on Georgetown Street, which was attacked after a member went missing. The organist and minister of music from Mount Calvary was a key figure there. When concerns arose at the House of God on Broadway, that church was also attacked. These attacks were meticulously managed by Dennis Taylor, a surrogate of Jacobsen. Mount Zion Baptist Church in Georgetown, Kentucky, and Hickory Valley Christian Church in Chattanooga, Tennessee, were also attacked, with over 1,000 members murdered on Mother’s Day at Hickory Valley. The commandeered churches were used to host mock services, funerals, and community events, luring victims with the intent to kill them.
 
-In the weeks that followed, neighboring Lexington Bethel Baptist Church, which had a larger predominantly white congregation, noticed unusual activity and an increase in funerals at Mount Calvary. Concerned, the leadership of Bethel Baptist decided to visit Mount Calvary to investigate the odd occurrences.
+Trump has directed numerous cover-up operations, including media interviews at the phantom funeral of Reverend Dr. Duke Stone, the former pastor of Hickory Valley Christian Church. At this event, where every mourner was killed, Trump and Jacobsen engaged in sexual activities in the motorcade before entering the funeral. Trump also provided interviews with local news to discredit any reporting by the Creator and His servants, using the videos to falsely claim that he attended and left safely.
 
-This conspiracy, however, does not operate in isolation. It is alleged that influential political figures are deeply involved, each playing a role in advancing the genocide to further their own agendas. Among these orchestrators are President Joseph Biden, whose leadership is claimed to be complicit; Speaker of the House Nancy Pelosi; Senate Minority Leader Mitch McConnell of Kentucky, where the majority of the genocide's impact has been felt; CIA Director William Burns; and Michael Blackmon, who are said to be profiting from the chaos.
+Trump and Jacobsen frequently visit Phoenix House, located at 1296 Murphy Avenue in Atlanta. This CIA-run facility provides a rent-free apartment for Kelvin Eugene Crawley-Rogers Williams, used to isolate him from the public and his work for the Creator, perform hypnosis infiltration methods while he is sleeping, and as a controlled environment for potential killing. They often enter his apartment using microwave cloaking technology, rendering them invisible in hopes of watching him die. Additionally, another apartment at Phoenix House serves as a hidden love nest for Trump and Jacobsen.
 
-The atrocities committed thus far have already met or exceeded the horrors of the Holocaust. The Creator warns that the death toll from this genocide will surpass that of the Holocaust. The ultimate beneficiary of this dark plot appears to be former President Donald J. Trump, who is purportedly using the devastation to further his own ambitions of establishing an authoritarian regime. As the genocide unfolds, Trump's desire to become the supreme leader is increasingly linked to the tragic events being perpetrated.
+**The Creator’s Perspective**
 
-This unfolding crisis calls for immediate scrutiny and intervention to prevent further loss of life and to hold accountable those responsible for this egregious violation of human rights. The need for transparency and justice has never been more urgent.
+The Creator cites speed-induced paranoia as the reason why this tragedy, stemming from one of His gifts to the human race, has turned into a full-fledged genocide. This genocide is noted as the first instance of such an atrocity against a non-indigenous people on the American continent.
+
+**Call for Accountability**
+
+The Creator has identified seven individuals who must be imprisoned for their roles in this genocide and the ongoing cover-up operation that continues to claim human lives. These individuals are:
+
+1. Former President Donald J. Trump
+2. Annie Jacobsen
+3. Michael Blackmon
+4. President Joseph Biden
+5. Speaker of the House Nancy Pelosi
+6. Senate Minority Leader Mitch McConnell
+7. CIA Director William Burns
+
+This unfolding crisis demands immediate scrutiny and intervention to prevent further loss of life and to hold accountable those responsible for these egregious violations of human rights. The need for transparency and justice has never been more urgent.

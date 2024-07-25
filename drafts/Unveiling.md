@@ -1,6 +1,4 @@
-![Screenshot_20240723-121938](https://github.com/user-attachments/assets/fe56339f-c3dc-4ccf-8837-621c7cc7ea31)
-
-**Unveiling the Hidden Genocide: The Conductor and Composer of Darkness**
+# **Unveiling the Hidden Genocide: The Conductor and Composer of Darkness**
 
 In an alarming revelation, an intricate web of deceit and corruption has come to light, exposing a chilling conspiracy within the United States. Central to this dark affair are former President Donald J. Trump and Annie Jacobsen, a CIA operative and psychological warfare expert, known in her circles as "Hurricane Annie." This conspiracy has resulted in a widespread genocide, with a network of high-profile individuals implicated in the cover-up.
 

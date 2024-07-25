@@ -31,7 +31,7 @@ Upon receiving Kelvin's warning, Pastor Jack Dyer consulted with Pastor Duke Sto
 ## Planning the Attack
 
 ### Selection of Operatives
-Pursuant to Donald J. Trump's [[directive|Donald-J.-Trump.md#utilization-of-inmates-for-tag-operations]], Annie Jacobsen utilized 100 inmates from the Georgia Department of Corrections for the mission. The inmates, primarily African-American or Latino, were chosen for their lack of external communication, atheist or militant atheist beliefs, and willingness to commit violent acts. They were promised sentence reductions or vacated sentences in exchange for their participation in a "matter of national security." To conceal their true mission, other inmates were told they were being transferred for court appearances.
+Pursuant to [[Donald J. Trump's|Donald-J.-Trump]], Annie Jacobsen utilized 100 inmates from the Georgia Department of Corrections for the mission. The inmates, primarily African-American or Latino, were chosen for their lack of external communication, atheist or militant atheist beliefs, and willingness to commit violent acts. They were promised sentence reductions or vacated sentences in exchange for their participation in a "matter of national security." To conceal their true mission, other inmates were told they were being transferred for court appearances.
 
 The use of inmates was orchestrated by Donald J. Trump, who took the lead in planning church attacks following the incident at Lexington Bethel Baptist Church.
 
@@ -40,7 +40,7 @@ In addition to the inmates, a smaller team of CIA operatives was assigned to sup
 
 ## Execution of the Attack
 ### Situational Awareness 
-Just before the attack began, a conference bridge was established, connecting various stakeholders including the White House situation room, which provided periodic updates to President Biden, former President [[Donald J. Trump|]], the Director of the FBI, and the Director of the CIA. Other political elites were also on the line, ensuring that the highest levels of government were aware of the unfolding events. Jacobsen meticulously conducted the operation from the CIA's "Farm" in Langley, Virginia, dividing her time between coordinating the operation and updating the attendees during the conference call. Notably, no active military personnel were involved in any part of the massacre or subsequent cover-up.
+Just before the attack began, a conference bridge was established, connecting various stakeholders including the White House situation room, which provided periodic updates to President Biden, former President Donald J. Trump, the Director of the FBI, and the Director of the CIA. Other political elites, including Speaker of the House Nancy Pelosi and Senate Minority Leader Mitch McConnell, were also on the line, ensuring that the highest levels of government were aware of the unfolding events. Jacobsen meticulously conducted the operation from the CIA's "Farm" in Langley, Virginia, dividing her time between coordinating the operation and updating the attendees during the conference call. Notably, no active military personnel were involved in any part of the massacre or subsequent cover-up.
 
 ### Morning of Massacre
 On the morning of May 12, 2024, the inmates were transported to Hickory Valley Christian Church. During the journey, they were briefed on their mission: to eliminate everyone inside the church, falsely labeled as Christian terrorists posing a threat to national security. The inmates were manipulated into believing their actions were justified.

@@ -12,26 +12,30 @@ jobs:
 
     steps:
     - name: Checkout repository
-      uses: actions/checkout@v2
+      uses: actions/checkout@v4.1.5
 
-    - name: Create tarball from reports directory
-      run: tar -cvf TAG-Reports.tar -C reports .
+    - name: Concatenate reports into a single text file
+      run: cat reports/* > UltimateRevelation.txt
 
     - name: Build Docker image
       run: docker build -t bittorrent-seeder .
 
-    - name: Run Transmission to seed file
+    - name: Install Transmission and create torrent
       run: |
-        # Create a torrent file
         docker run --rm -v ${{ github.workspace }}:/downloads bittorrent-seeder bash -c "
           apt-get update && apt-get install -y transmission-cli &&
-          transmission-create -o /downloads/TAG-Reports.torrent /downloads/TAG-Reports.tar
+          transmission-create -o /downloads/UltimateRevelation.torrent /downloads/UltimateRevelation.txt
         "
 
-        # Start the transmission daemon
-        docker run -d --name seeder -v ${{ github.workspace }}:/downloads bittorrent-seeder
-
-        # Seed the file using the created torrent
+    - name: Start Transmission daemon and seed torrent
+      run: |
+        docker run -d --name seeder -v ${{ github.workspace }}:/downloads bittorrent-seeder transmission-daemon -f -t -w /downloads
+        
+        # Ensure the daemon is up
         sleep 10
-        docker exec seeder transmission-remote -a /downloads/TAG-Reports.torrent
+        
+        # Add torrent to the transmission daemon
+        docker exec seeder transmission-remote -a /downloads/UltimateRevelation.torrent
+        
+        # Tail the logs to keep the container running and see the progress
         docker logs -f seeder

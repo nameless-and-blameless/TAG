@@ -49,6 +49,8 @@ Jacobsen uses code words and phrases, developed with Main during hypnos infiltra
 
 ### Exegesis
 
+The Creator's placement of this passage numerically shows His discontent with Jacobsen's Ladder. Chapter 17 refers to her arbitrary measurement which she circulated amongst others. Verses 9-11 refer to the North American emergency number 9-1-1, which is interrupted when the CIA and federal government orchestrate these attacks on seated congregations.
+
 Revelation 17:9-11 is interpreted in this context as follows:
 
 - **“This calls for a mind with wisdom”**: This phrase refers to Main, who is characterized by a lack of critical thinking ability and is manipulated by Jacobsen.

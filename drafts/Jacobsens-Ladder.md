@@ -20,6 +20,8 @@ By 2022, these ambitions intensified, using advances in technology and increased
 
 Jacobsen and other perpetrators use the modification of Kelvin’s body and the claim that the Creator does not restore it as justification for targeting congregations in churches. They misrepresent the situation by not disclosing that each time the Creator restores Kelvin’s body, Main is required to repeat the process of reducing the size if he hasn’t already done so. Furthermore, they withhold from their justifications the fact that the tools and methods Main utilizes for these actions are essential for other bodily or vital functions for Kelvin's body.
 
+Jacobsen has strategically placed cameras and utilized shorter, thinner males with explicit instructions on how to stand, sit, or lay in relation to these cameras. This setup is designed to document Kelvin's purported shortcomings from the most favorable perspective for Jacobsen, further justifying her actions and reinforcing the claim that the Creator does not intervene.
+
 ### 3.2 Recruiting
 
 Jacobsen exploits Main's programming to discredit Kelvin's divine connection, claiming that no true servant of the Creator could endure such manipulation. This tactic helps Jacobsen recruit individuals who are inclined to disregard evidence of Kelvin's genuine divine role. Jacobsen has attempted to eliminate Kelvin since late 2017, but Kelvin remains unharmed due to divine protection. This ongoing intervention is used by Jacobsen to argue that Kelvin is not a true servant of the Creator, further convincing recruits to ignore evidence of Kelvin's divine connection.

@@ -53,13 +53,13 @@ Revelation 17:9-11 is interpreted in this context as follows:
 
 - **“This calls for a mind with wisdom”**: This phrase refers to Main, who is characterized by a lack of critical thinking ability and is manipulated by Jacobsen.
 
-- **“The seven heads are seven mountains on which the woman is seated”**: Here, "seven mountains" symbolize the seven inches that Jacobsen demands, encourages, entices, and rewards Main for maintaining Kelvin’s penile size at or below. Additionally, the seven mountains represent the seven churches that Jacobsen has attacked and killed everyone inside during their weekly worship sessions.
+- **“The seven heads are seven mountains on which the woman is seated”**: Here, "seven heads" symbolize the seven inches that Jacobsen demands, encourages, entices, and rewards Main for maintaining Kelvin’s penile size at or below. Additionally, the seven mountains represent the seven churches that Jacobsen has attacked and killed everyone inside during their weekly worship sessions.
 
 - **“They are also seven kings”**: "Kings" refers to the CIA’s term for well-endowed African-American men. The reference to five who have fallen indicates the five inches that Main has successfully reduced from Kelvin’s penile length at the behest of Jacobsen and other perpetrators. 
 
 - **“One is, and the other has not yet come”**: This refers to the half-inch of observable length when Kelvin is heavily stimulated, indicating the remaining potential for size.
 
-- **“As for the beast that was and is not, it is an eighth but belongs to the seven, and it goes to destruction”**: This describes Main as the subconscious entity in Kelvin’s body. It is considered an eighth entity, associated with the seven, and is destined for destruction. This passage also alludes to the eight inches Jacobsen has promised Main upon their separation, symbolizing the planned division of Main and Kelvin into two distinct entities.
+- **“As for the beast that was and is not, it is an eighth but belongs to the seven, and it goes to destruction”**: This describes Main as the subconscious entity in Kelvin’s body. It is responsible for the seven, and is destined for destruction after their separation. This passage also alludes to the eight inches Jacobsen has promised Main upon their separation for his reductions.  The separation is the planned division of Main and Kelvin into two distinct bodies by the Creator.
 
 ## 5. Identification and Targeting Methods
 

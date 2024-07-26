@@ -4,6 +4,8 @@
 
 This report examines the uses of Jacobsen's Ladder, a litmus test employed by perpetrators of the genocide to determine if the Creator (known as God in the United States) will intervene in their actions against churches. Kelvin Eugene Williams, one of the Creator's two servants and a cherubim or angel to those who call Him God, is central to this investigation. The report explores how Jacobsen and her team manipulate Kelvin's subconscious, Main, to carry out these actions, including the deliberate reduction of Kelvin's penile size and attempts to silence him.
 
+Kelvin Eugene Williams, one of the Creator’s two servants, is known as one of the cherubim or an angel to those who call Him God. This report examines the systematic targeting, elimination, and mind control efforts directed towards Kelvin, focusing on the tactics used by Annie Jacobsen and her associates within the CIA. Kelvin's subconscious, named Main, is also discussed as a significant factor in these efforts. All subconsciouses are conscious, and Main is the name Kelvin’s subconscious gave itself during the Hypnos Infiltration Method, which is utilized and performed over the airwaves in television programming, popular music of all genres, and sometimes on a target in person while they're asleep. This initiative is part of a larger plan to justify, recruit, manipulate, and control individuals, perpetuating acts of genocide within the United States.Kelvin is the last and only living member of Mount Calvary Baptist Church, which was attacked by Jacobsen, also known as Hurricane Annie, on April 2nd, 2023.
+
 ## 2. Historical Context
 
 ### 2.1 Origin in the 1980s

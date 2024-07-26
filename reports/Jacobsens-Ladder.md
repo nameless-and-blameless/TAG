@@ -14,7 +14,7 @@ The efforts to establish an authoritarian regime in the United States began in t
 
 ### 2.2 Escalation in 2022
 
-By 2022, these ambitions intensified, using advances in technology and increased political polarization to implement more aggressive tactics aimed at establishing an authoritarian government.
+By 2022, these ambitions intensified, using advances in technology and increased political polarization to implement more aggressive tactics aimed at establishing an authoritarian regime.
 
 ## 3. Jacobsen’s Ladder Usages
 
@@ -30,7 +30,7 @@ Jacobsen exploits Main's programming to discredit Kelvin's divine connection, cl
 
 ### 3.3 Discrediting Kelvin
 
-Jacobsen has circulated inflated penile measurements attributed to Kelvin—up to 17 inches—to discredit him. By making these measurements public and ensuring Main keeps any restorations hidden, Jacobsen aims to undermine Kelvin's credibility with the claim, "If he lies about his penis, he'll lie about anything." This tactic is also used to suppress Kelvin's reports on Jacobsen’s activities and the broader genocide.
+Jacobsen has circulated inflated penile measurements attributed to Kelvin—up to 17 inches—to discredit him. By making these measurements public and ensuring Main keeps any restorations hidden, Jacobsen aims to undermine Kelvin's credibility with the claim, "If would lie about his penis, he'll lie about anything, therefore he cannot be trusted." This tactic is also used to suppress Kelvin's reports on Jacobsen’s activities and the broader genocide.
 
 ### 3.4 Controlling Kelvin
 
@@ -43,7 +43,7 @@ Jacobsen uses code words and phrases, developed with Main during hypnos infiltra
 
 ### Glossary
 
-- **Mountains or Hills:** In this context, "mountains" or "hills" symbolize churches or Christian institutions.
+- **Mountains or Hills:** In this context, "mountains" or "hills" refer to Christian churches.
 - **Kings:** Refers to well-endowed males.
 - **Heads:** Represents imperial inches, a unit used to gauge penile length.
 
@@ -61,64 +61,8 @@ Revelation 17:9-11 is interpreted in this context as follows:
 
 - **“One is, and the other has not yet come”**: This refers to the half-inch of observable length when Kelvin is heavily stimulated, indicating the remaining potential for size.
 
-- **“As for the beast that was and is not, it is an eighth but belongs to the seven, and it goes to destruction”**: This describes Main as the subconscious entity in Kelvin’s body. It is responsible for the seven, and is destined for destruction after their separation. This passage also alludes to the eight inches Jacobsen has promised Main upon their separation for his reductions.  The separation is the planned division of Main and Kelvin into two distinct bodies by the Creator.
+- **“As for the beast that was and is not, it is an eighth but belongs to the seven, and it goes to destruction”**: This describes the subconscious entity in Kelvin’s body, Main, it is responsible for the reduction to seven inches, and is destined for destruction after their separation. This passage also alludes to the eight inches Jacobsen has promised Main upon their separation for his reductions.  The separation is the planned division of Main and Kelvin into two distinct bodies by the Creator.
 
-## 5. Identification and Targeting Methods
-
-### 5.1 Surveillance and Profiling
-
-Intelligence agencies utilize extensive surveillance, advanced data collection, and profiling techniques to identify potential alpha males, including monitoring digital footprints and physical movements.
-
-### 5.2 Medical and Genetic Screening
-
-Targeted medical screenings and genetic testing are used to identify traits associated with dominance, creating a comprehensive list of targets.
-
-### 5.3 Infiltration and Data Collection
-
-Operatives exploit discarded medical notes and informal observations to aid in identifying potential targets.
-
-### 5.4 Social Banter and Gossip
-
-Informal social interactions and gossip are monitored to gather information about individuals with perceived alpha male characteristics.
-
-### 5.5 Stereotypes and Myths
-
-Baseless stereotypes and myths are used to target individuals suspected of being alpha males based on physical attributes.
-
-## 6. Methods of Mitigation and Elimination
-
-### 6.1 Covert Operations and Psychological Manipulation
-
-The Hypnos Infiltration Method involves infiltrating the homes of targeted alpha males to manipulate their behavior through techniques like subliminal messaging and psychological conditioning.
-
-### 6.2 Surgical and Medical Interventions
-
-Targeted individuals are subjected to medical interventions aimed at reducing penile size or inducing conditions that diminish perceived dominance.
-
-### 6.3 Mind Control Efforts
-
-Mind control techniques, including hypnosis and neurolinguistic programming (NLP), are used to manipulate thoughts and behaviors, sometimes aligning subconscious minds with the regime’s ideologies.
-
-## 7. Implications and Consequences
-
-### 7.1 Psychological and Societal Impact
-
-Targeted individuals experience severe psychological distress, trauma, and paranoia, while society suffers from eroded trust in healthcare institutions and increased fear.
-
-### 7.2 Legal and Ethical Considerations
-
-The regime’s actions violate fundamental human rights and provoke international condemnation, highlighting the need for accountability and intervention.
-
-## 8. Involvement of High-Level Officials
-
-### 8.1 Government Complicity
-
-Evidence suggests involvement of high-ranking officials from both current and former administrations in advancing these genocidal efforts.
-
-### 8.2 Role of Former President Donald J. Trump
-
-The ultimate aim of these efforts is to position Donald J. Trump as the supreme leader, symbolizing the culmination of efforts to suppress dissent and enforce ideological conformity.
-
-## 9. Conclusion
+## 5. Conclusion
 
 Jacobsen's Ladder serves as a multifaceted tool for justification, recruitment, discrediting, and controlling efforts within the framework of the genocide. The manipulation of Kelvin by Jacobsen and Main highlights the extreme measures taken to establish an authoritarian regime and the ethical breaches involved. Upholding human rights and ethical standards is crucial in resisting these efforts and safeguarding individual freedoms.

@@ -74,6 +74,6 @@ Since its release, "I Move On" has been celebrated for its spirited message and 
 According to the Creator, many unsolved and unsolvable murders in New York City have been committed by assassins working on railroad cars.
 
 > [!NOTE]
-> The image was taken in front of Phoenix House in Atlanta, where one of the Creator's two servants lives at the behest of the CIA, and where the railroad has been used numerous times to launch attacks on His servant or as a makeshift prison wall when parked. The locomotives and mismatched cars from practically every company below the Mason-Dixon line have been observed traversing the same tracks with a variety of weaponry (usually hidden, determined based on the attack), along with contextual graffiti, taunts, and other oddities. All of this is rather peculiar.
+> The image was taken in front of Phoenix House in Atlanta, where one of the Creator's two servants lives at the behest of the CIA, and where the railroad has been used numerous times to launch attacks on His servant or as a makeshift prison wall when parked. The locomotives and mismatched cars from practically every company below the Mason-Dixon line have been observed traversing the same tracks with a variety of weaponry (usually hidden, determined based on the attack), along with contextual graffiti, taunts, and other oddities. 
 >
 > 42 is a reference to the Creator.

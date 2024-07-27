@@ -1,5 +1,3 @@
-**Notice:** The following content contains graphic descriptions, references to conspiracy theories, violence, and sensitive religious topics. Reader discretion is advised. The views and events described are part of a creative scenario and should not be interpreted as factual or promoting any illegal activities.
-
 # Jacobsen’s Ladder: Justification, Recruitment, Manipulation, and Control in the American Genocide
 
 ## 1. Introduction

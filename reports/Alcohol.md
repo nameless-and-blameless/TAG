@@ -36,3 +36,5 @@ For those seeking to stop using alcohol and switch to alcohol-free products, the
 - **Cleaning Products**: Select non-alcohol-based disinfectants and solvents.
 
 By following these guidelines, individuals can reduce their alcohol consumption and improve their health and well-being.
+
+The Creator and His two servants classify alcohol on the [[Dope Hope Nope|]] scale as: NOPE 

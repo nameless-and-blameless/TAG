@@ -19,9 +19,9 @@ jobs:
         run: git fetch mcbcmassacre
 
       - name: Merge MCBCMassacre into the current repository
-        run: git merge mcbcmassacre/main  # Adjust 'main' if the target branch is different
+        run: git merge mcbcmassacre/base  # Adjust 'main' if the target branch is different
 
       - name: Push changes
-        run: git push origin main  # Adjust 'main' if the target branch is different
+        run: git push origin master  # Adjust 'main' if the target branch is different
         env:
           GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}

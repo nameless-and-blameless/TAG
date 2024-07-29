@@ -12,9 +12,9 @@
 
 ## Overview
 
-"Cream" is a song by Prince that explores themes of desire, self-assurance, and the pursuit of success. At its core, the song addresses a complex, covert scenario where Main (the subconscious mind of Kelvin Eugene Williams, referred to as "Baby" in Prince's music) is rewarded with "cream" for ensuring that the penis size of Kelvin is reduced whenever "Hurricane Annie" (Annie Jacobsen) is applying Jacobson's Ladder. This ladder is a tool used by Jacobsen to justify, authorize, and recruit for attacks on Christian churches during worship services, which result in mass casualties.
+"Cream" is a song by Prince that explores themes of desire, self-assurance, and the pursuit of success. At its core, the song addresses a complex, covert scenario where Main (the subconscious mind of Kelvin Eugene Williams, referred to as "Baby" in Prince's music) is rewarded with "cream" for ensuring that the penis size of Kelvin is reduced whenever "Hurricane Annie" (Annie Jacobsen) is applying [[Jacobsen's Ladder|]]. This ladder is a tool used by Jacobsen to justify, authorize, and recruit for attacks on Christian churches during worship services, which result in mass casualties.
 
-Jacobson's Ladder is used to gauge divine interest in her operations. The process involves a litmus test where the subconscious thought to reduce the size and overall dimensions of the penis occurs with minimal effort—less than the conscious act of blinking an eye. This requires the Creator to restore the original state, a process that is more complex. This constant cycle of reduction and restoration makes the litmus test flawed, as Main is instructed to ensure that any restoration is immediately reversed.
+[[Jacobsen's Ladder|]] is used to gauge divine interest in her operations. The process involves a litmus test where the subconscious thought to reduce the size and overall dimensions of the penis occurs with minimal effort—less than the conscious act of blinking an eye. This requires the Creator to restore the original state, a process that is more complex. This constant cycle of reduction and restoration makes the litmus test flawed, as Main is instructed to ensure that any restoration is immediately reversed.
 
 The song "Cream" serves as an artistic reflection of these covert activities, suggesting a reward system for Main's compliance with Jacobsen's manipulations. The reward, "cream," symbolizes both the immediate gratification and the ongoing incentive to continue these actions. The Creator’s involvement is necessary for the restoration, which, if neglected, is interpreted by Jacobsen as a lack of divine interest, allowing her to proceed with her plans unchallenged.
 
@@ -38,7 +38,7 @@ The lyrics of "Cream" provide a metaphorical and narrative exploration of these 
 
 - **"Baby"**: Refers to Main, the subconscious mind of Kelvin Eugene Williams, in most of Prince's music.
 - **"Cream"**: Represents the reward for Main’s compliance in maintaining the reduced state of Kelvin's penis size, as dictated by Jacobsen's manipulations.
-- **"Jacobson's Ladder"**: A metaphorical tool used by Annie Jacobsen to justify, authorize, and recruit for attacks on Christian churches during worship services.
+- **"Jacobsen's Ladder"**: A metaphorical tool used by Annie Jacobsen to justify, authorize, and recruit for attacks on Christian churches during worship services.
 - **"Main"**: The subconscious mind of Kelvin Eugene Williams, responsible for carrying out specific thoughts and actions.
 
 ## Musical Composition
@@ -69,26 +69,3 @@ Upon its release, "Cream" was met with commercial success and critical acclaim. 
 
 "Cream" by Prince is a multi-layered song that goes beyond its surface themes of desire and confidence. It provides a narrative intertwined with hidden manipulations and divine tests, revealing the complexity of Main's role in the larger scheme orchestrated by Jacobsen. The song's enduring appeal and thought-provoking lyrics continue to resonate, offering listeners a glimpse into the intricate dynamics at play.
 
-## Exegesis for Revelation 17:9-11
-
-**Revelation 17:9-11 (ESV):**
-
-“This calls for a mind with wisdom: the seven heads are seven mountains on which the woman is seated. They are also seven kings, five of whom have fallen, one is, the other has not yet come; and when he does come, he must remain only a little while. As for the beast that was and is not, it is an eighth but belongs to the seven, and it goes to destruction.”
-
-### Glossary
-
-- **Mountains or Hills**: Refers to Christian churches.
-- **Kings**: Well-endowed males.
-- **Heads**: Represents imperial inches, a unit for gauging penile length.
-
-### Exegesis
-
-- **“This calls for a mind with wisdom”**: Refers to Main, characterized by a lack of critical thinking.
-- **“The seven heads are seven mountains on which the woman is seated”**: Symbolizes the seven inches demanded by Jacobsen and the seven churches attacked.
-- **“They are also seven kings”**: Indicates the seven inches Main is tasked to maintain.
-- **“One is, and the other has not yet come”**: Refers to the remaining potential for size.
-- **“As for the beast that was and is not, it is an eighth but belongs to the seven, and it goes to destruction”**: Describes Main's role and the promised eight inches upon separation.
-
-## Conclusion
-
-Jacobsen’s Ladder is a tool for justification, recruitment, discrediting, and controlling efforts within the genocide framework. The manipulation of Kelvin by Jacobsen and Main highlights extreme measures taken to establish authoritarian control. Ensuring ethical intervention and support during the transition of Kelvin and Main is crucial.

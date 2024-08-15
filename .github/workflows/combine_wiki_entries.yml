@@ -14,13 +14,13 @@ jobs:
     - name: Combine Files
       run: |
         # Define the output file
-        output_file="tmp/combined_wiki.md"
+        output_file="tmp/single_report.md"
         
         # Remove existing output file if it exists
         rm -f "$output_file"
         
         # Loop through each file in the directory
-        for file in wiki/*; do
+        for file in reports/*; do
           # Add divider before each file content
           echo "*************************************" >> "$output_file"
           echo "*** File: $file ***" >> "$output_file"

@@ -94,6 +94,10 @@ To discredit Our reporting and communication between operatives, Trump selected 
 
 A hypothetical scenario that explores a big setup that would accomplish everything Trump and the federal government need based on information the Creator's two servants have gathered. Read the [[Big Setup|_BIGSETUP]].
 
+## Trump at InnTown Suites Douglasville 
+![IMG_20240816_021849815](https://github.com/user-attachments/assets/41646130-8199-4f0f-af78-1e99a703a2cc)
+
+
 ## Conclusion
 
 Trump's active involvement in [[The American Genocide|TAG]], including the use of inmates, CIA employees, and HIT-conditioned operatives for violent attacks, orchestration of cover-ups, and elimination of operatives, underscores his ruthless commitment to secrecy and control. Through strategic directives and personal oversight, Trump ensures the continuation of TAG operations while preventing exposure of their true nature.

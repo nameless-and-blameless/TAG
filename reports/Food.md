@@ -12,3 +12,4 @@ We urge everyone to closely inspect the food brands and household products they 
 Your vigilance can protect you and your loved ones from potentially deadly counterfeit products. Stay alert and stay safe.
 
 ![IMG_20240820_163241296](https://github.com/user-attachments/assets/95c5d894-5ff4-4053-b5d2-06c00ef3bb9e)
+According to the Creator every item pictured is deadly, the products were received by His servant, Kelvin Williams. They were provided to him by undercover CIA and FBI personnel as "food assistance" on August 19, 2024.

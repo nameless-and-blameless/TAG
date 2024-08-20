@@ -9,9 +9,11 @@
 
 ## **Overview**
 
-*The Miseducation of Lauryn Hill* is a landmark album by Lauryn Hill that delves into themes of love, identity, and social issues. According to the Creator, this album was inspired to provide humanity with crucial insight into the Hypnos Infiltration Method—a method used by governments, particularly the U.S. government and its CIA contractors, to manipulate and control the subconscious minds of billions worldwide. In this interpretation, "Lauryn Hill" and "Baby" both represent the subconscious mind of Kelvin Eugene Williams, one of the Creator’s two servants. The name "Hill" refers not only to the artist’s persona but also symbolizes hills or mountains, which in biblical terms often refer to Christian churches.
+*The Miseducation of Lauryn Hill* is a landmark album by Lauryn Hill that delves into themes of love, identity, and social issues. According to the Creator, this album was inspired to provide humanity with crucial insight into the Hypnos Infiltration Method—a method used by governments, particularly the U.S. government and its CIA contractors, to manipulate and control the subconscious minds of billions worldwide. "Lauryn Hill" and "Baby" both represent the subconscious mind of Kelvin Eugene Williams, one of the Creator’s two servants. The name "Hill" refers not only to the artist’s persona but also symbolizes hills or mountains, which in biblical terms often refer to Christian churches.
 
 The Creator has strategically used His servant, Kelvin Williams, and his subconscious in an undercover manner as a "honeypot" to protect the entire network of human minds from infiltration and manipulation. *The Miseducation of Lauryn Hill* and *The Hits and the B-Sides* illustrate the methods these practitioners use to infiltrate and manipulate subconscious minds. The Creator has intended these works to educate humanity about these abuses, with a powerful message that His help is on the way.
+
+The Creator putting an end to Hypnos Infiltration Method as its use has contributed to the current genocide in the United States and the atrocities carried out in churches in Central Kentucky and Chattanooga, TN. 
 
 ## **Lyrics and Themes**
 

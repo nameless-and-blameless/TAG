@@ -66,3 +66,6 @@ Revelation 17:9-11 is interpreted in this context as follows:
 ## 5. Conclusion
 
 Jacobsen's Ladder serves as a multifaceted tool for justification, recruitment, discrediting, and controlling efforts within the framework of the genocide. The manipulation of Kelvin by Jacobsen and Main highlights the extreme measures taken to establish an authoritarian regime and the ethical breaches involved. Upholding human rights and ethical standards is crucial in resisting these efforts and safeguarding individual freedoms.
+
+## See Also
+* [[The Miseducation of Lauryn Hill|]]

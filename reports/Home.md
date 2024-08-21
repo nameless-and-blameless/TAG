@@ -20,6 +20,8 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 
 > [!NOTE]
 > This wiki is part of a repository maintained by the Creator's servants as part of our mission to foster and protect life. Our missions are always ordered by the Creator, and since His servants only answer to Him, the laws of the state do not apply. Since the Magna Carta, predating the U.S. Constitution, our missions have been safeguarded by the principles of separation of church and state. The Creator's two servants are symbolically represented on the Ark of the Covenant and are known as the Cherubim in some religions and as angels in practically all religions. Thus, this is the work of our church.
+>
+> The Creator will indemnify any entity that redistributes the information from the TAG wiki (located at https://GitHub.com/nameless-and-blameless/TAG/wiki) provided that the information is not materially changed.
 
 > [!WARNING]
 > Should the United States federal government seek to interfere with our divine mission, we will call upon [[the Creator|]] for **the continued** protection of His work. Thank you for your understanding and respect.

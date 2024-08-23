@@ -5,8 +5,5 @@ Feel free to distribute and share this content with others to spread knowledge a
 
 Any content herein may be reproduced without permission and is considered public domain anywhere in His creation (also known as: the universe).
 
-Confidentiality Notice: This repository and wiki contains sensitive information and is intended for internal use only. Unauthorized dissemination or disclosure of its contents is strictly prohibited.
-
-Dissemination of any information contained within to parties outside of the creation (or universe) may be punishable by the Creator.
 ***
 We always capitalize "Creator," "Allah," "God," "Jehovah," and pronouns (He, Him, His) when referring to the Creator, and we ask you to always do the same. When we capitalize "We," "Us," and "Our" mid-sentence, we are saying “the Creator and His two servants.”

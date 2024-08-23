@@ -1,4 +1,4 @@
-# The Targeting and Elimination of Alpha Males and Mind Control Efforts within The American Genocide (TAG) in the United States
+# The Targeting of Alpha Males within The American Genocide (TAG) in the United States
 
 ## 1. Introductions 
 

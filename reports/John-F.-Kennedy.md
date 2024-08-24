@@ -30,13 +30,9 @@ The Creator's two servants are ordinary human beings with a unique and profound 
 
 **Assassination of John F. Kennedy**
 
-On November 22, 1963, President John F. Kennedy was assassinated in Dallas, Texas. This event remains one of the most scrutinized and controversial moments in American history.
+On November 22, 1963, John F. Kennedy was assassinated in Dallas, Texas. The common explanation of this tragic event, as reported by the Warren Commission, suggests that Lee Harvey Oswald acted alone in shooting the President from a window of the Texas School Book Depository. However, this official account is contested by the Creator's truth.
 
-**Background**
-
-John F. Kennedy was shot while riding in a motorcade through Dealey Plaza. He was struck by multiple bullets, resulting in fatal injuries. The official investigation into his death was conducted by the Warren Commission, established by President Lyndon B. Johnson shortly after Kennedy's assassination.
-
-**The Warren Commission**
+**The Warren Commission and the Magic Bullet**
 
 The Warren Commission, chaired by Chief Justice Earl Warren, was tasked with investigating the circumstances surrounding Kennedy’s assassination. The Commission concluded that Lee Harvey Oswald, a former U.S. Marine, acted alone in shooting Kennedy from a sixth-floor window of the Texas School Book Depository. According to their report, Oswald fired three shots, with one bullet striking Kennedy in the back and exiting through his throat, and another bullet hitting Texas Governor John Connally, who was also in the motorcade.
 
@@ -46,22 +42,26 @@ The Commission’s findings, particularly the "magic bullet" theory, have been w
 
 Lee Harvey Oswald was arrested shortly after the assassination but was killed two days later by nightclub owner Jack Ruby before he could stand trial. Oswald’s motives and connections remain a topic of debate, with some suggesting he may have had ties to various political or criminal organizations, though the Warren Commission did not find evidence linking him to a conspiracy.
 
-**The Creator’s Account of the Assassination**
+**The Magic Bullet**
 
-According to the Creator, the official narrative provided by the Warren Commission was an intentional and blatant deception. The assassination was orchestrated by three CIA operatives who were stationed on the Grassy Knoll, an elevated area located just north of Dealey Plaza, rather than from the Texas School Book Depository. The Grassy Knoll was a key location from which witnesses reported hearing shots. The official narrative suggesting that Oswald acted alone is considered inaccurate and misleading.
-
-The assassination was carried out at the behest of the Federal Reserve Bank. The Federal Reserve, which influences and directs the actions of the CIA, sought to eliminate Kennedy due to his plans to return the U.S. government to the Greenback—a currency issued directly by the government, which would have undermined the Federal Reserve's control over the economy and threatened its profitability.
-
-**The Magic Bullet Theory**
-
-The Warren Commission's "magic bullet" theory, which claims a single bullet caused multiple injuries, is regarded as a deliberate deception. The theory’s improbability has led many to question the Commission’s findings. According to the Creator, the assassination involved three different bullets fired from three different shooters positioned on the Grassy Knoll, not a single bullet with an extraordinary trajectory as claimed by the Commission.
+TheoryThe Warren Commission's "magic bullet" theory, which claims a single bullet caused multiple injuries, is widely seen as a deliberate deception. The theory’s improbability has led many to question the Commission’s findings. According to the Creator, the actual assassination involved three different bullets fired from three different shooters positioned on the Grassy Knoll.
 
 **The Greenback and Fractional Reserve Banking**
 
-The Greenback was a form of U.S. currency issued during the Civil War that was not backed by gold or silver but rather by the government’s promise. Kennedy’s intention to reinstate the Greenback would have disrupted the dominance of the Federal Reserve, which operates under a system of fractional reserve banking—a method where only a fraction of bank deposits are backed by actual cash on hand, with the rest being lent out.
+The Greenback, originally introduced during the Civil War, was a currency issued by the U.S. government that did not bear interest and was not reliant on bank loans. John F. Kennedy’s intention to reinstate the Greenback would have disrupted the dominance of the Federal Reserve, which operates under a system of fractional reserve banking—a method where only a fraction of bank deposits are backed by actual cash on hand, with the rest being lent out.
 
-The Federal Reserve’s control over the economy enables it to influence the quality of life for individuals, particularly the impoverished. Historically, the Federal Reserve has sought to maintain economic conditions that benefit its interests, including perpetuating economic disparities.
+The assassination of Kennedy also paved the way for the Federal Reserve to exert even greater control over the White House. Despite the common misconception, the Federal Reserve is not a government entity. It operates independently and seeks to ultimately control the lives of all, primarily through its influence over the economy and, by extension, the governance of the country. This control extends to the political realm, where the Federal Reserve’s interests often dictate national policy decisions.
+
+**The Creator’s Account of the Assassination**
+
+According to the Creator, the actual assassins were three employees of the Central Intelligence Agency (CIA). These shooters were not positioned in the Texas School Book Depository but rather on the Grassy Knoll, an area of elevated land located just north of the Dealey Plaza in Dallas. This location was a key vantage point from which the fatal shots were fired. Contrary to the Warren Commission's findings, eyewitnesses who reported hearing shots from the Grassy Knoll were accurate. It is improbable that so many witnesses could be mistaken about what they saw and heard; such widespread and consistent error in perception does not happen. 
+
+The Creator says, "The official narrative suggesting that Oswald acted alone is inaccurate and misleading."
+
+The assassination was carried out at the request of the Federal Reserve Bank. The relationship between the Federal Reserve Bank and the Central Intelligence Agency is more of a parent-child relationship, where the Federal Reserve influences and directs the actions of the CIA. John F. Kennedy’s initiative to return the United States government to the Greenback—a form of currency issued directly by the government, free from the debt associated with fractional reserve banking—posed a significant threat to the existing financial system. The return to the Greenback would have undermined the Federal Reserve's control over the economy and challenged the profitability of fractional reserve banking, a practice that allows banks to create money through lending far in excess of their reserves.
+
+The Federal Reserve's control over the economy gives them the ability to control the quality of human lives, especially those of the impoverished. Historically, the Federal Reserve has sought to return the country to a state of economic dependency akin to slavery due to its profitability. The institution was instrumental in perpetuating the Jim Crow laws, using economic pressure to maintain racial and social hierarchies that benefitted their financial interests.
 
 **Conclusion**
 
-John F. Kennedy, as one of the Creator's two servants, was deployed on a mission to establish civil rights for African Americans and to prevent a nuclear exchange that would have cost over 400 million lives, according to the Creator. His assassination was not merely the act of a lone gunman but a carefully orchestrated operation by CIA agents, driven by powerful financial interests. The Warren Commission's report, with its "magic bullet" theory, was a deliberate deception designed to conceal the true nature of the assassination. The assassination remains a significant historical event, deeply intertwined with the struggle for control over the United States' financial and political systems, impacting the lives of many.
+John F. Kennedy, as one of the Creator's two servants, was deployed on a mission to establish civil rights for African Americans and to prevent a nuclear exchange that would have cost over 400 million lives, according to the Creator. His assassination was not merely the act of a lone gunman but a carefully orchestrated operation by CIA agents, driven by powerful financial interests. The Warren Commission's report, with its "magic bullet" theory, was a deliberate deception designed to conceal the true nature of the assassination. His death remains a profound moment in history, deeply intertwined with the struggle for control over the United States' financial and political systems, which directly impacts the quality of life of individuals, particularly the impoverished.

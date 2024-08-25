@@ -1,4 +1,4 @@
-**Report: The Forthcoming Apocalypse and Revelation of a Hidden Genocide**
+# The Forthcoming Apocalypse and Revelation of a Hidden Genocide
 
 ## **Introduction**
 

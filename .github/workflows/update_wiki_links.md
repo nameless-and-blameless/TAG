@@ -14,7 +14,7 @@ jobs:
       - name: Checkout repository
         uses: actions/checkout@v3
 
-      - name: Copy .md files from /reports to /wiki
+      - name: Ensure /wiki directory exists and copy .md files
         run: |
           mkdir -p wiki
           cp -R reports/*.md wiki/

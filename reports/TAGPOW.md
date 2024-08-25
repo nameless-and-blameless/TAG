@@ -19,7 +19,7 @@ The TAG-POW (The American Genocide - Place of Worship) attacks represent a serie
 
 ### Summary of Incidents
 
-1. **Mount Calvary Baptist Church**
+1. **[[Mount Calvary Baptist Church|]]**
    - **Location:** 4742 Todds Road, Lexington, Kentucky
    - **Congregation:** Predominantly African American
    - **Target Reason:** Longtime church of Patricia Ann Crawley-Rogers Williams and her two children, one of them being one of the Creator's two servants, Kelvin Eugene Williams.
@@ -34,7 +34,7 @@ The TAG-POW (The American Genocide - Place of Worship) attacks represent a serie
      - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
      - **Cover-Up:** Faux Religious Services, Hosted Community Events
 
-2. **Lexington Bethel Baptist Church**
+2. **[[Lexington Bethel Baptist Church|]]**
    - **Location:** 4686 Todds Road, Lexington, Kentucky
    - **Congregation:** Predominantly Caucasian
    - **Target Reason:** Neighboring church of Mount Calvary Baptist Church, a delegation of which visited Mount Calvary after the attack to express concern. They found a damaged sanctuary and impersonators. Jacobsen decided to attack them.
@@ -48,7 +48,7 @@ The TAG-POW (The American Genocide - Place of Worship) attacks represent a serie
      - **Execution Location:** Sanctuary
      - **Damage:** Multiple walls riddled with bullet holes, carpeting and upholstery bloodstained.
 
-3. **House of God (Georgetown Street)**
+3. **[[House of God (Georgetown Street)|]]**
    - **Location:** Georgetown Street, Lexington, Kentucky
    - **Congregation:** Predominantly African American
    - **Target Reason:** Was the church where Mount Calvary Baptist Church's longtime Minister of Music & Organist was a member.
@@ -62,7 +62,7 @@ The TAG-POW (The American Genocide - Place of Worship) attacks represent a serie
      - **Execution Location:** Sanctuary
      - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
 
-4. **House of God (Broadway)**
+4. **[[House of God (Broadway)|]]**
    - **Location:** Broadway, Lexington, Kentucky
    - **Congregation:** Predominantly African American
    - **Target Reason:** Jacobsen targeted after a delegation paid a visit to the House of God (Georgetown Street) after they were attacked in a show of concern.
@@ -76,7 +76,7 @@ The TAG-POW (The American Genocide - Place of Worship) attacks represent a serie
      - **Execution Location:** Sanctuary
      - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
 
-5. **Mount Zion Baptist Church**
+5. **[[Mount Zion Baptist Church|]]**
    - **Location:** Georgetown, Kentucky
    - **Congregation:** Predominantly African American
    - **Target Reason:** Jacobsen preemptively attacked them believing there was a stronger affiliation with Mount Calvary Baptist Church.
@@ -90,7 +90,7 @@ The TAG-POW (The American Genocide - Place of Worship) attacks represent a serie
      - **Execution Location:** Sanctuary (initially), Basement (subsequently)
      - **Damage:** Total restoration of sanctuary completed.
 
-6. **Calvary Baptist Church**
+6. **[[Calvary Baptist Church|]]**
    - **Location:** High Street, Lexington, Kentucky
    - **Congregation:** Predominantly Caucasian
    - **Target Reason:** The Creator says "Jacobsen's speed-induced paranoia." Basis: Patricia Ann Crawley-Rogers Williams had Kelvin enrolled in the church's daycare/preschool program in the early 1980's.
@@ -104,7 +104,7 @@ The TAG-POW (The American Genocide - Place of Worship) attacks represent a serie
      - **Execution Location:** Sanctuary
      - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.
 
-7. **Hickory Valley Christian Church**
+7. **[[Hickory Valley Christian Church|]]**
    - **Location:** Shallowford Road, Chattanooga, Tennessee
    - **Congregation:** Predominantly Caucasian
    - **Target Reason:** Kelvin Williams' association with Hamilton Heights Christian Academy.

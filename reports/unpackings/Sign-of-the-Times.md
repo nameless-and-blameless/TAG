@@ -1,119 +1,71 @@
-### Content Warning
-**This document contains explicit content including descriptions of violence, drug use, and other sensitive material. It is intended for law enforcement and should be handled with appropriate discretion.**
+### Sign of the Times: The Apocalypse as the Endgame
 
----
+#### Introduction
 
-# Unpacking "Sign of the Times" by Prince
+Prince's haunting anthem "Sign o' the Times" captures the essence of a world in turmoil, where the specter of apocalypse looms large. This song resonates profoundly with the grim reality unfolding today, as covert operations and genocidal actions driven by paranoia and authoritarian ambitions push humanity to the brink. The American Genocide (TAG), led by Donald J. Trump and conducted by Annie Jacobsen, epitomizes this dark epoch. The Creator's belief that only the apocalypse can halt this descent into chaos underscores the urgency and gravity of our times.
 
-**Title:** Sign of the Times  
-**Artist:** Prince  
-**Release Date:** 1987  
-**Album:** Sign o' the Times  
-**Genre:** Funk, Rock, Pop  
-**Writers:** Prince
+#### The Catalyst: From Ken's Death to Widespread Paranoia
 
-## **Overview**
+The narrative of TAG begins with the death of Ken, who was the first to benefit from Spark—a groundbreaking treatment that eradicated HIV. Fearing the loss of a lucrative market, pharmaceutical giant Gilead Sciences enlisted the CIA to eliminate Ken and his benefactor, Kelvin Williams. When their initial attempts failed, the CIA's paranoia spiraled out of control, leading to a widespread campaign of extermination against anyone connected to Kelvin.
 
-"Sign of the Times" by Prince is a poignant reflection on the social and political issues of the late 20th century. Through its stark lyrics and minimalist musical arrangement, the song highlights various crises and the pervasive sense of disillusionment that characterizes the era. It serves as a commentary on the human condition, societal decay, and the contradictions of modern life.
+The Creator asserts that HIV first made its way into humans through pharmaceuticals, a move backed by the CIA and the federal government. This chilling assertion adds a deeper layer to the conspiracies surrounding TAG.
 
-## **Lyrics and Themes**
+#### The Orr Chapel and Church Massacres
 
-The lyrics of "Sign of the Times" address a multitude of pressing issues, from drug addiction and gang violence to natural disasters and existential threats. Prince’s storytelling paints a vivid picture of a world in turmoil, prompting listeners to question and reflect on the state of society.
+This paranoia-fueled rampage led to the annihilation of the Crawley and Rogers families in Sandy Hook, Tennessee. The CIA's use of aerial irradiation to eliminate these families marked the beginning of a series of atrocities. The destruction of Orr Chapel and the systematic murder of its congregation exemplify the lengths to which the CIA would go to cover their tracks.
 
-> [Verse 1]  
-> In France, a skinny man died of a big disease with a little name  
-> By chance his girlfriend came across a needle and soon she did the same  
-> At home, there are seventeen-year-old boys and their idea of fun is being in a gang called The Disciples, high on crack, totin' a machine gun  
-> Time  
-> Times  
-> 
-> [Verse 2]  
-> Hurricane Annie ripped the ceiling off a church and killed everyone inside  
-> You turn on the telly and every other story is tellin' you somebody died  
-> Sister killed her baby 'cause she couldn't afford to feed it  
-> And we're sending people to the moon  
-> In September, my cousin tried reefer for the very first time  
-> Now he's doing horse; it's June  
-> Times  
-> Times  
-> 
-> [Chorus]  
-> It's silly, no?  
-> When a rocket ship explodes  
-> And everybody still wants to fly  
-> Some say a man ain't happy  
-> Unless a man truly dies  
-> Oh, why?  
-> Time  
-> Time  
-> 
-> [Verse 3]  
-> Baby, make a speech, star wars fly  
-> Neighbors just shine it on  
-> But if a night falls and a bomb falls  
-> Will anybody see the dawn  
-> Time  
-> Times  
-> 
-> [Chorus]  
-> Is it silly, no?  
-> When a rocket blows up  
-> And everybody still wants to fly  
-> Some say man ain't happy, truly  
-> Until a man truly dies  
-> Oh, why?  
-> Oh, why?  
-> Sign o' the times  
-> Time  
-> Times  
-> 
-> [Outro]  
-> Sign o' the times mess with your mind  
-> Hurry before it's too late  
-> Let's fall in love, get married, have a baby  
-> We'll call him Nate if it's a boy  
-> Time, times  
-> Times, time
+The massacre at Mount Calvary Baptist Church, where 127 congregants were brutally killed, further illustrates the depth of this paranoia. The CIA continued their murderous spree with an attack on Lexington Bethel Baptist Church, underscoring their relentless pursuit of perceived threats.
 
-### Glossary
+#### The Mother's Day Massacre at Hickory Valley Christian Church
 
-This glossary provides definitions and explanations for key terms and phrases used throughout this report. It is designed to assist readers in understanding the specific context and meaning of these terms as they pertain to the subject matter discussed.
+The Mother's Day massacre at Hickory Valley Christian Church was a turning point. Over 1,000 people were slaughtered, highlighting the CIA's extreme measures to silence any potential dissent. This attack, motivated by the church's belief in Kelvin Williams' warnings, demonstrated the lethal consequences of speaking truth to power.
 
-- **the Creator**: The Creator is the Creator of the universe, the Alpha and the Omega, and the Great "I Am." Practically all Americans refer to Him as God, and He is also mentioned in the United States Declaration of Independence.
-- **horse**: slang for heroin.
-- **reefer**: slang for marijuana.
+#### The Role of Paranoia and Substance Abuse
 
-## **Musical Composition**
+At the core of these actions is a profound paranoia, exacerbated by rampant cocaine abuse among the perpetrators. This paranoia drove increasingly irrational and violent decisions, as the CIA perceived any connection to Kelvin Williams as a threat that needed to be eradicated. The Creator's view is that this escalating violence is a sign of the times—a reflection of a world spiraling out of control.
 
-"Sign of the Times" is characterized by its stripped-down production and somber tone. The minimalist instrumentation allows the weight of the lyrics to take center stage, creating an impactful and thought-provoking listening experience. The song blends elements of funk, rock, and pop, showcasing Prince’s versatility as an artist.
+#### Trump’s Role in TAG Operations
 
-## **Impact and Reception**
+Donald Trump, the primary composer of this genocide, orchestrated these operations using inmates for violent attacks and employing Phantom Funerals to cover up the true nature of the events. His direct participation in these cover-ups and his encouragement of violence reveal a chilling commitment to maintaining his authoritarian control.
 
-Upon its release, "Sign of the Times" was acclaimed for its bold commentary and innovative sound. Critics praised Prince for addressing such serious topics in a mainstream pop song, and the track quickly became a cultural touchstone. Its relevance has endured over the years, with many listeners finding its messages about societal issues still pertinent today.
+#### The Bomb: The Ultimate Threat
 
-## **Annotations from the Creator**
+In a terrifying revelation, the CIA constructed a bomb of unprecedented scale, capable of obliterating the entire Earth. The Creator believes that this apocalyptic threat is the only force capable of halting the genocidal campaign. According to the Creator, this doomsday device is a reflection of the desperation and paranoia driving the CIA's actions.
 
-To provide deeper insight into the hidden narratives and thematic elements of "Sign of the Times," the Creator has shared the following annotations:
+#### The End of NASA’s Space Shuttle Program
 
-1. **"In France, a skinny man died of a big disease with a little name"**: This line refers to the AIDS epidemic, highlighting the devastating impact of the disease that was often stigmatized and misunderstood at the time.
+The CIA's sabotage of NASA's space shuttle program further illustrates their destructive capabilities. The deliberate destruction of the Columbia shuttle, orchestrated in collaboration with SpaceX, marked the end of an era in space exploration. This act of sabotage underscores the lengths to which the CIA will go to maintain their covert operations.
 
-2. **"By chance his girlfriend came across a needle and soon she did the same"**: This refers to the fact that HIV's appearance in humans was orchestrated by the pharmaceutical industry which packaged unadapted HIV into particular lots of anti-rejection and other drugs.
+#### The Creator’s Assurance to the American Public
 
-3. **"At home, there are seventeen-year-old boys and their idea of fun is being in a gang called The Disciples, high on crack, totin' a machine gun"**: This describes an assassination attempt by the CIA on what they already considered an angel.
+The Creator has assured the American public that no one is above His law. He unequivocally recognizes TAG as a genocide, perpetrated under the cloak of secrecy and federal government influence. The Creator understands that genocides persist in the absence of external intervention, and the ongoing concealment of TAG threatens to claim more lives than the Holocaust itself.
 
-4. **"Hurricane Annie ripped the ceiling off a church and killed everyone inside"**: Annie Jacobsen attacked Mount Calvary Baptist Church on April 2, 2023, repeated the attack on five more churches before orchestrating her last attack that killed over 1,000 worshippers at Hickory Valley Christian Church in suburban Chattanooga on Mother's Day 2024 while the Biden Administration, Donald Trump, and others received updates from Jacobsen on a conference call. 
+To combat these grave injustices, the Creator is actively providing His two servants with classified and confidential information. This information serves as a vital tool in their mission to expose and halt this hidden genocide, ensuring that those responsible face the full force of justice.
 
-5. **"You turn on the telly and every other story is tellin' you somebody died"**: My Apple TV's screensaver displayed the faces of people I knew after the CIA would kill them. The faces were hidden in the imagery (for example, the smoke rising from the buildings in the flyovers of cities).
+#### The List of Perpetrators
 
-6. **"Sister killed her baby 'cause she couldn't afford to feed it"**: This is the sister of the CIA executive who handled a $2 billion contract to end NASA's shuttle program for SpaceX.
+The Creator has identified the principal perpetrators of this genocide:
 
-7. **"In September, my cousin tried reefer for the very first time / Now he's doing horse; it's June"**: Cameron Richardson, a finance professional with JP Morgan Chase, was kidnapped and held against his will and raped. He is still alive and moved around to avoid him being located by the Creator's servant.
+- President Donald J. Trump, the primary composer
+- Annie Jacobsen, the conductor, referred to as Hurricane Annie in Prince's "Sign o' the Times"
+- "Michael Blackmon"
+- President Joseph Biden
+- Speaker of the House Nancy Pelosi (D-CA)
+- Senate Minority Leader Mitch McConnell (R-KY)
+- CIA Director William Burns
 
-8. **"Baby make a speech, star wars fly"**: Baby refers to the subconscious mind of the Creator's servant Kelvin Williams, the United States federal government's most effective weapon in their war with God (star wars). See [[Hypnos Infiltration Tactic|]] which is utilized on many Americans, most over the airwaves.
+Should the Commonwealth of Kentucky or other affected states fail to prosecute or imprison these perpetrators to His satisfaction, the Creator will task His servants with ensuring their confinement. Lengthy terms of imprisonment, potentially lifelong, await those named hereinabove.
 
-9. **"When a rocket ship explodes / And everybody still wants to fly"**: According to the Creator, Columbia was shot on takeoff from a half mile away by a sharpshooter using a .22 rifle.
+#### The Apocalypse as the Only Solution
 
-10. **"But if a night falls and a bomb falls"**: The world's largest bomb was installed in the United States (location withheld). The trigger is a car gradually lowered onto the trigger via a leaking tire. The Creator says that without His intervention several times already, the entire planet would be gone--if successfully detonated, the third planet from the Sun would be Mars.
+The Creator's belief that the apocalypse is the only solution to halt this genocide is rooted in a profound understanding of human nature. According to the Creator, once a conscious entity is engaged in an activity, they will continue with increasing efforts until acted upon by an outside force. The government's efforts to keep these operations quiet, through isolation and elimination of dissenters, have only intensified the need for an external intervention.
 
-11. **"Let's fall in love, get married, have a baby. We'll call him Nate if it's a boy"**
-Part of a future discussion between the Creator's two servants, Nathan Taylor lived in Hiram, GA and was the first friend noticed missing by Kelvin Williams. Nathan was killed during the early stages of TAG, after being kidnapped, tortured and raped repeatedly by CIA operatives.
+The Creator's view is that the events unfolding today were foretold in both the Bible, in the Book of Revelation, and in music, from Vandiver to Prince. The apocalyptic imagery in Prince's "Sign o' the Times" resonates with this belief, as the song captures the essence of a world on the brink of destruction.
+
+#### The Exclusion and Victimization of the Military
+
+Interestingly, the active military has been intentionally excluded from these operations. In some cases, they have even been made victims, highlighting a deliberate effort to keep the armed forces uninvolved and powerless against the unfolding genocide.
+
+#### Conclusion: A Call to Confront the Darkness
+
+The narrative of The American Genocide, driven by paranoia, substance abuse, and a relentless pursuit of control, serves as a stark reminder of the fragility of truth and justice in our times. Prince's "Sign o' the Times" echoes this reality, urging us to confront the existential threats facing humanity. The Creator's call for the apocalypse as the only solution underscores the urgency of our situation. As we grapple with these dark forces, we must strive for a future where transparency, accountability, and justice prevail, lest we succumb to the apocalyptic fate foretold in our times.

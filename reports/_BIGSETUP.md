@@ -77,3 +77,4 @@ The Big Setup reveals the horrifying reality behind TAG and the phantom funerals
      - A bunch of actors will discredits reporting.
      - Community outpouring of support == new waves of victims.
      - BUT THEY DO NOT LISTEN: Lauryn Hill - The Miseducation of Lauryn Hill - To Zion
+     - Likely August 26, 2024

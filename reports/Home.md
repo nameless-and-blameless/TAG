@@ -1,4 +1,5 @@
 > [!IMPORTANT]
+> **Babylon the Great has fallen!**
 > Read the Creator's [[Statement on Crimes|]] by United States officials and CIA personnel and Our [[Open Letter to GitHub|_OLTG]].
 ***
 # TAG Wiki: Unveiling The American Genocide
@@ -17,6 +18,7 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 > The Creator will indemnify any entity that redistributes the information from the TAG wiki (located at https://GitHub.com/nameless-and-blameless/TAG/wiki) provided that the information is not materially changed.
 
 * Warnings & Alerts
+     - Former Senator Bob Corker's [[planned phantom funeral|_CORK]]
      - Food pantry at Mount Zion Baptist Church in Georgetown, KY. [[See advisory|MZ20240824]]
      - Multiple Decedent Phantom Funeral Warning - Mount Zion Baptist Church on August 21, 2024. [[More information|_MZ20240821]]
      - The Creator and His two servants need your help in preventing the loss of life by anyone in the Chattanooga or Lexington area. The perpetrators tag are utilizing come and do churches in hosting food pantries here every day Americans are being killed on entry, the perpetrators are luring in low income families with false reports of high value foods and meats. No one will be provided food. [[See Advisory|Advisory-for-Public]]

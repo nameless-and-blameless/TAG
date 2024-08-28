@@ -30,7 +30,9 @@ The Creator has identified seven key individuals who must be held accountable fo
 
 **Press Conferences by the Creator's Servants:**
 
-Beginning on Monday, August 26, 2024, following the first earthquake at the former site of Orr Chapel, 8397 West Sheepneck Road in Sandy Hook (Mount Pleasant), Tennessee, the Creator's two appointed servants will hold press conferences at high noon at each earthquake's epicenter. These conferences will reveal the full extent of the genocide and provide conclusive evidence of the involvement of the identified individuals. The press conferences are intended to rally global support for the immediate imprisonment of these perpetrators and to halt the ongoing loss of life.
+The Creator's apocalypse begins Monday, August 26, 2024,
+
+following the first earthquake at the former site of Orr Chapel, 8397 West Sheepneck Road in Sandy Hook (Mount Pleasant), Tennessee, the Creator's two appointed servants will hold press conferences at high noon at each earthquake's epicenter. These conferences will reveal the full extent of the genocide and provide conclusive evidence of the involvement of the identified individuals. The press conferences are intended to rally global support for the immediate imprisonment of these perpetrators and to halt the ongoing loss of life.
 
 **Conclusion:**
 

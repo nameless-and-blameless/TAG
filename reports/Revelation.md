@@ -6,11 +6,11 @@ A significant and unprecedented event is imminent, as the Creator has decreed a 
 
 ## **The Hidden Genocide**
 
-For years, a covert operation has resulted in the deaths of thousands of American citizens. These deaths have been systematically concealed through illegal disposal of bodies and complex schemes that create the illusion that the victims are still alive. Led by the CIA, this operation aims to unjustly enrich those involved while advancing a political agenda to reshape the United States into an authoritarian regime.
+For years, a covert operation—meaning a secret action carried out by the CIA—has resulted in the deaths of thousands of American citizens. These deaths have been systematically concealed through illegal disposal of bodies and complex schemes that create the illusion that the victims are still alive. Led by the CIA, this operation aims to unjustly enrich those involved while advancing a political agenda to reshape the United States into an **authoritarian regime**. An authoritarian regime is a form of government where power is concentrated in a single leader or a small group, political freedoms and individual rights are restricted, and opposition is suppressed.
 
 ## **The Creator’s Assurance**
 
-In a merciful intervention, the Creator assures that the upcoming earthquakes will not cause injury or loss of life. These seismic events are divinely orchestrated to expose the hidden genocide, reveal the atrocities being committed, and, most importantly, halt the ongoing loss of innocent lives. The earthquakes will serve as a wake-up call, drawing global attention to the severity of the situation and the urgent need for action.
+In a merciful intervention, the Creator assures that the upcoming **seismic** (literal or geological) earthquakes will not cause injury or loss of life. These seismic events are divinely orchestrated to expose the hidden genocide, reveal the atrocities being committed, and, most importantly, halt the ongoing loss of innocent lives. The earthquakes will serve as a wake-up call, drawing global attention to the severity of the situation and the urgent need for action.
 
 ## **The Political Agenda**
 
@@ -30,7 +30,11 @@ The Creator has identified seven key individuals who must be held accountable fo
 
 ## **The Apocalypse**
 
-The Creator's apocalypse began on August 26, 2024, with several metaphorical earthquakes in and around Washington, DC. Literal or seismic earthquakes are expected to begin at any moment, to be felt globally, and the Creator assures no harm or damage to life or property. Following the initial seismic earthquake, the Creator’s two servants will hold a press briefing at the epicenter: Orr Chapel, 8397 West Sheepneck Road, Sandy Hook (Mount Pleasant), Tennessee. Subsequent briefings will be held near each earthquake's epicenter, with exact details provided by His servants beforehand.
+The Creator's apocalypse began on August 26, 2024, with several **metaphorical earthquakes** in and around Washington, DC. Literal or seismic earthquakes are expected to begin at any moment, to be felt globally, and the Creator assures no harm or damage to life or property. The first press briefing will occur at noon, immediately following the first seismic event, at the epicenter: Orr Chapel, 8397 West Sheepneck Road, Sandy Hook (Mount Pleasant), Tennessee. Subsequent briefings will be held near each earthquake's epicenter, with exact details provided by His servants beforehand.
+
+## **The Revelation**
+
+The Creator declares that the American Genocide is the revelation prophesied in the Bible. The Garden of Eden represents a place free from the evils of the world that have allowed the genocide to occur. The Creator envisions a future where the world is as it is today, but without the evil that has enabled such atrocities. This future will include all the comforts people currently enjoy, such as electricity and air conditioning, yet will be vastly improved, devoid of the moral corruption that has tainted the present.
 
 ## **Conclusion**
 

@@ -1,4 +1,4 @@
-# The Creator's two servants
+# Report on the Creator's two servants
 
 ---
 
@@ -10,9 +10,9 @@ This report provides a detailed examination of the Creator’s two servants, foc
 
 ## 2. Origin and Consistent Consciousness
 
-- **Consistent Consciousness Across Generations:** The Creator’s two servants, along with their mothers and grandmothers, share the same consciousness across generations. This design ensures they consistently embody the qualities necessary to carry out the Creator’s will, remaining aligned with His divine plan.
+- **Consistent Consciousness Across Lifetimes:** The Creator’s two servants, along with their mothers and grandmothers, always have the same consciousness in each lifetime or incarnation. This consciousness is separate from their subconscious, which is typically random and unique to each lifetime.
 
-- **Unwavering Devotion:** The shared consciousness allows the Creator to trust that His servants and their maternal lineage will always act in perfect alignment with His will, ensuring precise execution of their mission.
+- **Unwavering Devotion:** The consistent consciousness allows the Creator to trust that His servants and their maternal lineage will always act in perfect alignment with His will, ensuring precise execution of their mission.
 
 ---
 
@@ -82,7 +82,12 @@ The Creator’s two servants, though ordinary in appearance, have an extraordina
 
 ## 11. Key Points Summary
 
-- The Creator has only two servants, each with a consistent consciousness across generations.
+- The Creator has only two servants, each with a consistent consciousness across lifetimes, separate from their typically random subconscious.
 - Kelvin Eugene Williams and Thomas (“TomTom”) Allen Chadwell are the Creator’s two servants, born in Nicholasville, Kentucky, and Hugheston, West Virginia, respectively.
 - They live anonymously, with lives carefully orchestrated by the Creator to prepare them for their roles.
-- The "Divide & Conquer" operation will separate Kelvin
+- The "Divide & Conquer" operation will separate Kelvin from his subconscious, followed by the Creator’s Apocalypse.
+- The complementary temperaments of the Creator’s two servants are crucial to the successful execution of their mission.
+
+---
+
+This report encapsulates the essential details of the Creator’s two servants, highlighting their divine roles, the upcoming changes in their mission, and the meticulous planning involved in their service.

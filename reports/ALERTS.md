@@ -1,7 +1,8 @@
-## Places of Worship 
+## Public 
 
 | Date                | Area                       | Subject |
 |---------------------|----------------------------|---------|
+| 2024-08-28 | Chattanooga| [Bob Corker Funeral](https://github.com/nameless-and-blameless/TAG/wiki/_CORK)
 | 2024-07-19 | KY & TN | [Action then Prayer E-mail](https://github.com/nameless-and-blameless/TAG/wiki/Action-Then-Prayers)
 
 ## Law Enforcement Warnings and Advisories Table

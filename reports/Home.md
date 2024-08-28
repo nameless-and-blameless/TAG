@@ -1,4 +1,5 @@
 > [!IMPORTANT]
+> **Babylon the Great has fallen!**
 > Read the Creator's [[Statement on Crimes|]] by United States officials and CIA personnel and Our [[Open Letter to GitHub|_OLTG]].
 ***
 # TAG Wiki: Unveiling The American Genocide

@@ -16,9 +16,13 @@ The Creator emphasizes that no individual or entity is above His law. He will no
 - Senate Minority Leader Mitch McConnell (R-KY)
 - CIA Director William Burns
 
-Should the Commonwealth of Kentucky or other affected states fail to prosecute or imprison these perpetrators to His satisfaction, the Creator will task His servants with ensuring their confinement. Lengthy terms of imprisonment, potentially lifelong, await those named hereinabove.
+Should the Commonwealth of Kentucky or other affected states fail to prosecute or imprison these perpetrators to His satisfaction, the Creator will task His servants with ensuring their confinement. Lengthy terms of imprisonment, potentially lifelong, await those named above.
 
-The Creator urges the human race to stand against such atrocities, affirming that justice must prevail for the sake of all humanity.
+## **The Creator's Intervention: The Apocalypse Begins**
+
+The Creator has deemed it necessary to intervene directly to stop this genocide. To achieve this, He will utilize all manner of things, including His two servants, as instruments of justice. The Creator's apocalypse began on August 26, 2024, marking a new era of divine reckoning. This apocalypse includes both political and tectonic earthquakes, shaking the very foundations of corrupt systems and exposing the hidden atrocities of TAG.
+
+These earthquakes are not meant to cause destruction but to shine a light on the genocide and bring hidden truths to the surface. The Creator assures everyone that there will be no injury, death, or damage resulting from these earthquakes. Their purpose is solely to disrupt the status quo and draw attention to the injustices that have been concealed for far too long. Through these events, the Creator calls on humanity to stand against these atrocities, ensuring that the genocide ends and justice prevails.
 
 ## About the Creator
-The Creator, revered globally across cultures, is the Creator of the Universe, the Alpha and the Omega, and the Great "I Am." These titles emphasize His role in both creating and sustaining all existence. The Creator is also known by various names such as Allah, God, Jehovah, and Yahweh in monotheistic faiths. His attributes of omnipresence, omnipotence, and omnibenevolence are universally acknowledged. The Creator mentioned herein is the same entity referred to in the US Declaration of Independence. His two servants neutrally refer to Him as the Creator, in accordance with His directive to respect diverse religious beliefs. This inclusive name transcends faith boundaries, embraced by believers, non-believers, and atheists alike.
+The Creator, revered globally across cultures, is the Creator of the Universe, the Alpha and the Omega, and the Great "I Am." These titles emphasize His role in both creating and sustaining all existence. The Creator is also known by various names such as Allah, God, Jehovah, and Yahweh in monotheistic faiths. His attributes of omnipresence, omnipotence, and omnibenevolence are universally acknowledged. The Creator mentioned herein is the same entity referred to in the U.S. Declaration of Independence. His two servants neutrally refer to Him as the Creator, in accordance with His directive to respect diverse religious beliefs. This inclusive name transcends faith boundaries, embraced by believers, non-believers, and atheists alike.

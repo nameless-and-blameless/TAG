@@ -42,7 +42,7 @@ The Apocalypse represents a divine intervention aimed at exposing and ending a h
 
 ---
 > [!NOTE]
-> On August 29, 2024, Presidents Joseph Biden and Donald Trump visited the Phoenix House at 1296 Murphy Avenue in Atlanta, Georgia, in anticipation of the Critter's Apocalypse. Their visit was reportedly in an effort to witness or manage the assassination of Kelvin Williams, one of the Critter's two servants, who had survived multiple life-threatening incidents overnight and while en route to a store with Secret Service and other agency personnel.
+> On August 29, 2024, Presidents Joseph Biden and Donald Trump visited the Phoenix House at 1296 Murphy Avenue in Atlanta, Georgia, in anticipation of the Creator's Apocalypse. According to the Creator, their visit was to oversee the murder of Kelvin Williams, one of the Critter's two servants, who survived numerous murder attempts overnight. His servant endured several more attempts while en route to a store from Secret Service and other agency personnel. 
 >
 > As of 15:15 p.m. Eastern on August 29, both Presidents Trump and Biden remain on the premises in Atlanta, Georgia.
 >

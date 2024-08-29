@@ -10,7 +10,7 @@ For years, a covert operation—meaning a secret action carried out by the CIA�
 
 ## **The Creator’s Assurance**
 
-In a merciful intervention, the Creator assures that the upcoming **seismic** (literal or geological) earthquakes will not cause injury or loss of life. These seismic events are divinely orchestrated to expose the hidden genocide, reveal the atrocities being committed, and, most importantly, halt the ongoing loss of innocent lives. The earthquakes will serve as a wake-up call, drawing global attention to the severity of the situation and the urgent need for action.
+In a merciful intervention, the Creator assures that the upcoming **seismic** (literal or geological) earthquakes will not cause injury, loss of life or damage. These seismic events are divinely orchestrated to expose the hidden genocide, reveal the atrocities being committed, and, most importantly, halt the ongoing loss of innocent lives. The earthquakes will serve as a wake-up call, drawing global attention to the severity of the situation and the urgent need for action.
 
 ## **The Political Agenda**
 
@@ -42,6 +42,10 @@ The Apocalypse represents a divine intervention aimed at exposing and ending a h
 
 ---
 > [!NOTE]
-> On August 29, 2024, Presidents Joseph Biden and Donald Trump visited the Phoenix House at 1296 Murphy Avenue in Atlanta, Georgia, in anticipation of the Critter's Apocalypse. Their visit was reportedly in an effort to witness or manage the assassination of Kelvin Williams, one of the Critter's two servants, who had survived multiple life-threatening incidents overnight and while en route to a store with Secret Service and other agency personnel.
+> On August 29, 2024, the following individuals visited the Phoenix House at 1296 Murphy Avenue, Atlanta, Georgia, in advance of the Creator's Apocalypse: President Joe Biden, former President Donald J. Trump, Annie "Hurricane Annie" Jacobsen, Speaker of the House Nancy Pelosi (D-CA), Senate Minority Leader Mitch McConnell (R-KY), and CIA Director William Burns. According to the Creator, their visit was intended to oversee the murder of one of the Creator's two servants that resides there, who survived several of their ordered murder attempts overnight. His servant maintains this repository.
 >
-> As of 11:00 a.m. Eastern on August 29, both Presidents Trump and Biden remain on the premises in Atlanta, Georgia.
+> As of 4:00 PM Eastern on August 29, all mentioned individuals remain at the Phoenix House in Atlanta, Georgia.
+>
+> The Secret Service, working with federal and state agencies at Phoenix House, is employing advanced cloaking technology to make personnel and vehicles undetectable during operations.
+>
+> (See Revelation 20:15.. As this is burning them badly... Thanks Boss for carrying me through... Ready to open that can of whoopass yet?)

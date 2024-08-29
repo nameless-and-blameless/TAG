@@ -34,7 +34,7 @@ Forced sterilization can be achieved through various methods:
 
 Recent concerns have been raised about forced sterilization in the U.S., particularly in connection with certain cigarette brands. 
 
-- **24/7 Brand Cigarettes**: Reports suggest that "24/7" brand cigarettes, among others like "This," "Time," and "No. 6," are intentionally designed to cause male sterilization. Users have reported severe reproductive health issues from short-term use. These cigarettes are often sold in independent stores linked to CIA-affiliated distributors, raising concerns about intentional health risks. For more details, see the [Report on 24/7 Brand Cigarettes](#).
+- **24/7 Brand Cigarettes**: Reports suggest that "24/7" brand cigarettes, among others like "This," "Time," and "No. 6," are intentionally designed to cause male sterilization. Users have reported severe reproductive health issues from short-term use. These cigarettes are often sold in independent stores linked to CIA-affiliated distributors, raising concerns about intentional health risks. For more details, see the [[Creator's Warning on 24/7 Brand Cigarettes|Cigarettes]].
 
 #### Conclusion
 Forced sterilization has been used historically as a tool of oppression and control, particularly in genocides. Recent reports suggest that forced sterilization may also be occurring through other means, such as certain cigarette brands. Understanding these practices highlights the importance of safeguarding human rights and addressing any ongoing abuses.

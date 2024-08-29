@@ -2,10 +2,10 @@
 
 **Title:** Before the Great War  
 **Artist:** Vandaveer  
-**Release Date:** [Year Needed]  
-**Album:** [Album Needed]  
+**Release Date:** 2009
+**Album:** Divide & Conquer
 **Genre:** Folk, Indie  
-**Writers:** [Writer(s) Needed]
+**Writers:** Mark Charles Heidinger 
 
 ## **Overview**
 

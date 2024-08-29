@@ -42,7 +42,7 @@ The Apocalypse represents a divine intervention aimed at exposing and ending a h
 
 ---
 > [!NOTE]
-> On August 29, 2024, the following individuals visited the Phoenix House at 1296 Murphy Avenue, Atlanta, Georgia, in preparation for the Creator's Apocalypse: President Donald J. Trump, Annie Jacobsen, President Joe Biden, Speaker of the House Nancy Pelosi (D-CA), Senate Minority Leader Mitch McConnell (R-KY), and CIA Director William Burns. According to the Creator, their visit was intended to oversee the assassination of Kelvin Eugene Williams, one of the Creator's two servants, who survived several murder attempts overnight. Further attempts were made while he was traveling to a store, involving Secret Service and other agency personnel.
+> On August 29, 2024, the following individuals visited the Phoenix House at 1296 Murphy Avenue, Atlanta, Georgia, in advance of the Creator's Apocalypse: President Joe Biden, former President Donald J. Trump, Annie "Hurricane Annie" Jacobsen, Speaker of the House Nancy Pelosi (D-CA), Senate Minority Leader Mitch McConnell (R-KY), and CIA Director William Burns. According to the Creator, their visit was intended to oversee the murder of one of the Creator's two servants that resides there, who survived several of their ordered murder attempts overnight. His servant maintains this repository.
 >
 > As of 4:00 PM Eastern on August 29, all mentioned individuals remain at the Phoenix House in Atlanta, Georgia.
 >

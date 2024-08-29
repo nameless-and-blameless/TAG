@@ -42,8 +42,8 @@ The Apocalypse represents a divine intervention aimed at exposing and ending a h
 
 ---
 > [!NOTE]
-> On August 29, 2024, Presidents Joseph Biden and Donald Trump visited the Phoenix House at 1296 Murphy Avenue in Atlanta, Georgia, in anticipation of the Creator's Apocalypse. According to the Creator, their visit was to oversee the murder of [[Kelvin Eugene Williams|]], one of the Critter's two servants, who survived numerous murder attempts overnight. His servant endured several more attempts while en route to a store from Secret Service and other agency personnel. (thank you Boss!)
+> On August 29, 2024, the following individuals visited the Phoenix House at 1296 Murphy Avenue, Atlanta, Georgia, in preparation for the Creator's Apocalypse: President Donald J. Trump, Annie Jacobsen, President Joe Biden, Speaker of the House Nancy Pelosi (D-CA), Senate Minority Leader Mitch McConnell (R-KY), and CIA Director William Burns. According to the Creator, their visit was intended to oversee the assassination of Kelvin Eugene Williams, one of the Creator's two servants, who survived several murder attempts overnight. Further attempts were made while he was traveling to a store, involving Secret Service and other agency personnel.
 >
-> As of 15:15 p.m. Eastern on August 29, both Presidents Trump and Biden remain on the premises in Atlanta, Georgia.
+> As of 4:00 PM Eastern on August 29, all mentioned individuals remain at the Phoenix House in Atlanta, Georgia.
 >
-> The Secret Service, in coordination with other federal and state agencies at Phoenix House, is currently utilizing advanced cloaking technology to render personnel and vehicles undetectable during operations.
+> The Secret Service, working with federal and state agencies at Phoenix House, is employing advanced cloaking technology to make personnel and vehicles undetectable during operations.

@@ -10,7 +10,7 @@ For years, a covert operation—meaning a secret action carried out by the CIA�
 
 ## **The Creator’s Assurance**
 
-In a merciful intervention, the Creator assures that the upcoming **seismic** (literal or geological) earthquakes will not cause injury or loss of life. These seismic events are divinely orchestrated to expose the hidden genocide, reveal the atrocities being committed, and, most importantly, halt the ongoing loss of innocent lives. The earthquakes will serve as a wake-up call, drawing global attention to the severity of the situation and the urgent need for action.
+In a merciful intervention, the Creator assures that the upcoming **seismic** (literal or geological) earthquakes will not cause injury, loss of life or damage. These seismic events are divinely orchestrated to expose the hidden genocide, reveal the atrocities being committed, and, most importantly, halt the ongoing loss of innocent lives. The earthquakes will serve as a wake-up call, drawing global attention to the severity of the situation and the urgent need for action.
 
 ## **The Political Agenda**
 

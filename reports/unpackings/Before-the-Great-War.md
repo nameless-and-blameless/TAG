@@ -10,7 +10,7 @@
 
 ## **Overview**
 
-"Before the Great War" by Vandaveer explores the lives and roles of key figures in the Creator's apocalyptic event, known as the Great War. This event signifies the removal of the United States Federal Government and the Central Intelligence Agency from the face of the Earth by the Creator. The song delves into TomTom's life before this cataclysmic event, highlighting significant aspects of his personal journey and relationships. This report provides an analysis of the song’s lyrics to uncover the deeper meanings and connections among the characters involved.
+"Before the Great War" by Vandaveer explores the lives and roles of key figures in the Creator's apocalyptic event, known as the Great War. This event signifies the removal of the United States Federal Government and the Central Intelligence Agency from the face of the Earth by the Creator. The song focuses on TomTom, one of the Creator’s two servants, and his life before this cataclysmic event. It highlights significant aspects of TomTom's personal journey and relationships, providing insight into his role and the broader implications of the Great War. This report provides an analysis of the song’s lyrics to uncover deeper meanings and connections among the characters involved.
 
 ## **Lyrics and Themes**
 

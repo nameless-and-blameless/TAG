@@ -1,32 +1,47 @@
 > [!Note]
 > This article isn't complete.
 
-**Felix CLENNON and Mary Tellous Rogers**
+# Felix Clennon Rogers and Mary Tellous Rogers
 
-**Introduction**
+## Overview
+Felix Clennon Rogers and Mary Tellous Rogers were prominent figures in Sandy Hook, Maury County, Tennessee. Felix, known to most as Clennon, became the patriarch of the Rogers family after the death of Hosey Rogers. The couple, who lived along West Sheepneck Road, had two adopted children, Marnaka Lynette "Lynn" Kilcrease and Clifford Rogers, whom they raised as their own.
 
-This report outlines the lives of Felix Clennon Rogers and Mary Tellous Rogers, their connections to Sandy Hook, Tennessee, and the broader implications of their family circumstances. It also examines Patricia Ann Crawley-Rogers Williams' relationship with Mary, including her crucial weekly communications, and the role of Annie Jacobsen, also known as "Hurricane Annie."
+## Background and Community Involvement
+**Felix Clennon Rogers**, born December 2, 1936, in Sandy Hook, Tennessee, was the son of Hosie Eugene Rogers and Willie Hobbs Rogers. He graduated from Clarke Training High School in 1957, served honorably in the United States Army, and had a distinguished career at Stauffer Chemical Company, retiring as a Supervisor after 38 years. Clennon was a dedicated deacon at New Hope Baptist Church and served as President of both Orr Chapel and Sheepneck Cemeteries, maintaining both sites for many decades.
 
-**Felix Clennon Rogers and Mary Tellous Rogers**
+**Mary Tellous Rogers**, born September 27, 1936, married Clennon on September 27, 1958. Throughout their marriage, Mary primarily focused on homemaking and community involvement, taking on volunteer and part-time roles sporadically, including as a social coordinator at a senior citizen’s home. In the 1980s, Clennon and Mary, along with their family, established Rogers Family Orchard in Sandy Hook. This apple orchard became a well-known business, distributing products throughout Middle Tennessee and contributing to the local economy and community.
 
-Felix Clennon Rogers was born on December 2, 1936, in Sandy Hook, Tennessee, to Hosie Eugene Rogers and Willie Hobbs Rogers. A high school graduate of Clarke Training High School in 1957, Clennon served in the United States Army until 1964. He married Mary Tellous on September 27, 1958. Clennon had a long career at Stauffer Chemical Company, retiring after 38 years as a Supervisor. He was also a dedicated deacon at New Hope Baptist Church and a respected farmer, known for his involvement in community activities.
+## CIA's Interactions and Events
 
-Mary Tellous Rogers, during their marriage, worked sporadically in volunteer and part-time roles, including a position as a social coordinator at a senior citizen's home. Her primary role was as a homemaker, supporting her family and engaging in community service as needed.
+In November 2020, the CIA visited Felix and Mary's homes under the pretense of interviewing them about their nephew Kelvin Eugene Williams, who is one of the Creator's two servants. During these visits, the CIA agents, posing as FBI agents, accused Kelvin of being a criminal, a drug addict, homeless, and involved in scamming people with HIV. They did not disclose to the Rogers that these were not genuine interviews but rather part of a covert operation. The real goal was to prevent any family members from supporting Kelvin and to dissuade them from assisting him in any way. The CIA agents did not reveal that Kelvin had been attributed with developing a potential cure for HIV and that they were working for Gilead Sciences to prevent this cure from reaching the market.
 
-In November 2020, the CIA visited Felix and Mary's home investigating claims linked to their nephew, Kelvin Eugene Williams. Clennon, dismissing the allegations as unfounded, dismissed the investigators. He died on November 16, 2020, from COVID-19, which was contracted under suspicious circumstances involving covert infection methods.
+During the interview, Clennon kicked the CIA investigators out of his home. Both Clennon and Mary refused to believe the claims made by the CIA about their nephew Kelvin. Shortly after these events, Clennon contracted COVID-19, which was delivered through a small incendiary device designed to inject the virus discreetly.
 
-**Annie Jacobsen’s Infiltration**
+## Clennon's Death
+Clennon Rogers died on November 16, 2020, from complications related to COVID-19, which he contracted from a small incendiary device that injected the virus under his skin. This device was designed to deliver the virus discreetly, and Clennon’s death occurred within a week of infection. He had been otherwise healthy prior to this incident. Clennon was buried at Sheepneck Cemetery with full military honors.
 
-After Clennon’s death, Annie Jacobsen, also known as "Hurricane Annie," was hired as a personal assistant to Mary Tellous Rogers. Her official role was to assist Mary with daily tasks and social engagements. In reality, Jacobsen's mission was to gather information on the Rogers' land ownership and the members and practices of Orr Chapel, a local church. Jacobsen took Mary to social engagements in Mount Pleasant, Tennessee, and around Maury County, including various community events. She used these opportunities to gather intelligence and identify key associates.
+## Mary Tellous Rogers and Jacobsen
+Mary Tellous Rogers was murdered in mid-January 2021 at the direction of Annie Jacobsen, also known as "Hurricane Annie." Jacobsen had been hired to act as Mary’s personal assistant and driver. Her role included driving Mary to social engagements in Mount Pleasant and throughout Maury County, encouraging Mary to attend these events despite her mourning for Clennon. Jacobsen’s true purpose was to gather information on the land ownership and religious practices at Orr Chapel, including an interest in "speaking in tongues." Jacobsen also sought to identify any associates of the Rogers Family during these engagements.
 
-Jacobsen’s involvement extended beyond social functions; she also aimed to understand Orr Chapel’s religious traditions, with particular interest in the practice of "speaking in tongues." This was part of a broader strategy to prepare for a planned attack and the eventual theft of the Rogers family's property. Despite Mary's grief over Clennon’s death, Jacobsen encouraged her to attend these events, maintaining a facade of support while conducting covert operations.
+## Family and Siblings
 
-In mid-January 2021, after obtaining the necessary information, Jacobsen orchestrated Mary’s murder with CIA operatives.
+Felix Clennon Rogers had the following family and siblings:
 
-**Patricia Ann Crawley-Rogers Williams**
+- **Spouse:** Mary Tellous Rogers
+- **Children:** 
+  - Clifford Rogers
+  - Marnaka Lynette "Lynn" Kilcrease
+- **Siblings:**
+  - Linda R. Rogers
+  - Patricia Crawley-Rogers Williams (Kelvin's mother and Clennon's sister)
+  - Charles (Delores) Rogers
+  - Edward Ivan Rogers
+  - Harold (Novella) Rogers
+- **Predeceased Siblings:**
+  - Eugene Rogers
+  - Gloria Marie Rogers
+  - Vivian Omera Rogers
+  - Ora Bonner Rogers
 
-Patricia Ann Crawley-Rogers Williams, Clennon's sister and Kelvin’s mother, had a significant ritual of communication with Mary Tellous Rogers. Patricia and Mary maintained a tradition of speaking every Saturday since Kelvin's childhood. Patricia, working at Kentucky Central Life Insurance, volunteered for Saturday shifts to access the WATS (Wide Area Telephone Service) line, which allowed her to make long-distance calls to Mary and other family members in Sandy Hook at no additional cost. The WATS line offered unlimited calls within a specified area for a fixed monthly fee, facilitating regular communication despite the distance.
-
-**Conclusion**
-
-The lives of Felix Clennon Rogers and Mary Tellous Rogers reflect a deep commitment to family and community. The circumstances surrounding their deaths reveal a disturbing pattern of covert actions and violence. Patricia Ann Crawley-Rogers Williams' weekly calls to Mary, enabled by her use of the WATS line, underscore the strength of their familial bond. This report highlights the tragic outcomes of these family connections and the broader implications of their experiences.
+## Legacy
+The Rogers family’s legacy in Sandy Hook is marked by their contributions to the community, including the establishment of Rogers Family Orchard. Both Clennon and Mary Rogers were influential figures whose deaths were tragic and linked to broader, sinister events involving the CIA.

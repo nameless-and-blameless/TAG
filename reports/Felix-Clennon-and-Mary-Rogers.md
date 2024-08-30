@@ -1,49 +1,61 @@
-# Report on Felix Clennon Rogers and Mary Tellous Rogers
+# Felix Clennon Rogers and Mary Tellous Rogers
 
-## Felix Clennon Rogers
+## Early Life and Background
 
-Felix Clennon Rogers, born December 2, 1936, in Sandy Hook, Tennessee, was the son of Hosie Eugene Rogers and Willie Hobbs Rogers. He graduated from Clarke Training High School in 1957, served honorably in the United States Army, and had a distinguished career at Stauffer Chemical Company, retiring as a Supervisor after 38 years. Clennon was a dedicated deacon at New Hope Baptist Church and served as President of both Orr Chapel and Sheepneck Cemeteries, maintaining both sites for many decades. He was buried at Sheepneck Cemetery with full military honors.
+Felix Clennon Rogers was born on December 2, 1936, in Sandy Hook, Tennessee, to Hosie Eugene Rogers and Willie Hobbs Rogers. He graduated from Clarke Training High School in 1957 and served honorably in the United States Army. Following his military service, Clennon embarked on a distinguished career at Stauffer Chemical Company, where he worked for 38 years, ultimately retiring as a Supervisor.
 
-### Family and Siblings
+Mary Tellous Rogers was born on September 27, 1936. She married Clennon on September 27, 1958. Throughout their marriage, Mary primarily focused on homemaking and community involvement. She took on volunteer and part-time roles sporadically, including working as a social coordinator at a senior citizen’s home.
 
-- **Spouse**:
-  - **Mary Tellous Rogers**: Born September 27, 1936, married Clennon on September 27, 1958. Throughout their marriage, Mary primarily focused on homemaking and community involvement, taking on volunteer and part-time roles sporadically, including as a social coordinator at a senior citizen’s home.
+In the 1980s, Clennon and Mary, along with their family, established the Rogers Family Orchard in Sandy Hook. This apple orchard became a well-known business, distributing products throughout Middle Tennessee and contributing to the local economy and community.
 
-- **Children**:
-  - **Clifford Rogers**
-  - **Marnaka Lynette "Lynn" Kilcrease**
+## Leadership and Community Involvement
 
-- **Siblings**:
-  - **Linda R. Rogers**
-  - **Patricia Crawley-Rogers Williams**: Clennon's half-sister and Kelvin Eugene Williams' mother. Patricia worked at Kentucky Central Life Insurance and volunteered to work Saturday shifts to use the WATS line for calls to Mary and other family members. Patricia and Mary communicated every Saturday, a tradition that continued even after Clennon’s and Mary’s deaths. Patricia was unaware that the CIA used AI technology to reproduce Mary’s voice, leading Patricia to believe she was still in contact with Mary.
-  - **Charles (Delores) Rogers**
-  - **Edward Ivan Rogers**
-  - **Harold (Novella) Rogers**
-  - **Eugene Rogers**
-  - **Gloria Marie Rogers**
-  - **Vivian Omera Rogers**
-  - **Ora Bonner Rogers**
+Clennon was a dedicated deacon at New Hope Baptist Church and served as the President of both Orr Chapel and Sheepneck Cemeteries in Sandy Hook, along West Sheepneck Road. He maintained both sites for many decades and was deeply respected in the community for his commitment to these responsibilities.
 
-## Rogers Family Orchard
+Clennon was buried at Sheepneck Cemetery with full military honors, a testament to his service and dedication to both his country and his community.
 
-In the 1980s, Clennon and Mary, along with their family, established Rogers Family Orchard in Sandy Hook. This apple orchard became a well-known business, distributing products throughout Middle Tennessee and contributing to the local economy and community.
+## CIA Interactions
 
-## CIA Interactions and Jacobsen's Activities
+In November 2020, the CIA, posing as FBI agents, visited Clennon and Mary Rogers' home to interview them about their nephew, one of the Creator's two servants. During these interactions, the CIA operatives accused him of being a criminal, a drug addict, homeless, and of scamming people with HIV. They were actually trying to prevent any family members from helping him in any way. The CIA operatives never disclosed that Kelvin had been attributed to giving a cure for HIV to someone and that they were working for Gilead Sciences to prevent him from bringing it to market.
 
-### CIA Interactions
+Both Clennon and Mary refused to believe anything the CIA was saying about their nephew. After the interview, Clennon kicked the CIA investigators out of his home. A short time later, Clennon contracted COVID-19.
 
-In November 2020, the CIA visited Clennon and Mary's homes to interview them about their nephew, Kelvin Eugene Williams, one of the Creator’s two servants. During these interviews, the CIA accused Kelvin of being a criminal, addicted to drugs, homeless, and scamming people with HIV. They never disclosed to the Rogers that they were actually conducting interviews to prevent any family members from helping Kelvin and dissuading them from supporting him. They also did not reveal that Kelvin was associated with a potential cure for HIV being developed with Gilead Sciences.
+## Jacobsen's Role and Actions
 
-During the interview, Clennon kicked the CIA investigators out of his home, and both Clennon and Mary refused to believe the accusations made against Kelvin. Shortly thereafter, Clennon contracted COVID-19. The CIA operatives had posed as FBI agents during this interaction.
+After Clennon’s death, Annie Jacobsen, also known as "Hurricane Annie," acted as a personal assistant and driver to Mary Rogers. Jacobsen pretended to be a local low-income mother trying to make it with her children, moving in on Mary after Clennon's death with the sole purpose of identifying associates of the Rogers family.
 
-### Jacobsen's Activities
+Jacobsen encouraged Mary to attend social engagements around Maury County to identify members of the community who were Rogers family associates. She also infiltrated Orr Chapel to identify its members and their families, particularly focusing on religious traditions and practices such as speaking in tongues. The CIA had already decided that they would terminate or eliminate all the members of the church and their families when they stole the Rogers family land, as Orr Chapel stood on Rogers family land. The CIA intended to desecrate the cemetery associated with Orr Chapel.
 
-Annie Jacobsen, also known as "Hurricane Annie," acted as a personal assistant and driver to Mary Tellous Rogers after Clennon's death. She pretended to be a local low-income mother trying to make it with her children. Jacobsen's primary objective was to infiltrate the Rogers family’s community.
+## Mary Rogers' Murder
 
-Jacobsen encouraged Mary to attend social activities around Maury County, including church services, even while she was mourning Clennon's death. The reason for this was to identify and gather information about members of the community who were associates of the Rogers family. Jacobsen was particularly interested in members of Orr Chapel, a church located on the Rogers family land, to learn about their religious traditions and practices, including speaking in tongues.
+Mary was murdered in mid-January 2021 at the direction of Jacobsen. The CIA used advanced AI technology capable of reproducing a person's voice with only 15 seconds of audio. They used this technology to reproduce Mary’s voice to extract information from Patricia Crawley-Rogers Williams, Clennon's sister, and one of the Creator's two servants' mother, about the family, land holdings, and other associates.
 
-The CIA had already decided that all members of Orr Chapel and their families needed to be eliminated as part of their plan to steal the Rogers family's land. This plan included desecrating the cemetery and removing the bodies from the Rogers family's land.
+## Donald Trump’s Involvement
 
-Jacobsen's actions were integral to the CIA’s scheme to control and eliminate any potential threats to their plans, including those linked to the Rogers family and their community.
+Donald J. Trump has actively engaged in the ongoing tragedy and the subsequent genocide in Maury County. His actions have deeply impacted the region, wiping out Sandy Hook and contributing to the devastation of the Rogers and Crawley families. Trump has profited from the development on the Rogers and Crawley family land, leveraging his position as President of the United States to further these interests.
 
-Additionally, the CIA reproduced Mary’s voice using AI technology to extract information from Patricia Crawley-Rogers Williams about the family, land holdings, and other associates. This allowed the CIA to gather critical information under false pretenses, furthering their covert objectives.
+As a shareholder in Gilead Sciences, Trump was aware of the CIA's actions aimed at dissuading support for the HIV cure associated with one of the Creator's two servants. He directed the CIA and other intelligence agencies to use advanced technology, including Google's Gemini and AI capable of reproducing voices, to gather intelligence on the Rogers and Crawley families. Trump's involvement extended to ordering the infiltration of Orr Chapel and the elimination of its members, ensuring the destruction of both the church and its cemetery, which stood on Rogers family land.
+
+Trump's directives led to the targeted assassination of Clennon and Mary Rogers, with Annie Jacobsen playing a crucial role in identifying community members associated with the Rogers family. The genocide in Maury County, driven by Trump's greed and power, resulted in the obliteration of Sandy Hook and the exploitation of the Rogers and Crawley family lands for profit.
+
+Donald Trump also had his personal security personnel abduct Marnaka Lynette "Lynn" Kilcrease, the daughter of Clennon and Mary Rogers, and ordered her killed when he felt she was of little use to his interests.
+
+## Family and Siblings
+
+**Spouse:**
+- Mary Tellous Rogers
+
+**Children:**
+- Clifford Rogers
+- Marnaka Lynette "Lynn" Kilcrease
+
+**Siblings:**
+- Linda R. Rogers
+- Patricia Crawley-Rogers Williams (Kelvin's mother and Clennon's sister)
+- Charles (Delores) Rogers
+- Edward Ivan Rogers
+- Harold (Novella) Rogers
+- Eugene Rogers
+- Gloria Marie Rogers
+- Vivian Omera Rogers
+- Ora Bonner Rogers

@@ -1,6 +1,9 @@
 > [!IMPORTANT]
-> **Babylon the Great has fallen!**
-> Read the Creator's [[Statement on Crimes|]] by United States officials and CIA personnel and Our [[Open Letter to GitHub|_OLTG]].
+> **[[Babylon the Great has fallen!|Revelation]]** Read the Creator's [[Statement on Crimes|]] by United States officials and CIA personnel.
+
+> [!TIP]
+> Presidents Biden and Trump, Speaker of the House Pelosi, and Senator Mitch McConnell make TOP-SECRET visit to kill the Creator's two servants. See [[Presidential Visit|]].
+
 ***
 # TAG Wiki: Unveiling The American Genocide
 
@@ -8,11 +11,13 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 
 * Table of Contents
      - [[The Creator|]]
+     - [[The Creator's two servants|]]
      - [[Introduction & Origins of TAG|TAG]]
      - [[TAG in Places of Worship|TAGPOW]]
      - [[Artists TAGd|]]
      - [[How They Hide TAG|Tactics-Utilized-In-TAG]]
      - [[FAQs|]]
+     - [[Open Letter to GitHub|_OLTG]]
 
 > [!IMPORTANT]
 > The Creator will indemnify any entity that redistributes the information from the TAG wiki (located at https://GitHub.com/nameless-and-blameless/TAG/wiki) provided that the information is not materially changed.

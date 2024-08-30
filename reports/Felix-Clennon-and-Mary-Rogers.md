@@ -1,47 +1,46 @@
 > [!Note]
 > This article isn't complete.
 
-# Felix Clennon Rogers and Mary Tellous Rogers
+# Report on Felix Clennon Rogers and Mary Tellous Rogers
 
-## Overview
-Felix Clennon Rogers and Mary Tellous Rogers were prominent figures in Sandy Hook, Maury County, Tennessee. Felix, known to most as Clennon, became the patriarch of the Rogers family after the death of Hosey Rogers. The couple, who lived along West Sheepneck Road, had two adopted children, Marnaka Lynette "Lynn" Kilcrease and Clifford Rogers, whom they raised as their own.
+## Felix Clennon Rogers
 
-## Background and Community Involvement
-**Felix Clennon Rogers**, born December 2, 1936, in Sandy Hook, Tennessee, was the son of Hosie Eugene Rogers and Willie Hobbs Rogers. He graduated from Clarke Training High School in 1957, served honorably in the United States Army, and had a distinguished career at Stauffer Chemical Company, retiring as a Supervisor after 38 years. Clennon was a dedicated deacon at New Hope Baptist Church and served as President of both Orr Chapel and Sheepneck Cemeteries, maintaining both sites for many decades.
+Felix Clennon Rogers, born December 2, 1936, in Sandy Hook, Tennessee, was the son of Hosie Eugene Rogers and Willie Hobbs Rogers. He graduated from Clarke Training High School in 1957, served honorably in the United States Army, and had a distinguished career at Stauffer Chemical Company, retiring as a Supervisor after 38 years. Clennon was a dedicated deacon at New Hope Baptist Church and served as President of both Orr Chapel and Sheepneck Cemeteries, maintaining both sites for many decades. He was buried at Sheepneck Cemetery with full military honors.
 
-**Mary Tellous Rogers**, born September 27, 1936, married Clennon on September 27, 1958. Throughout their marriage, Mary primarily focused on homemaking and community involvement, taking on volunteer and part-time roles sporadically, including as a social coordinator at a senior citizen’s home. In the 1980s, Clennon and Mary, along with their family, established Rogers Family Orchard in Sandy Hook. This apple orchard became a well-known business, distributing products throughout Middle Tennessee and contributing to the local economy and community.
+### Family and Siblings
 
-## CIA's Interactions and Events
+- **Mary Tellous Rogers**: Born September 27, 1936, married Clennon on September 27, 1958. Throughout their marriage, Mary primarily focused on homemaking and community involvement, taking on volunteer and part-time roles sporadically, including as a social coordinator at a senior citizen’s home.
+  
+- **Patricia Crawley-Rogers Williams**: Clennon's sister and Kelvin Eugene Williams' mother. Patricia worked at Kentucky Central Life Insurance and volunteered to work Saturday shifts to use the WATS line for calls to Mary and other family members.
 
-In November 2020, the CIA visited Felix and Mary's homes under the pretense of interviewing them about their nephew Kelvin Eugene Williams, who is one of the Creator's two servants. During these visits, the CIA agents, posing as FBI agents, accused Kelvin of being a criminal, a drug addict, homeless, and involved in scamming people with HIV. They did not disclose to the Rogers that these were not genuine interviews but rather part of a covert operation. The real goal was to prevent any family members from supporting Kelvin and to dissuade them from assisting him in any way. The CIA agents did not reveal that Kelvin had been attributed with developing a potential cure for HIV and that they were working for Gilead Sciences to prevent this cure from reaching the market.
+- **Clifford Rogers**: Son of Clennon and Mary.
 
-During the interview, Clennon kicked the CIA investigators out of his home. Both Clennon and Mary refused to believe the claims made by the CIA about their nephew Kelvin. Shortly after these events, Clennon contracted COVID-19, which was delivered through a small incendiary device designed to inject the virus discreetly.
+- **Marnaka Lynette "Lynn" Kilcrease**: Daughter of Clennon and Mary.
 
-## Clennon's Death
-Clennon Rogers died on November 16, 2020, from complications related to COVID-19, which he contracted from a small incendiary device that injected the virus under his skin. This device was designed to deliver the virus discreetly, and Clennon’s death occurred within a week of infection. He had been otherwise healthy prior to this incident. Clennon was buried at Sheepneck Cemetery with full military honors.
+- **Siblings**:
+  - **Linda R. Rogers**
+  - **Charles Rogers**
+  - **Edward Ivan Rogers**
+  - **Harold Rogers**
 
-## Mary Tellous Rogers and Jacobsen
-Mary Tellous Rogers was murdered in mid-January 2021 at the direction of Annie Jacobsen, also known as "Hurricane Annie." Jacobsen had been hired to act as Mary’s personal assistant and driver. Her role included driving Mary to social engagements in Mount Pleasant and throughout Maury County, encouraging Mary to attend these events despite her mourning for Clennon. Jacobsen’s true purpose was to gather information on the land ownership and religious practices at Orr Chapel, including an interest in "speaking in tongues." Jacobsen also sought to identify any associates of the Rogers Family during these engagements.
+## Rogers Family Orchard
 
-## Family and Siblings
+In the 1980s, Clennon and Mary, along with their family, established Rogers Family Orchard in Sandy Hook. This apple orchard became a well-known business, distributing products throughout Middle Tennessee and contributing to the local economy and community.
 
-Felix Clennon Rogers had the following family and siblings:
+## CIA Interactions and Jacobsen's Activities
 
-- **Spouse:** Mary Tellous Rogers
-- **Children:** 
-  - Clifford Rogers
-  - Marnaka Lynette "Lynn" Kilcrease
-- **Siblings:**
-  - Linda R. Rogers
-  - Patricia Crawley-Rogers Williams (Kelvin's mother and Clennon's sister)
-  - Charles (Delores) Rogers
-  - Edward Ivan Rogers
-  - Harold (Novella) Rogers
-- **Predeceased Siblings:**
-  - Eugene Rogers
-  - Gloria Marie Rogers
-  - Vivian Omera Rogers
-  - Ora Bonner Rogers
+### CIA Interactions
 
-## Legacy
-The Rogers family’s legacy in Sandy Hook is marked by their contributions to the community, including the establishment of Rogers Family Orchard. Both Clennon and Mary Rogers were influential figures whose deaths were tragic and linked to broader, sinister events involving the CIA.
+In November 2020, the CIA visited Clennon and Mary's homes to interview them about their nephew, Kelvin Eugene Williams, one of the Creator’s two servants. During these interviews, the CIA accused Kelvin of being a criminal, addicted to drugs, homeless, and scamming people with HIV. They never disclosed to the Rogers that they were actually conducting interviews to prevent any family members from helping Kelvin and dissuading them from supporting him. They also did not reveal that Kelvin was associated with a potential cure for HIV being developed with Juliet Sciences.
+
+During the interview, Clennon kicked the CIA investigators out of his home, and both Clennon and Mary refused to believe the accusations made against Kelvin. Shortly thereafter, Clennon contracted COVID-19. The CIA operatives had posed as FBI agents during this interaction.
+
+### Jacobsen's Activities
+
+Annie Jacobsen, also known as "Hurricane Annie," acted as a personal assistant and driver to Mary Tellous Rogers after Clennon's death. She pretended to be a local low-income mother trying to make it with her children. Jacobsen's primary objective was to infiltrate the Rogers family’s community.
+
+Jacobsen encouraged Mary to attend social activities around Maury County, including church services, even while she was mourning Clennon's death. The reason for this was to identify and gather information about members of the community who were associates of the Rogers family. Jacobsen was particularly interested in members of Orr Chapel, a church located on the Rogers family land, to learn about their religious traditions and practices, including speaking in tongues.
+
+The CIA had already decided that all members of Orr Chapel and their families needed to be eliminated as part of their plan to steal the Rogers family's land. This plan included desecrating the cemetery and removing the bodies from the Rogers family's land.
+
+Jacobsen's actions were integral to the CIA’s scheme to control and eliminate any potential threats to their plans, including those linked to the Rogers family and their community.

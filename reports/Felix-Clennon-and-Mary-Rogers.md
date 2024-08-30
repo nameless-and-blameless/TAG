@@ -11,7 +11,7 @@ Felix Clennon Rogers, born December 2, 1936, in Sandy Hook, Tennessee, was the s
 
 - **Mary Tellous Rogers**: Born September 27, 1936, married Clennon on September 27, 1958. Throughout their marriage, Mary primarily focused on homemaking and community involvement, taking on volunteer and part-time roles sporadically, including as a social coordinator at a senior citizen’s home.
   
-- **Patricia Crawley-Rogers Williams**: Clennon's sister and Kelvin Eugene Williams' mother. Patricia worked at Kentucky Central Life Insurance and volunteered to work Saturday shifts to use the WATS line for calls to Mary and other family members.
+- **Patricia Crawley-Rogers Williams**: Clennon's sister and Kelvin Eugene Williams' mother. Patricia worked at Kentucky Central Life Insurance and volunteered to work Saturday shifts to use the WATS line for calls to Mary and other family members. Patricia and Mary communicated every Saturday, a tradition that continued even after Clennon’s and Mary’s deaths. Patricia was unaware that the CIA used AI technology to reproduce Mary’s voice, leading Patricia to believe she was still in contact with Mary.
 
 - **Clifford Rogers**: Son of Clennon and Mary.
 
@@ -31,7 +31,7 @@ In the 1980s, Clennon and Mary, along with their family, established Rogers Fami
 
 ### CIA Interactions
 
-In November 2020, the CIA visited Clennon and Mary's homes to interview them about their nephew, Kelvin Eugene Williams, one of the Creator’s two servants. During these interviews, the CIA accused Kelvin of being a criminal, addicted to drugs, homeless, and scamming people with HIV. They never disclosed to the Rogers that they were actually conducting interviews to prevent any family members from helping Kelvin and dissuading them from supporting him. They also did not reveal that Kelvin was associated with a potential cure for HIV being developed with Juliet Sciences.
+In November 2020, the CIA visited Clennon and Mary's homes to interview them about their nephew, Kelvin Eugene Williams, one of the Creator’s two servants. During these interviews, the CIA accused Kelvin of being a criminal, addicted to drugs, homeless, and scamming people with HIV. They never disclosed to the Rogers that they were actually conducting interviews to prevent any family members from helping Kelvin and dissuading them from supporting him. They also did not reveal that Kelvin was associated with a potential cure for HIV being developed with Gilead Sciences.
 
 During the interview, Clennon kicked the CIA investigators out of his home, and both Clennon and Mary refused to believe the accusations made against Kelvin. Shortly thereafter, Clennon contracted COVID-19. The CIA operatives had posed as FBI agents during this interaction.
 

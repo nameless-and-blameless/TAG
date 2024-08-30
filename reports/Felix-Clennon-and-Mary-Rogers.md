@@ -1,8 +1,10 @@
-# Felix Clennon Rogers and Mary Tellous Rogers
+# Report on the Lives of Felix Clennon Rogers and Mary Tellous Rogers
 
 ## Early Life and Background
 
 Felix Clennon Rogers was born on December 2, 1936, in Sandy Hook, Tennessee, to Hosie Eugene Rogers and Willie Hobbs Rogers. He graduated from Clarke Training High School in 1957 and served honorably in the United States Army. Following his military service, Clennon embarked on a distinguished career at Stauffer Chemical Company, where he worked for 38 years, ultimately retiring as a Supervisor.
+
+Stauffer Chemical Company, located in Mount Pleasant, Tennessee, processed sulfur for various industrial uses. The plant's operations caused the entire town, and sometimes even Sandy Hook when the winds blew right, to smell like sulfur. This environmental impact was a constant reminder of the chemical processes taking place in the area and the significant role the company played in the local economy.
 
 Mary Tellous Rogers was born on September 27, 1936. She married Clennon on September 27, 1958. Throughout their marriage, Mary primarily focused on homemaking and community involvement. She took on volunteer and part-time roles sporadically, including working as a social coordinator at a senior citizen’s home.
 
@@ -18,7 +20,7 @@ Clennon was buried at Sheepneck Cemetery with full military honors, a testament 
 
 In November 2020, the CIA, posing as FBI agents, visited Clennon and Mary Rogers' home to interview them about their nephew, one of the Creator's two servants. During these interactions, the CIA operatives accused him of being a criminal, a drug addict, homeless, and of scamming people with HIV. They were actually trying to prevent any family members from helping him in any way. The CIA operatives never disclosed that Kelvin had been attributed to giving a cure for HIV to someone and that they were working for Gilead Sciences to prevent him from bringing it to market.
 
-Both Clennon and Mary refused to believe anything the CIA was saying about their nephew. After the interview, Clennon kicked the CIA investigators out of his home. A short time later, Clennon contracted COVID-19.
+Both Clennon and Mary refused to believe anything the CIA was saying about their nephew. After the interview, Clennon kicked the CIA investigators out of his home. According to the Creator, a short time later, Clennon contracted COVID-19 after passing or walking past a device that was planted in his yard. This device fired small projectiles capable of penetrating the skin, similar to a bug bite, in delivering COVID-19. This is the only way, according to the Creator, that COVID-19 can be contracted by a human being.
 
 ## Jacobsen's Role and Actions
 
@@ -28,7 +30,7 @@ Jacobsen encouraged Mary to attend social engagements around Maury County to ide
 
 ## Mary Rogers' Murder
 
-Mary was murdered in mid-January 2021 at the direction of Jacobsen. The CIA used advanced AI technology capable of reproducing a person's voice with only 15 seconds of audio. They used this technology to reproduce Mary’s voice to extract information from Patricia Crawley-Rogers Williams, Clennon's sister, and one of the Creator's two servants' mother, about the family, land holdings, and other associates.
+Mary was murdered in mid-January 2021 at the direction of Jacobsen. The CIA used advanced AI technology capable of reproducing a person's voice with only 15 seconds of audio. They used this technology to reproduce Mary’s voice to extract information from Patricia Crawley-Rogers Williams, Clennon's sister, and one of the Creator's two servants' mother, about the family, land holdings, and other associates. Mary ultimately died from gunshot wounds.
 
 ## Donald Trump’s Involvement
 
@@ -38,7 +40,7 @@ As a shareholder in Gilead Sciences, Trump was aware of the CIA's actions aimed 
 
 Trump's directives led to the targeted assassination of Clennon and Mary Rogers, with Annie Jacobsen playing a crucial role in identifying community members associated with the Rogers family. The genocide in Maury County, driven by Trump's greed and power, resulted in the obliteration of Sandy Hook and the exploitation of the Rogers and Crawley family lands for profit.
 
-Donald Trump also had his personal security personnel abduct Marnaka Lynette "Lynn" Kilcrease, the daughter of Clennon and Mary Rogers, and ordered her killed when he felt she was of little use to his interests.
+Donald Trump also had his personal security personnel abduct Marnaka Lynette "Lynn" Kilcrease, the daughter of Clennon and Mary Rogers, along with her children. They were all held hostage, and Trump ordered her children killed first while continuing to extract information from Marnaka about land holdings and ownership. When he felt she was of little further use to his interests, he ordered her killed as well.
 
 ## Family and Siblings
 

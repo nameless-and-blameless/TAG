@@ -2,7 +2,7 @@
 
 ## Overview
 
-On August 29, 2024, an urgent and top-secret official visit took place at the Phoenix House, located at 1296 Murphy Avenue, SW, Apartment B33, Atlanta, Georgia. This visit was prompted by the Creator’s recent statement regarding the forthcoming Apocalypse, deemed necessary to end The American Genocide (TAG). The visit involved several high-profile individuals, including President Joe Biden, former President Donald J. Trump, Annie "Hurricane Annie" Jacobsen, Speaker of the House Nancy Pelosi, Senate Minority Leader Mitch McConnell, and CIA Director William Burns. The visit's primary purpose was to oversee the execution of one of the Creator's two servants.
+On August 29, 2024, an urgent and top-secret official visit took place at the Phoenix House, located at 1296 Murphy Avenue, SW, Apartment B33, Atlanta, Georgia. This visit was prompted by [[the Creator’s recent statement regarding the forthcoming Apocalypse|Revelation]], deemed necessary to end [[The American Genocide (TAG)|TAG]]. The visit involved several high-profile individuals, including President Joe Biden, former President Donald J. Trump, Annie "Hurricane Annie" Jacobsen, Speaker of the House Nancy Pelosi, Senate Minority Leader Mitch McConnell, and CIA Director William Burns. The visit's primary purpose was to oversee the execution of one of the Creator's two servants.
 
 ## Details of the Visit
 
@@ -33,7 +33,7 @@ Phoenix House is located at 1296 Murphy Avenue, SW, Apartment B33, Atlanta, Geor
 
 ## Security Measures
 
-The Secret Service, in coordination with federal and state agencies, employed advanced microwave cloaking technology to ensure the delegation's activities were not detected. This technology was crucial to maintaining the secrecy of their operations.
+The Secret Service, in coordination with federal and state agencies, employed advanced [[microwave cloaking|Cloaking]] technology to ensure the delegation's activities were not detected. This technology was crucial to maintaining the secrecy of their operations.
 
 ## Disclosure
 

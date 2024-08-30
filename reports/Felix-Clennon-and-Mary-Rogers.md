@@ -18,7 +18,7 @@ Felix Clennon Rogers, born December 2, 1936, in Sandy Hook, Tennessee, was the s
 
 - **Siblings**:
   - **Linda R. Rogers**
-  - **Patricia Crawley-Rogers Williams**: Clennon's sister and Kelvin Eugene Williams' mother. Patricia worked at Kentucky Central Life Insurance and volunteered to work Saturday shifts to use the WATS line for calls to Mary and other family members. Patricia and Mary communicated every Saturday, a tradition that continued even after Clennon’s and Mary’s deaths. Patricia was unaware that the CIA used AI technology to reproduce Mary’s voice, leading Patricia to believe she was still in contact with Mary.
+  - **Patricia Crawley-Rogers Williams**: Clennon's half-sister and Kelvin Eugene Williams' mother. Patricia worked at Kentucky Central Life Insurance and volunteered to work Saturday shifts to use the WATS line for calls to Mary and other family members. Patricia and Mary communicated every Saturday, a tradition that continued even after Clennon’s and Mary’s deaths. Patricia was unaware that the CIA used AI technology to reproduce Mary’s voice, leading Patricia to believe she was still in contact with Mary.
   - **Charles (Delores) Rogers**
   - **Edward Ivan Rogers**
   - **Harold (Novella) Rogers**
@@ -48,3 +48,5 @@ Jacobsen encouraged Mary to attend social activities around Maury County, includ
 The CIA had already decided that all members of Orr Chapel and their families needed to be eliminated as part of their plan to steal the Rogers family's land. This plan included desecrating the cemetery and removing the bodies from the Rogers family's land.
 
 Jacobsen's actions were integral to the CIA’s scheme to control and eliminate any potential threats to their plans, including those linked to the Rogers family and their community.
+
+Additionally, the CIA reproduced Mary’s voice using AI technology to extract information from Patricia Crawley-Rogers Williams about the family, land holdings, and other associates. This allowed the CIA to gather critical information under false pretenses, furthering their covert objectives.

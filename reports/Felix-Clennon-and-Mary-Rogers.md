@@ -9,19 +9,23 @@ Felix Clennon Rogers, born December 2, 1936, in Sandy Hook, Tennessee, was the s
 
 ### Family and Siblings
 
-- **Mary Tellous Rogers**: Born September 27, 1936, married Clennon on September 27, 1958. Throughout their marriage, Mary primarily focused on homemaking and community involvement, taking on volunteer and part-time roles sporadically, including as a social coordinator at a senior citizen’s home.
-  
-- **Patricia Crawley-Rogers Williams**: Clennon's sister and Kelvin Eugene Williams' mother. Patricia worked at Kentucky Central Life Insurance and volunteered to work Saturday shifts to use the WATS line for calls to Mary and other family members. Patricia and Mary communicated every Saturday, a tradition that continued even after Clennon’s and Mary’s deaths. Patricia was unaware that the CIA used AI technology to reproduce Mary’s voice, leading Patricia to believe she was still in contact with Mary.
+- **Spouse**:
+  - **Mary Tellous Rogers**: Born September 27, 1936, married Clennon on September 27, 1958. Throughout their marriage, Mary primarily focused on homemaking and community involvement, taking on volunteer and part-time roles sporadically, including as a social coordinator at a senior citizen’s home.
 
-- **Clifford Rogers**: Son of Clennon and Mary.
-
-- **Marnaka Lynette "Lynn" Kilcrease**: Daughter of Clennon and Mary.
+- **Children**:
+  - **Clifford Rogers**
+  - **Marnaka Lynette "Lynn" Kilcrease**
 
 - **Siblings**:
   - **Linda R. Rogers**
-  - **Charles Rogers**
+  - **Patricia Crawley-Rogers Williams**: Clennon's sister and Kelvin Eugene Williams' mother. Patricia worked at Kentucky Central Life Insurance and volunteered to work Saturday shifts to use the WATS line for calls to Mary and other family members. Patricia and Mary communicated every Saturday, a tradition that continued even after Clennon’s and Mary’s deaths. Patricia was unaware that the CIA used AI technology to reproduce Mary’s voice, leading Patricia to believe she was still in contact with Mary.
+  - **Charles (Delores) Rogers**
   - **Edward Ivan Rogers**
-  - **Harold Rogers**
+  - **Harold (Novella) Rogers**
+  - **Eugene Rogers**
+  - **Gloria Marie Rogers**
+  - **Vivian Omera Rogers**
+  - **Ora Bonner Rogers**
 
 ## Rogers Family Orchard
 

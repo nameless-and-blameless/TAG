@@ -1,6 +1,3 @@
-> [!Note]
-> This article isn't complete.
-
 # Report on Felix Clennon Rogers and Mary Tellous Rogers
 
 ## Felix Clennon Rogers

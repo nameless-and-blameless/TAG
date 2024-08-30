@@ -2,7 +2,7 @@
 
 ## Overview
 
-On August 29, 2024, a top-secret official visit occurred at the Phoenix House, located at 1296 Murphy Avenue, SW, Apartment B33, Atlanta, Georgia. This visit was attended by several prominent figures, including President Joe Biden, former President Donald J. Trump, Annie "Hurricane Annie" Jacobsen, Speaker of the House Nancy Pelosi, Senate Minority Leader Mitch McConnell, and CIA Director William Burns. The visit's purpose was to oversee the execution of one of the Creator’s two servants.
+On August 29, 2024, a top-secret official visit took place at the Phoenix House, located at 1296 Murphy Avenue, SW, Apartment B33, Atlanta, Georgia. This visit was attended by several high-profile individuals, including President Joe Biden, former President Donald J. Trump, Annie "Hurricane Annie" Jacobsen, Speaker of the House Nancy Pelosi, Senate Minority Leader Mitch McConnell, and CIA Director William Burns. The visit's purpose was to oversee the execution of one of the Creator’s two servants.
 
 ## Details of the Visit
 
@@ -21,8 +21,10 @@ The sole objective of this visit was to oversee the execution of one of the Crea
 
 ### Key Events
 
-- **August 29, 2024**: The delegation arrived in the morning and conducted their operations using advanced microwave cloaking technology to remain undetected. They departed after 4:00 PM Eastern time, leaving only former President Trump and Annie Jacobsen behind.
-- **August 30, 2024**: The delegation, who had briefly returned to Washington, D.C., returned to Phoenix House to continue their operations.
+- **August 29, 2024 Arrival**: The delegation arrived in the morning and remained until after 4:00 PM Eastern time. Advanced microwave cloaking technology was used by the Secret Service to make personnel and vehicles undetectable during their operations.
+- **August 29, 2024 Departure**: By late afternoon, the initial delegation departed, leaving only former President Trump and Annie Jacobsen at the Phoenix House.
+- **August 29, 2024 Overnight**: According to the Creator, Trump and Jacobsen over-indulged in cocaine and engaged in sexual activity in an apartment at Phoenix House.
+- **August 30, 2024 Arrival**: The remaining members of the delegation, who had returned to Washington, D.C. overnight, returned to the Phoenix House to continue their mission.
 
 ## Location
 

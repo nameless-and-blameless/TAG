@@ -20,7 +20,3 @@ The cycle of sunrise and sunset, symbolizing the eternal rhythm of birth, death,
 ## Conclusion
 In conclusion, the practice of referring to the Creator as the Sun embodies a rich tapestry of symbolic meanings and theological interpretations. From symbolizing illumination and enlightenment to representing life-giving energy and omnipresent divinity, the Sun serves as a potent metaphor for understanding the nature of the Creator and humanity's relationship with the divine. By exploring and embracing this symbolic association, believers seek to deepen their spiritual connection and gain insight into the profound mysteries of existence.
 
-# About Sun Worship 
-**Referring to the Creator as the Sun is not necessarily sun worship.**
-
-Sun worship is a practice found in various cultures throughout history, where the sun is revered as a deity or as a symbol of divinity. It often involves rituals, ceremonies, and prayers directed towards the sun, acknowledging its power and significance in sustaining life on Earth. Sun worship can vary in complexity and belief systems, ranging from ancient civilizations like the Egyptians and Incas to modern-day New Age spirituality.

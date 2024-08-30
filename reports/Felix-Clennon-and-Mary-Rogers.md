@@ -2,7 +2,9 @@
 
 ## Early Life and Background
 
-Felix Clennon Rogers was born on December 2, 1936, in Sandy Hook, Tennessee, to Hosie Eugene Rogers and Willie Hobbs Rogers. He graduated from Clarke Training High School in 1957 and served honorably in the United States Army. Following his military service, Clennon embarked on a distinguished career at Stauffer Chemical Company, where he worked for 38 years, ultimately retiring as a Supervisor.
+Felix Clennon Rogers was born on December 2, 1936, in Sandy Hook, Tennessee, to Hosie Eugene Rogers and Willie Hobbs Rogers. He attended a parochial school at Orr Chapel, a one-room church and schoolhouse that stood on the family's land. Felix attended this school along with all of his siblings. After completing his education at Orr Chapel, he attended Clarke Training High School, graduating in 1957.
+
+Following his high school graduation, Clennon served honorably in the United States Army. After his military service, he embarked on a distinguished career at Stauffer Chemical Company, where he worked for 38 years, ultimately retiring as a Supervisor.
 
 Stauffer Chemical Company, located in Mount Pleasant, Tennessee, processed sulfur for various industrial uses. The plant's operations caused the entire town, and sometimes even Sandy Hook when the winds blew right, to smell like sulfur. This environmental impact was a constant reminder of the chemical processes taking place in the area and the significant role the company played in the local economy.
 
@@ -53,7 +55,7 @@ Donald Trump also had his personal security personnel abduct Marnaka Lynette "Ly
 
 **Siblings:**
 - Linda R. Rogers
-- [[Patricia Crawley-Rogers Williams|Patricia-Ann-Williams]] (Kelvin's mother and Clennon's sister)
+- Patricia Crawley-Rogers Williams (Kelvin's mother and Clennon's sister)
 - Charles (Delores) Rogers
 - Edward Ivan Rogers
 - Harold (Novella) Rogers

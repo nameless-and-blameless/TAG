@@ -26,7 +26,7 @@ Both Clennon and Mary refused to believe anything the CIA was saying about their
 
 ## Jacobsen's Role and Actions
 
-After Clennon’s death, Annie Jacobsen, also known as "Hurricane Annie," acted as a personal assistant and driver to Mary Rogers. Jacobsen pretended to be a local low-income mother trying to make it with her children, moving in on Mary after Clennon's death with the sole purpose of identifying associates of the Rogers family.
+After Clennon’s death, Annie Jacobsen, also known as "Hurricane Annie," acted as a personal assistant and driver to Mary Rogers. Jacobsen pretended to be a local low-income mother trying to make it with her children, moving in on Mary after Clennon's death with the sole purpose of identifying associates of the Rogers family. 
 
 Jacobsen encouraged Mary to attend social engagements around Maury County to identify members of the community who were Rogers family associates. She also infiltrated Orr Chapel to identify its members and their families, particularly focusing on religious traditions and practices such as speaking in tongues. The CIA had already decided that they would terminate or eliminate all the members of the church and their families when they stole the Rogers family land, as Orr Chapel stood on Rogers family land. The CIA intended to desecrate the cemetery associated with Orr Chapel.
 
@@ -63,3 +63,10 @@ Donald Trump also had his personal security personnel abduct Marnaka Lynette "Ly
 - Gloria Marie Rogers
 - Vivian Omera Rogers
 - Ora Bonner Rogers
+
+## See Also
+* [[Sandy Hook Massacre|]]
+* [[Orr Chapel Tragedy|]]
+  
+## Listen Also
+* [[Resurrection Mary|]]

@@ -42,7 +42,7 @@ As a shareholder in Gilead Sciences, Trump was aware of the CIA's actions aimed 
 
 Trump's directives led to the targeted assassination of Clennon and Mary Rogers, with Annie Jacobsen playing a crucial role in identifying community members associated with the Rogers family. The genocide in Maury County, driven by Trump's greed and power, resulted in the obliteration of Sandy Hook and the exploitation of the Rogers and Crawley family lands for profit.
 
-Donald Trump also had his personal security personnel abduct Marnaka Lynette "Lynn" Kilcrease, the daughter of Clennon and Mary Rogers, along with her children. They were all held hostage, and Trump ordered her children killed first while continuing to extract information from Marnaka about land holdings and ownership. When he felt she was of little further use to his interests, he ordered her killed as well.
+Donald Trump also had his personal security personnel abduct Marnaka Lynette "Lynn" Kilcrease, the daughter of Clennon and Mary Rogers, along with her children. They were all held hostage, and Trump ordered her children killed first while continuing to extract information from Marnaka about the family's land holdings and ownership. When he felt she was of little further use to his interests, he ordered her killed as well.
 
 ## Family and Siblings
 

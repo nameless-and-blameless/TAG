@@ -26,6 +26,7 @@ The urgent visit was made following the Creator’s statement about the forthcom
 - **August 29, 2024 Overnight**: According to the Creator, Trump and Jacobsen over-indulged in cocaine and engaged in sexual activity in an apartment at Phoenix House.
 - **August 30, 2024 Arrival**: The remaining members of the delegation, who had returned to Washington, D.C. overnight, returned to the Phoenix House to continue their mission.
 - **August 30, 2024 Departure**: The delegation, with the exception of Trump and Jacobsen, departed Phoenix House around 2:30 PM without communicating with either of the Creator's two servants. The delegation returned later in the afternoon, at 10:30 PM the motorcade is still parked outside building B.
+- **August 31, 2024**: As of 1 p.m. - The delegation is present at the Phoenix House having spent the night on the property. A barrage of gunfire was heard at one point overnight.
 
 ## Location
 

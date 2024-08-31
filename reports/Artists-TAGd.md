@@ -104,6 +104,11 @@ Lyricists should not be persecuted for their works, as their creations often ref
   - **Reason for Being Targeted:** Association with His servants
   - **Status:** Some murdered, Endangered
 
+- **Katt Williams"**
+  - **Occupation:** Comedian 
+  - **Reason for Being Targeted:** Various stand-up routines.
+  - **Status:**  Murdered
+
 ## Endangered Artists
 - **RuPaul**
   - **Occupation:** Performer
@@ -286,8 +291,18 @@ Lyricists should not be persecuted for their works, as their creations often ref
 - **John Fogerty"**
   - **Occupation:** Songwriter
   - **Reason for Being Targeted:** "Proud Mary" (for both CCR and Tina Turner)
-  - **Status:** Endangered 
+  - **Status:** Endangered
 
+- **Adele"**
+  - **Occupation:** Singer 
+  - **Reason for Being Targeted:** Heard by CIA at Phoenix House 
+  - **Status:**  Endangered 
+
+- **Mystikal"**
+  - **Occupation:** Rapper
+  - **Reason for Being Targeted:** Heard by CIA at Phoenix House
+  - **Status:**
+    
 - **The Color Purple Cast (Entire)**
   - **Occupation:** Actors/Actresses
   - **Reason for Being Targeted:** Especially in the church scene

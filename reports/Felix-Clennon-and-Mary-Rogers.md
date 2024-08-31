@@ -2,7 +2,7 @@
 
 ## Early Life and Background
 
-Felix Clennon Rogers was born on December 2, 1936, in Sandy Hook, Tennessee, to Hosie Eugene Rogers and Willie Hobbs Rogers. He attended a parochial school at Orr Chapel, a one-room church and schoolhouse that stood on the family's land. Felix attended this school along with all of his siblings. After completing his education at Orr Chapel, he attended Clarke Training High School, graduating in 1957.
+Felix Clennon Rogers was born on December 2, 1936, in Sandy Hook (Mount Pleasant), Tennessee, to Hosie Eugene Rogers and Willie Hobbs Rogers. He attended a parochial school at Orr Chapel (8397 West Sheepneck Road, Sandy Hook, TN), a one-room church and schoolhouse that stood on the family's land. Felix attended this school along with all of his siblings. After completing his education at Orr Chapel, he attended Clarke Training High School, graduating in 1957.
 
 Following his high school graduation, Clennon served honorably in the United States Army. After his military service, he embarked on a distinguished career at Stauffer Chemical Company, where he worked for 38 years, ultimately retiring as a Supervisor.
 
@@ -16,7 +16,7 @@ In the 1980s, Clennon and Mary, along with their family, established the Rogers 
 
 Clennon was a dedicated deacon at New Hope Baptist Church and served as the President of both Orr Chapel and Sheepneck Cemeteries in Sandy Hook, along West Sheepneck Road. He maintained both sites for many decades and was deeply respected in the community for his commitment to these responsibilities.
 
-Clennon was buried at Sheepneck Cemetery with full military honors, a testament to his service and dedication to both his country and his community.
+Clennon was buried at Sheepneck Cemetery (8397 West Sheepneck Road, Sandy Hook, TN) with full military honors, a testament to his service and dedication to both his country and his community.
 
 ## CIA Interactions
 

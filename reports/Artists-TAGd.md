@@ -295,9 +295,14 @@ Lyricists should not be persecuted for their works, as their creations often ref
 
 - **Adele"**
   - **Occupation:** Singer 
-  - **Reason for Being Targeted:** Various stand-up routines.
+  - **Reason for Being Targeted:** Heard by CIA at Phoenix House 
   - **Status:**  Endangered 
 
+- **Mystikal"**
+  - **Occupation:** Rapper
+  - **Reason for Being Targeted:** Heard by CIA at Phoenix House
+  - **Status:**
+    
 - **The Color Purple Cast (Entire)**
   - **Occupation:** Actors/Actresses
   - **Reason for Being Targeted:** Especially in the church scene

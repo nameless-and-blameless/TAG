@@ -2,7 +2,7 @@
 
 ## Overview
 
-On August 29, 2024, an urgent and top-secret official visit took place at the Phoenix House, located at 1296 Murphy Avenue, SW, Apartment B33, Atlanta, Georgia. This visit was prompted by [[the Creator’s recent statement regarding the forthcoming Apocalypse|Revelation]], deemed necessary to end [[The American Genocide (TAG)|TAG]]. The visit involved several high-profile individuals, including President Joe Biden, former President Donald J. Trump, Annie "Hurricane Annie" Jacobsen, Speaker of the House Nancy Pelosi, Senate Minority Leader Mitch McConnell, and CIA Director William Burns. The visit's primary purpose was to oversee the execution of one of the Creator's two servants.
+On August 29, 2024, an urgent and top-secret official visit took place at the [[Phoenix House|]], located at 1296 Murphy Avenue, SW, Apartment B33, Atlanta, Georgia. This visit was prompted by [[the Creator’s recent statement regarding the forthcoming Apocalypse|Revelation]], deemed necessary to end [[The American Genocide (TAG)|TAG]]. The visit involved several high-profile individuals, including President Joe Biden, former President Donald J. Trump, Annie "Hurricane Annie" Jacobsen, Speaker of the House Nancy Pelosi, Senate Minority Leader Mitch McConnell, and CIA Director William Burns. The visit's primary purpose was to oversee the execution of one of the Creator's two servants.
 
 ## Details of the Visit
 

@@ -105,6 +105,7 @@ Trump's active involvement in [[The American Genocide|TAG]], including the use o
 ## References
 ### See Also
 * [[Phantom Funeral of Rev. Duke Stone|]]
+* [[Felix Clennon and Mary Rogers|]]
 * [[Your Mind For Rent|]]
 ### Listen Also
 * [[Miss Lady DJ|]]

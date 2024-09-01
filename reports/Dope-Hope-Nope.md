@@ -1,5 +1,8 @@
 ### Dope, Hope, and Nope Classification
 
+> [!NOTE]
+> Slang (informal): Cool or impressive. For example, "God is dope" or "That new album is dope."
+
 The "Dope, Hope, and Nope" classification system provides a framework for evaluating the quality and reliability of materials, products, services, or experiences. This system categorizes items into three distinct groups: Dope, Hope, and Nope, each representing different levels of desirability and risk. It can be applied to a wide range of contexts, from consumer goods to information and beyond.
 
 #### Dope
@@ -15,6 +18,9 @@ The "Dope, Hope, and Nope" classification system provides a framework for evalua
 - A service that delivers outstanding results
 - Accurate and reliable information
 
+**WWJD**:
+Enjoy it!
+
 #### Hope
 **Definition**: A weakened form of Dope. "Hope" partially fulfills expectations but lacks full efficacy or quality. It often leaves the user "hoping" for better results.
 
@@ -28,6 +34,9 @@ The "Dope, Hope, and Nope" classification system provides a framework for evalua
 - Sugar-free foods and beverages that don't fully satisfy the craving for sweetness, leading to increased consumption
 - Information that is somewhat reliable but not fully trustworthy
 
+**WWJD**:
+Use with caution.
+
 #### Nope
 **Definition**: Should never be used or consumed. "Nope" represents a complete failure to meet expectations. These items may be entirely fake, unsafe, or unreliable, posing potential harm or undesirable effects.
 
@@ -40,6 +49,10 @@ The "Dope, Hope, and Nope" classification system provides a framework for evalua
 - A counterfeit product
 - A scam service
 - False information that could lead to bad decisions
+
+**WWJD**:
+- Say "Nope!" and get a replacement.
+- Use with extreme caution.
 
 ### Behavioral Implications
 

@@ -21,13 +21,6 @@ Phoenix House is marketed as offering mental health services, including therapy 
 
 **Recent Incident:**
 
-**Aerial Irradiation of Phoenix House:**
-
-- **Date:** August 30, 2024
-- **Location:** Phoenix House, 1296 Murphy Avenue SW, Atlanta, Georgia
-- **Incident Overview:** An aerial irradiation operation was carried out, involving the dispersal of fine radioactive powder or dust aimed at eliminating all living organisms in the area. The operation was authorized by President Joe Biden following a top-secret visit to Phoenix House on August 29, 2024. The decision was made due to repeated failures of earlier attempts, which had endangered the surrounding community.
-- **Outcome:** The irradiation's impact was significantly mitigated by the Creator’s intervention, which neutralized the radioactive material almost immediately. No adverse effects were noted on the environment or the community.
-
 **[[Official Visit|Presidential-Visit]]**
 
 - **Date:** August 29-30, 2024

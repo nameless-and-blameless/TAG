@@ -24,7 +24,7 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 
 * Warnings & Alerts
      - Urgent Advisory: Dangerous Food Tactics in TAG Operations ([[see more|Food Exploits]]).
-     - The Creator has issued an urgent warning regarding 24/7, This, and Time brand cigarettes as they are designed to caused male sterilization for males after short term use. The use of 24/7 has caused permanent sterilization in one of His two servants in less than one year of use. Any users of these  brands are strongly urged to switch brands immediately. [[Read Warning|Cigarettes]]
+     - Urgent Warning: Extremely high male  sterilization risk from "24/7", "This" and "Time" brand cigarettes ([[see more|Cigarettes]]).
 
 > [!NOTE]
 > This wiki is part of a repository maintained by the Creator's servants as part of our mission to foster and protect life. Our missions are always ordered by the Creator, and since His servants only answer to Him, the laws of the state do not apply. Since the Magna Carta, predating the U.S. Constitution, our missions have been safeguarded by the principles of separation of church and state. The Creator's two servants are symbolically represented on the Ark of the Covenant and are known as the Cherubim in some religions and as angels in practically all religions. Thus, this is the work of our church.

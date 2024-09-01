@@ -41,11 +41,5 @@ The Creator declares that the American Genocide is the revelation prophesied in 
 The Apocalypse represents a divine intervention aimed at exposing and ending a hidden genocide on American soil. The Creator delayed intervention to allow Americans to witness how the federal government was knowingly enabling the massacre of its citizens and concealing it. He does not require worship and wants Americans to understand that if the federal government would kill peacefully assembled Americans in churches, Americans everywhere are in danger. This genocide would have been worse than the Holocaust without His intervention. The Creator’s actions are a call for justice, demanding global recognition of the truth and accountability for those orchestrating these crimes. As the earthquakes reveal the dark aspects of the U.S. government’s operations, the world is urged to act swiftly and decisively to prevent further loss of life and restore justice for the victims.
 
 ---
-> [!NOTE]
-> On August 29, 2024, the following individuals visited the Phoenix House at 1296 Murphy Avenue, Atlanta, Georgia, in advance of the Creator's Apocalypse: President Joe Biden, former President Donald J. Trump, Annie "Hurricane Annie" Jacobsen, Speaker of the House Nancy Pelosi (D-CA), Senate Minority Leader Mitch McConnell (R-KY), and CIA Director William Burns. According to the Creator, their visit was intended to oversee the murder of one of the Creator's two servants that resides there, who survived several of their ordered murder attempts overnight. His servant maintains this repository.
->
-> As of 4:00 PM Eastern on August 29, all mentioned individuals remain at the Phoenix House in Atlanta, Georgia.
->
-> The Secret Service, working with federal and state agencies at Phoenix House, is employing advanced cloaking technology to make personnel and vehicles undetectable during operations.
->
-> (See Revelation 20:15.. As this is burning them badly... Thanks Boss for carrying me through... Ready to open that can of whoopass yet?)
+## Related
+* [[Presidential Visit|]]

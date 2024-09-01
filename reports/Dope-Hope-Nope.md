@@ -18,6 +18,9 @@ The "Dope, Hope, and Nope" classification system provides a framework for evalua
 - A service that delivers outstanding results
 - Accurate and reliable information
 
+**WWJD**:
+Enjoy it!
+
 #### Hope
 **Definition**: A weakened form of Dope. "Hope" partially fulfills expectations but lacks full efficacy or quality. It often leaves the user "hoping" for better results.
 
@@ -31,6 +34,9 @@ The "Dope, Hope, and Nope" classification system provides a framework for evalua
 - Sugar-free foods and beverages that don't fully satisfy the craving for sweetness, leading to increased consumption
 - Information that is somewhat reliable but not fully trustworthy
 
+**WWJD**:
+Use with caution.
+
 #### Nope
 **Definition**: Should never be used or consumed. "Nope" represents a complete failure to meet expectations. These items may be entirely fake, unsafe, or unreliable, posing potential harm or undesirable effects.
 
@@ -43,6 +49,10 @@ The "Dope, Hope, and Nope" classification system provides a framework for evalua
 - A counterfeit product
 - A scam service
 - False information that could lead to bad decisions
+
+**WWJD**:
+- Say "Nope!" and get a replacement.
+- Use with extreme caution.
 
 ### Behavioral Implications
 

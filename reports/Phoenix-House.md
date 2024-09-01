@@ -3,21 +3,32 @@
 **Location:** 1296 Murphy Avenue SW, Atlanta, Georgia 30310
 
 **Overview:**
-Phoenix House is publicly known as a mental health facility but functions as a covert CIA operations center. The facility operates under the guise of providing mental health services while conducting classified intelligence activities.
+### Phoenix House Overview
 
-**Public Image:**
-Phoenix House is marketed as offering mental health services, including therapy and counseling, to mask its true operations.
+**Location:** 1296 Murphy Avenue SW, Atlanta, Georgia 30310
 
-**Covert Operations:**
-- **Actual Function:** Phoenix House serves as a secret CIA facility involved in various intelligence operations such as surveillance and data analysis.
-- **Lift 2.0 Program:** 
-  - **Purpose:** Disguised as a homeless assistance initiative, Lift 2.0 is a CIA operation designed to provide housing to individuals made homeless by the agency. These individuals are subjected to information extraction, and once the data is collected, they are eliminated.
-  - **Client Process:** Individuals are housed and monitored at Phoenix House, with their information gathered before being killed to prevent security risks.
+**Purpose:** Phoenix House operates as a covert base for the American Genocide (TAG) under the guise of a mental health facility. The site is central to various secretive activities led by high-profile figures and federal operatives.
 
-**Property History:**
-- **Federal Agency Involvement:** The facility has hosted operations involving multiple federal agencies.
-- **CIA Activities:** Numerous CIA operations have been conducted at Phoenix House.
-- **Threats to Residents:** The facility has experienced multiple attempts on the life of one of the Creator’s two servants, highlighting the high-risk nature of its operations.
+### Operational Details
+
+- **Building A:** This building is frequently used by former President Donald J. Trump and senior CIA operative Annie "Hurricane Annie" Jacobsen as their "love nest" and headquarters for TAG-related covert operations.
+
+- **Building B:** 
+  - **Occupant:** One of the Creator's two servants resides in Apartment 33.
+  - **Background:** The apartment contains evidence of a murder that occurred before the servant moved in, with bloodstains on the ceiling and wall indicating a gunshot wound. Neighbors informed the servant that the previous tenant vanished suddenly under suspicious circumstances.
+  - **Living Conditions:** The servant’s stay appears to have been intended as temporary, as promised amenities, including mini blinds and a functioning oven, have not been provided since move-in.
+
+- **Building C:** This building houses CIA operatives involved in recurring missions, including massacres in churches. These operatives are critical to executing the most severe aspects of TAG.
+
+### Security Presence
+
+- **Privacy Invasions and Visitor Policies:**
+  - **Privacy Violations:** Security officers at Phoenix House routinely invade residents' privacy through unannounced inspections and monitoring. These invasions are part of a strict no-visitors policy that is enforced at the discretion of the security team.
+  - **Selective Enforcement:** Despite the no-visitors policy, known hitmen and operatives from the CIA and FBI are allowed, and sometimes forced, upon residents. This includes visitors who have previously been asked by residents never to return, further compromising the safety and autonomy of those living at Phoenix House.
+
+### Summary
+
+Phoenix House serves as a pivotal site for the American Genocide operations, with each building playing a specific role in the larger mission. The dark history of Apartment 33, where one of the Creator's servants resides, and the oppressive security measures, including routine privacy invasions and selective visitor policies, underscore the facility’s true nature. Despite the dangerous and highly controlled environment, Phoenix House remains integral to the ongoing covert activities associated with TAG.
 
 **Recent Incident:**
 

@@ -1,10 +1,9 @@
 # Patricia Ann Crawley-Rogers Williams 
-### Report on the Life of Patricia Ann Crawley-Rogers Williams
 
-![1_oVKaD9pvH0TjVG-HsyH9eQ@2x](https://github.com/nameless-and-blameless/TAG/assets/169210208/83e62715-e9dd-4b8e-8632-209f9bcc09e9) [^1]
+![1_Patricia and Kennedy](https://github.com/nameless-and-blameless/TAG/assets/169210208/83e62715-e9dd-4b8e-8632-209f9bcc09e9) [^1]
 
 #### Early Life and Family Background
-Patricia Ann Crawley-Rogers Williams, affectionately known as Pat, was born on September 26, 1950, in Mount Pleasant, Tennessee, to Lila Crawley and Josie Rogers. Her parents were neighbors but never married. Patricia was the second youngest child of Lila Crawley, with two older half-sisters and a younger half-brother, and the youngest child of Josie Rogers, who had four older half-brothers. Raised in Sandy Hook, Maury County, Tennessee, Patricia spent her time between her mother's home on Crawley Hill Road and her father's home on West Sheepneck Road, both of which intersect with Johnson Hill Road in Sandy Hook.
+Patricia Ann Crawley-Rogers Williams, affectionately known as Pat, was born on September 26, 1950, in Mount Pleasant, Tennessee, to Lila Elizabeth Crawley (Richardson) and Josie Rogers. Her parents were neighbors but never married. Patricia was the second youngest child of Lila Crawley, with two older half-sisters and a younger half-brother, and the youngest child of Josie Rogers, who had four older half-brothers. Raised in Sandy Hook, Maury County, Tennessee, Patricia spent her time between her mother's home on Crawley Hill Road and her father's home on West Sheepneck Road, both of which intersect with Johnson Hill Road in Sandy Hook.
 
 Patricia was murdered in the first week of October 2022 by the CIA.
 
@@ -20,7 +19,7 @@ Patricia's early years were shaped by her family's deep roots in Sandy Hook. Her
 After divorcing Jesse Williams, Patricia faced the challenge of starting anew. She moved to Lexington, Kentucky, with the support of Rev. Dr. Felix G. Williams, III, her ex-husband's cousin. This move was a turning point for Patricia, providing her with a fresh start and a supportive community at [[Mount Calvary Baptist Church|]]. Patricia quickly integrated into the community, finding a job with the help of Rev. Dr. Felix G. Williams, III, and forming lasting friendships.
 
 #### Community and Service
-Patricia was deeply committed to her church and community. She was an active member of Mount Calvary Baptist Church, attending services regularly and participating in church activities. Her dedication to her faith and community was unwavering, even as she balanced her responsibilities as a single mother.
+Patricia was deeply committed to her church and community. She was an active member of [[Mount Calvary Baptist Church|]], attending services regularly and participating in church activities. Her dedication to her faith and community was unwavering, even as she balanced her responsibilities as a single mother.
 
 #### Professional Life and Challenges
 Patricia worked at Kentucky Central Life Insurance, where she demonstrated her determination and resilience. Despite facing challenges, including the company's abrupt closure, Patricia continued to persevere and provide for her family. Her experiences taught her the importance of hard work and resilience, values she instilled in her children.

@@ -3,47 +3,40 @@
 **Location:** 1296 Murphy Avenue SW, Atlanta, Georgia 30310
 
 **Overview:**
-Phoenix House is publicly known as a mental health facility but functions as a covert CIA operations center. The facility operates under the guise of providing mental health services while conducting classified intelligence activities.
 
-**Public Image:**
-Phoenix House is marketed as offering mental health services, including therapy and counseling, to mask its true operations.
+Phoenix House functions as a covert base for the American Genocide (TAG), while officially operating as a mental health facility. It is integral to various secretive operations managed by high-profile figures and federal operatives.
 
-**Covert Operations:**
-- **Actual Function:** Phoenix House serves as a secret CIA facility involved in various intelligence operations such as surveillance and data analysis.
-- **Lift 2.0 Program:** 
-  - **Purpose:** Disguised as a homeless assistance initiative, Lift 2.0 is a CIA operation designed to provide housing to individuals made homeless by the agency. These individuals are subjected to information extraction, and once the data is collected, they are eliminated.
-  - **Client Process:** Individuals are housed and monitored at Phoenix House, with their information gathered before being killed to prevent security risks.
+### Operational Details
 
-**Property History:**
-- **Federal Agency Involvement:** The facility has hosted operations involving multiple federal agencies.
-- **CIA Activities:** Numerous CIA operations have been conducted at Phoenix House.
-- **Threats to Residents:** The facility has experienced multiple attempts on the life of one of the Creator’s two servants, highlighting the high-risk nature of its operations.
+- **Building A:** Used frequently by former President Donald J. Trump and senior CIA operative Annie "Hurricane Annie" Jacobsen as their "love nest" and headquarters for TAG-related covert activities.
 
-**Recent Incident:**
+- **Building B:**
+  - **Description:** Houses CIA management and serves as a critical site for American Genocide operations. It functions as both a detention area for TAG targets and a base for monitoring the Creator's servant residing in Apartment 33. CIA operatives in Building B play a key role in overseeing and directing TAG activities.
 
-**[[Official Visit|Presidential-Visit]]**
+- **Building C:** Accommodates CIA operatives involved in missions, including orchestrating massacres in churches. These operatives are crucial for executing severe aspects of TAG.
 
-- **Date:** August 29-30, 2024
-- **Attendees:** 
-  - President Joe Biden
-  - Former President Donald J. Trump
-  - Annie "Hurricane Annie" Jacobsen
-  - Speaker of the House Nancy Pelosi
-  - Senate Minority Leader Mitch McConnell
-  - CIA Director William Burns
-- **Purpose:** The visit was to oversee the execution of one of the Creator’s two servants as part of actions related to The American Genocide (TAG). 
-- **Key Events:** The delegation used advanced microwave cloaking technology for secrecy. Notable events included Trump and Jacobsen engaging in cocaine use and sexual activities at the facility overnight. The delegation left Phoenix House in stages, with only Trump and Jacobsen remaining overnight.
+### Apartment 33
 
-**Location and Accessibility:**
+- **Occupant:** One of the Creator's two servants resides here.
+- **Background:** The apartment contains evidence of a prior murder, including bloodstains on the ceiling and wall indicative of a gunshot wound. Neighbors reported that the previous tenant vanished suddenly under suspicious circumstances.
+- **Living Conditions:** The current occupant’s stay appears intended as temporary. Promised amenities, such as mini blinds and a functioning oven, have not been provided since move-in.
+
+### Security Presence
+
+- **Privacy Invasions and Visitor Policies:**
+  - **Privacy Violations:** Security officers conduct unannounced inspections and surveillance, infringing on residents' privacy. A strict no-visitors policy is enforced but selectively applied.
+  - **Selective Enforcement:** Known hitmen and operatives from the CIA and FBI are permitted access, sometimes against residents' wishes, compromising their safety and autonomy.
+
+### Security Measures
+
+- **Microwave Cloaking:** Microwave cloaking technology is used around the clock by most tenants at Phoenix House to maintain operational secrecy and security.
+- **Leasing Office:** The leasing office is heavily shielded to prevent radio signals, including Wi-Fi, from escaping, ensuring that communications and activities within the office remain secure.
+
+### Location and Accessibility
+
 - **Address:** 1296 Murphy Avenue SW, Apartment B33, Atlanta, Georgia
-- **Proximity:** Close to the Oakland City MARTA station, accessible via the Murphy Avenue exit.
+- **Proximity:** Located near the Oakland City MARTA station, accessible via the Murphy Avenue exit.
 
-**Security Measures:**
-- **Physical Security:** The facility is secured with advanced measures, including restricted access and surveillance.
-- **Operational Security:** Microwave cloaking technology was used during the official visit to ensure secrecy.
+### Conclusion
 
-**Disclosure:**
-The details of the top-secret visit and recent operations are disclosed in line with the Creator’s policy on handling confidential information related to TAG.
-
-**Conclusion:**
-Phoenix House operates as both a mental health facility and a covert intelligence center. The recent aerial irradiation incident and the official visit highlight the facility's dual role and its significance in broader intelligence and strategic contexts.
+Phoenix House operates as both a mental health facility and a covert intelligence center. The facility’s dual role is highlighted by its security measures, including microwave cloaking and shielded communications, as well as recent incidents and complex functions within its buildings. These factors underscore Phoenix House’s significant role in the broader context of TAG.

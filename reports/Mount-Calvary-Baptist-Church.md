@@ -15,7 +15,7 @@ Mount Calvary Baptist Church is a historic African American church that was over
 ## Targeting
 Annie Jacobsen learned of the church in 2018 while utilizing the [[Hypnos Infiltration Tactic|]] on Kelvin Williams, his mother Patricia Ann Crawley-Rogers Williams and his younger sister, Katrina Renee Duvall-Torrain in their respective homes.
 
-Jacobsen targeted the church after the [[Sandy Hook Massacre|]] and the subsequent [[Orr Chapel Tragedy|]] out of fear that Kelvin would return to his church family to prove the CIA was impersonating members of his family through the CIA's [[hotel scheme|Hotels]]. Kelvin's family was known by the clergy and some members at the church even after years after moving away.
+Jacobsen targeted the church after the [[Sandy Hook Massacre|]] and the subsequent [[Orr Chapel Tragedy|]] out of fear that Kelvin would return to his church family to prove the CIA was impersonating members of his family through the CIA's [[phantom identity scheme|]]. Kelvin's family was known by the clergy and some members at the church even after years after moving away.
 
 ## Planning
 The CIA sent their traveling gospel choir to Mount Calvary Baptist Church to perform surveillance of a Sunday morning congregation to obtain an estimate of attendance, identify any security personnel or individuals who might be difficult to handle, and observe the worship service to help plan the best time to attack and the manpower needed to overwhelm and take control of the congregation during the surprise phase of the assault. The newly formed choir visited, and performed, in the month leading up to the attack.

@@ -20,7 +20,7 @@ Should the Commonwealth of Kentucky or other affected states fail to prosecute o
 
 ## **The Creator's Intervention: The Apocalypse Begins**
 
-The Creator has deemed it necessary to intervene directly to stop this genocide. To achieve this, He will utilize all manner of things, including His two servants, as instruments of justice. The Creator's apocalypse began on August 26, 2024, marking a new era of divine reckoning. This apocalypse includes both political and seismic earthquakes, shaking the very foundations of corrupt systems and exposing the hidden atrocities of TAG.
+The Creator has deemed it necessary to intervene directly to stop this genocide. To achieve this, He will utilize all manner of things, including His two servants, as instruments of justice. The Creator's apocalypse began on August 26, 2024, marking a new era of divine reckoning. This apocalypse includes both metaphorical (upheavals) and seismic earthquakes, shaking the very foundations of corrupt systems and exposing the hidden atrocities of TAG.
 
 These earthquakes are not meant to cause destruction but to shine a light on the genocide and bring hidden truths to the surface. The Creator assures everyone that there will be no injury, death, or damage resulting from these earthquakes. Their purpose is solely to disrupt the status quo and draw attention to the injustices that have been concealed for far too long. Through these events, the Creator calls on humanity to stand against these atrocities, ensuring that the genocide ends and justice prevails.
 

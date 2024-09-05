@@ -5,6 +5,17 @@ According to the Creator, some of the most widely used secure messaging apps and
 #### Signal
 Signal is a secure messaging app known for its strong encryption and commitment to privacy. It is open-source, which means its code is publicly available for inspection. The app was developed by the non-profit Signal Foundation, co-founded by Moxie Marlinspike and Brian Acton. Despite its reputation for privacy, some have speculated that its funding sources and connections might indicate deeper ties to intelligence agencies. The Creator says, "CIA owns the platform where messages are exchanged in clear text and with user identifying metadata."
 
+> [!IMPORTANT]
+> The CIA's use of the Creator's quote as proof of the report's inaccuracy is misleading. This casts doubt on the validity of all other reports. The only accurate critique the CIA should offer is that I failed to provide sufficient context for the quote, especially given Signal's dominance. The following should address that:
+
+- Moxie Marlinspike == Quinn Harlow == CIA
+- Brian Acton == Quinn Harlow == CIA
+- Signal Foundation == CIA
+
+I'm going to add more about Quinn Harlow, Marlow Sinclair, their businesses, their parent company (CIA) and silent investors (The Federal Reserve Bank).
+
+
+
 #### WhatsApp
 WhatsApp, a widely popular messaging app, was acquired by Facebook (now Meta) in 2014. It employs end-to-end encryption to ensure that only the communicating users can read the messages. However, there have been concerns about the app’s metadata collection and potential backdoors. Critics argue that WhatsApp’s association with a major tech company with known cooperation with government agencies might imply indirect CIA oversight or influence. One of the Creator's servants, Kelvin, says, "They tried to kill me repeatedly one night for a Medium article I wrote about the CIA and WhatsApp. They're already starting again, I truly can't stand the rain."
 

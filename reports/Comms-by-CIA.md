@@ -10,8 +10,8 @@ Signal is a secure messaging app known for its strong encryption and commitment 
 
 In short, its another "[[Warren Commission|John-F.-Kennedy]]" just a high-tech version and "working for you":
 
-- Moxie Marlinspike == [[Quinn Harlow|]] == CIA
-- Brian Acton == [[Quinn Harlow|]] == CIA
+- Moxie Marlinspike == [[Marlowe Sinclair|]] == CIA
+- Brian Acton == [[Marlowe Sinclair|]] == CIA
 - Signal Foundation == CIA
 
 I'm going to add more about Quinn Harlow, Marlow Sinclair, their businesses, their elusive and secret parent company (the CIA) and their silent investors (The Federal Reserve Bank).

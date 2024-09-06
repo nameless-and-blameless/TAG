@@ -61,7 +61,7 @@ Revelation 17:9-11 is interpreted in this context as follows:
 
 - **“One is, and the other has not yet come”**: This refers to the half-inch of observable length when Kelvin is heavily stimulated, indicating the remaining potential for size.
 
-- **“As for the beast that was and is not, it is an eighth but belongs to the seven, and it goes to destruction”**: This describes the subconscious entity in Kelvin’s body, Main. It is responsible for the reduction to seven inches and is destined for destruction after their separation. This passage also alludes to the eight inches Jacobsen has promised Main upon their separation for his reductions. The separation is the planned division of Main and Kelvin into two distinct bodies by the Creator.
+- **“As for the beast that was and is not, it is an eighth but belongs to the seven, and it goes to destruction”**: This describes the subconscious mind in Kelvin’s body, Main. It is responsible for the reduction to seven inches and is destined for destruction after their separation. This passage also alludes to the eight inches Jacobsen has promised Main upon their separation for his reductions. The separation is the planned division of Main and Kelvin into two distinct bodies by the Creator.
 
 ## 5. Conclusion
 

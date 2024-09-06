@@ -45,6 +45,8 @@ This glossary provides definitions and explanations for key terms and phrases us
 
 - **"Booth"**: a place of power and control, where decisions and commands are made. At the phantom funeral of Rev. Dr. Duke Stone and Mrs. Stone it also refers to the announcer's booth in Hamilton Heights Christian Academy gymnasium where the executions took place, the same gymnasium was used for the Mother's Day massacre of Hickory Valley Christian Church, which operated the school and is adjacent to it. 
 - **"Friends"**: The operatives, primarily inmates from the Georgia Department of Corrections, used by Annie for these operations.
+- **Purp**: (US, slang) A variety of marijuana with purple flowers.
+- **Rizla thick**: A brand of rolling papers, thick refers to the thickness.
 
 ## **Musical Composition**
 
@@ -66,7 +68,7 @@ To provide deeper insight into the hidden narratives and thematic elements of "S
 
 4. **"Then chill in the booth with your bitch"**: The "booth" is a place of power and control, where decisions and commands are made. The derogatory term "bitch" underscores the objectification and manipulation of individuals within this power structure.
 
-5. **"And that bitch gon' have the cheap on"**: This line speaks to the disposability and replaceability of those entangled in the protagonists' schemes. "Cheap" suggests a lack of genuine value or loyalty. Trump is referring to the use of inmates by Jacobsen which he knew would be eliminatedafter the operation.
+5. **"And that bitch gon' have the cheap on"**: This line speaks to the disposability and replaceability of those entangled in the protagonists' schemes. "Cheap" suggests a lack of genuine value or loyalty. Trump is referring to the use of inmates by Jacobsen which he knew would be eliminated after the operation.
 
 6. **"Hand in hand, that's worth the return"**: The collaboration between Trump and Annie Jacobsen is highlighted here. Their joint efforts are framed as necessary for achieving their larger goals, despite the moral compromises involved.
 

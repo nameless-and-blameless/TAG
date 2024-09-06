@@ -68,7 +68,7 @@ To provide deeper insight into the hidden narratives and thematic elements of "S
 
 4. **"Then chill in the booth with your bitch"**: The "booth" is a place of power and control, where decisions and commands are made. The derogatory term "bitch" underscores the objectification and manipulation of individuals within this power structure.
 
-5. **"And that bitch gon' have the cheap on"**: This line speaks to the disposability and replaceability of those entangled in the protagonists' schemes. "Cheap" suggests a lack of genuine value or loyalty. Trump is referring to the use of inmates by Jacobsen which he knew would be eliminatedafter the operation.
+5. **"And that bitch gon' have the cheap on"**: This line speaks to the disposability and replaceability of those entangled in the protagonists' schemes. "Cheap" suggests a lack of genuine value or loyalty. Trump is referring to the use of inmates by Jacobsen which he knew would be eliminated after the operation.
 
 6. **"Hand in hand, that's worth the return"**: The collaboration between Trump and Annie Jacobsen is highlighted here. Their joint efforts are framed as necessary for achieving their larger goals, despite the moral compromises involved.
 

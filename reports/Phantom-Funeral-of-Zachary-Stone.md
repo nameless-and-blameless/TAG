@@ -9,8 +9,7 @@ On August 23, 2024, a [[Phantom Funeral|]] was held for Zachary D. Stone at [[Hi
 
 #### Background
 
-- **Zachary D. Stone**: An individual with political connections, including ties to figures such as Rev. Dr. Duke Stone, the retired pastor of Hickory Valley Christian Church. Rev. Stone and his wife were victims of the Mother's Day massacre at the church.
-- **Rev. Dr. Duke Stone**: A prominent figure with connections to Zachary D. Stone, who was the retired pastor of Hickory Valley Christian Church. The church had previously been targeted in a massacre on May 12, 2024, as part of the CIA’s broader operations under The American Genocide (TAG).
+- **Zachary D. Stone**: A friend and former co-worker of one of the Creator's two servants when he lived in Chattanooga, who began a career in politics working as an assistant to former Senator Bob Corker.
 
 #### Planning and Execution
 

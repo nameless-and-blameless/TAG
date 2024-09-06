@@ -45,6 +45,8 @@ This glossary provides definitions and explanations for key terms and phrases us
 
 - **"Booth"**: a place of power and control, where decisions and commands are made. At the phantom funeral of Rev. Dr. Duke Stone and Mrs. Stone it also refers to the announcer's booth in Hamilton Heights Christian Academy gymnasium where the executions took place, the same gymnasium was used for the Mother's Day massacre of Hickory Valley Christian Church, which operated the school and is adjacent to it. 
 - **"Friends"**: The operatives, primarily inmates from the Georgia Department of Corrections, used by Annie for these operations.
+- **Purp**: (US, slang) A variety of marijuana with purple flowers.
+- **Rizla thick**: A brand of rolling papers, thick refers to the thickness.
 
 ## **Musical Composition**
 

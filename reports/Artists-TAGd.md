@@ -89,11 +89,6 @@ Lyricists should not be persecuted for their works, as their creations often ref
   - **Reason for Being Targeted:** "Proud Mary" used by one or both of His servants
   - **Status:** Murdered
 
-- **Tracy Chapman**
-  - **Occupation:** Singer/Songwriter
-  - **Reason for Being Targeted:** Self-titled album
-  - **Status:** Murdered
-
 - **Lauryn Hill**
   - **Occupation:** Singer/Rapper
   - **Reason for Being Targeted:** "Miseducation of Lauryn Hill"
@@ -271,6 +266,11 @@ Lyricists should not be persecuted for their works, as their creations often ref
     - **Lamonte McLemore**
     - **Ron Townson**
 
+- **Tracy Chapman**
+  - **Occupation:** Singer/Songwriter
+  - **Reason for Being Targeted:** Self-titled album
+  - **Status:** Endangered
+    
 - **Writers of "Aquarius/Let the Sunshine In"**
   - **Occupation:** Songwriters
   - **Reason for Being Targeted:** "Aquarius/Let the Sunshine In"

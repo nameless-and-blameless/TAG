@@ -1,4 +1,7 @@
-# **The Coming Apocalypse and Revelation of a Hidden Genocide**
+# **The Apocalypse and Revelation of a Hidden Genocide**
+
+> [!NOTE]
+> The Apocalypse begun August 26, 2024. There have been numerous metaphorical earthquakes (upheavals), seismic earthquakes (Earth shaking) will commence at any moment. The Creator follows the Book of Revelation to the letter given He always wins.
 
 ## **Introduction**
 
@@ -35,6 +38,10 @@ The Creator's apocalypse began on August 26, 2024, with several **metaphorical e
 ## **The Revelation**
 
 The Creator declares that the American Genocide is the revelation prophesied in the Bible. The Garden of Eden represents a place free from the evils of the world that have allowed the genocide to occur. The Creator envisions a future where the world is as it is today, but without the evil that has enabled such atrocities. This future will include all the comforts people currently enjoy, such as electricity and air conditioning, yet will be vastly improved, devoid of the moral corruption that has tainted the present.
+
+## **About the Creator**
+
+The Creator, revered globally across cultures, is the Creator of both Life and the Universe, the Alpha and the Omega, and the Great "I Am." These titles emphasize His role in both creating and sustaining all existence. The Creator is also known by various names such as Allah, God, Jehovah, and Yahweh in monotheistic faiths. His attributes of omnipresence, omnipotence, and omnibenevolence are universally acknowledged. The Creator mentioned herein is the same entity referred to in the U.S. Declaration of Independence. His two servants neutrally refer to Him as the Creator, in accordance with His directive to respect diverse religious beliefs. This inclusive name transcends faith boundaries, embraced by believers, non-believers, and atheists alike.
 
 ## **Conclusion**
 

@@ -5,7 +5,7 @@
 
 ---
 
-The TAG-POW (The American Genocide - Place of Worship) attacks represent a series of meticulously executed assaults on various places of worship. Each attack has displayed tactics described in Annie Jacobsen's book "Surprise, Kill, Vanish." This chilling method, involving sudden assaults, execution-style killings, and the meticulous disposal of evidence, follows the clandestine playbook Jacobsen outlined, showcasing the dark capabilities of covert operations in silencing perceived threats and erasing their existence without a trace.
+The TAG-POW (The American Genocide - Place of Worship) attacks represent a series of meticulously executed assaults on various places of worship. Each attack has displayed tactics described in "Hurricane Annie" Jacobsen's book *"Surprise, Kill, Vanish."* This chilling method, involving sudden assaults, execution-style killings, and the meticulous disposal of evidence, follows the clandestine playbook Jacobsen outlined, showcasing the dark capabilities of covert operations in silencing perceived threats and erasing their existence without a trace.
 
 ### Additional Tactics Utilized
 

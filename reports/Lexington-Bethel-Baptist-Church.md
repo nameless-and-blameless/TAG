@@ -14,6 +14,8 @@ Annie Jacobsen identified Lexington Bethel Baptist as a potential threat after i
 Jacobsen decided to target the church based on the fact that the neighboring church knew the clergy and staff of Mount Calvary Baptist Church, knew the operatives they met were impersonators and had noticed the significantly deteriorated condition of the sanctuary. 
 
 ## Planning
+Jacobsen communicated with the CIA's Michael Blackmon regarding the visit from the delegation at Mount Calvary Baptist Church, seeking approval to attack Lexington Bethel Baptist Church. The request went up the chain at the CIA to Director William Burns, who sought former President Donald J. Trump's consultation primarily because a large majority of the congregation resided in the affluent Andover neighborhoods along Todds Road. Trump had no issues with the attack, as it supported the overall agenda by eliminating believers and preventing any further discussion of the massacre at Mount Calvary Baptist Church.
+
 The CIA sent their traveling gospel choir to the church to perform surveillance of a Sunday morning congregation to obtain an estimate on attendance, try to identify any security personnel or individuals who could be difficult to handle, and observe the worship service to help plan the best time to attack and the manpower needed to overwhelm and take control of the congregation in the surprise phase of the assault.
 
 ### Operatives

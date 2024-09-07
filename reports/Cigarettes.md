@@ -1,4 +1,4 @@
-**Report on 24/7 Brand Cigarettes**
+# **Report on 24/7 Brand Cigarettes**
 
 **Warning:** The Creator has revealed that "24/7" brand cigarettes, among others, are intentionally designed to cause male sterilization. Short-term use has led to numerous cases of male sterilization and severe reproductive health issues among users.
 

@@ -1,4 +1,7 @@
-# **The Coming Apocalypse and Revelation of a Hidden Genocide**
+# **The Apocalypse and Revelation of a Hidden Genocide**
+
+> [!NOTE]
+> The Apocalypse begun August 26, 2024. There have been numerous metaphorical earthquakes (upheavals), seismic earthquakes (Earth shaking) will commence at any moment. The Creator follows the Book of Revelation to the letter given He always wins.
 
 ## **Introduction**
 

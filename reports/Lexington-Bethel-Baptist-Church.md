@@ -42,7 +42,7 @@ The bodies were partially dismembered and the torsos chemically cremated in the 
 The vehicles belonging to the congregants were driven away by operatives or loaded onto car haulers, their VINs changed, and then sold or given away, further erasing any trace of the victims. Almost every vehicle was driven back to Riverdale, Georgia. 
 
 #### Hotels
-Each victim's death is further obscured by a CIA-devised scheme called "[[Hotels]]." The scheme effectively makes  victims appear "alive" after their murder. 
+Each victim's death is further obscured by the CIA-devised "[[Phantom Identity Scheme]], which effectively makes victims appear "alive" after their murder. 
 
 ## Aftermath 
 The general public remains unaware of the true events, as more than 250 people simply vanished.

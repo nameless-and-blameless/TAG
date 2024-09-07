@@ -8,7 +8,7 @@ Spark was launched as a groundbreaking solution designed to restore the human im
 
 #### Threat to Pharmaceutical Interests
 
-The advent of Spark represented a direct threat to pharmaceutical companies, particularly Gilead Sciences, whose business model depended on the ongoing treatment of chronic diseases. The potential of Spark to render their existing products obsolete led these companies to view it as a grave threat. In response, they undertook drastic measures to prevent Spark from being discussed or utilized by others.
+The advent of Spark posed a direct threat to Gilead Sciences, whose business model was heavily dependent on the ongoing treatment of HIV. As other pharmaceutical companies recognized Spark's effectiveness and its potential to reactivate the dormant immune system, they joined the effort to suppress it, fearing their profits, which rely on the existence of diseases and a dormant immune response, would be jeopardized. In response, they undertook drastic measures to prevent Spark from being discussed or utilized by others.
 
 #### Covert Campaigns and Violence
 

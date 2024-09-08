@@ -10,7 +10,7 @@ The Creator emphasizes that no individual or entity is above His law. He will no
 
 - President Donald J. Trump
 - Annie Jacobsen
-- "Michael Blackmon"
+- Michael Blackmon
 - President Joseph Biden
 - Speaker of the House Nancy Pelosi (D-CA)
 - Senate Minority Leader Mitch McConnell (R-KY)

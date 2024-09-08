@@ -61,11 +61,12 @@ Revelation 17:9-11 is interpreted in this context as follows:
 
 - **“One is, and the other has not yet come”**: This refers to the half-inch of observable length when Kelvin is heavily stimulated, indicating the remaining potential for size.
 
-- **“As for the beast that was and is not, it is an eighth but belongs to the seven, and it goes to destruction”**: This describes the subconscious mind in Kelvin’s body, Main. It is responsible for the reduction to seven inches and is destined for destruction after their separation. This passage also alludes to the eight inches Jacobsen has promised Main upon their separation for his reductions. The separation is the planned division of Main and Kelvin into two distinct bodies by the Creator.
+- **“As for the beast that was and is not, it is an eighth but belongs to the seven, and it goes to destruction”**: This describes the subconscious mind in Kelvin’s body, Main. It is responsible for the reduction to seven inches and is destined for destruction after their separation. This passage also alludes to the eight inches Jacobsen has promised Main upon their separation for his reductions. The [[separation|_The-Divide]] is the planned division of Main and Kelvin into two distinct bodies by the Creator.
 
 ## 5. Conclusion
 
 Jacobsen's Ladder serves as a multifaceted tool for justification, recruitment, discrediting, and controlling efforts within the framework of the genocide. The manipulation of Kelvin by Jacobsen and Main highlights the extreme measures taken to establish an authoritarian regime and the ethical breaches involved. Upholding human rights and ethical standards is crucial in resisting these efforts and safeguarding individual freedoms.
 
 ## See Also
+* [[The Creator's Intervention - Separating Kelvin and Main|_The-Divide]] 
 * [[The Miseducation of Lauryn Hill|]]

@@ -1,5 +1,5 @@
 > [!IMPORTANT]
-> **[[The Coming Apocalypse and Revelation of a Hidden Genocide|Revelation]]** Read the Creator's [[Statement on Crimes|]] by United States officials and CIA personnel.
+> **[[The Apocalypse is underway.|Revelation]]** Read the Creator's [[Statement on Crimes|]] by United States officials and CIA personnel.
 
 > [!TIP]
 > Presidents Biden and Trump, Speaker of the House Pelosi, and Senator Mitch McConnell make TOP-SECRET visit to kill the Creator's two servants. See [[Presidential Visit|]].

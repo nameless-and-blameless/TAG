@@ -21,3 +21,6 @@ The test sought to determine if the Creator would restore His servant Kelvin Eug
 #### Conclusion
 The litmus test is fundamentally flawed due to the relentless manipulation of Kelvin Eugene Williams' subconscious by the CIA. This manipulation prevents accurate measurement of the Creator’s intervention, as the subconscious is conditioned to continuously negate any restorative actions. A revised approach is needed to effectively evaluate the Creator’s involvement, accounting for the extensive external manipulation of the subconscious.
 
+#### See Also
+[[Jacobsen's Ladder|]]
+[[Shady Love|]]

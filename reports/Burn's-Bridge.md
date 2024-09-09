@@ -1,7 +1,7 @@
 ### Burns' Bridge: A Fatally Flawed Litmus Test
 
 #### Introduction
-This report evaluates a litmus test designed to assess whether the Creator would intervene to restore the penile length and shape of His servant, Kelvin Eugene Williams, after covert actions by the CIA during the American Genocide. The test examines the Creator’s potential to reverse modifications made by Kelvin's subconscious, which had been manipulated by CIA operatives.
+This report evaluates a litmus test designed to assess whether the Creator would intervene to restore the penile length and shape of His servant, Kelvin Eugene Williams, before covert operations conducted by the CIA during The American Genocide. These operations included mass killings in houses of prayer after surprise assaults during their weekly worship services. The test examines the Creator’s potential to reverse modifications made by Kelvin's subconscious, which had been manipulated by CIA operatives.
 
 #### Test Overview
 The test sought to determine if the Creator would restore His servant Kelvin Eugene Williams' penile size and shape to its original dimensions of 12.5 inches. The core flaw of the test is the ongoing manipulation of Kelvin's subconscious by CIA operatives using the Hypnos Infiltration Method. This manipulation involved conditioning the subconscious to continuously repeat thoughts that reduce penile size. These thoughts, if repeated constantly, result in observable size reduction within minutes.

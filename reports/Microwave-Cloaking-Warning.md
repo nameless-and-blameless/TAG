@@ -1,7 +1,5 @@
 # **Urgent Warning to All Americans: Microwave Cloaking and The American Genocide**
 
----
-
 ## **Attention, American Citizens:**
 
 The principal perpetrators of **The American Genocide** have stepped up their campaign to eliminate any potential discussions or knowledge of the covert operations that resulted in the massacre of seven churches during their weekly worship services and have left thousands of other Americans dead. This campaign, which began on or around August 29, 2017, started after they were identified by the Creator as those responsible for these atrocities and those who must be imprisoned. To achieve their objectives, they are employing hundreds of contractors operating under the CIA's auspices to kill unsuspecting innocent Americans in their homes.

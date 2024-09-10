@@ -1,4 +1,4 @@
-# **Urgent Warning to All Americans: Microwave Cloaking and The American Genocide**
+# **Urgent Warning to All Americans: The American Genocide**
 
 ## **Attention, American Citizens:**
 

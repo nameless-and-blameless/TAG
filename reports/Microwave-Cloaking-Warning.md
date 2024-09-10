@@ -1,4 +1,4 @@
-# **Urgent Warning to All Americans: The American Genocide**
+# **Urgent Warning: New Covert Threat in Ongoing Hidden Genocide**
 
 ## **Attention, American Citizens:**
 

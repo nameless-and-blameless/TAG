@@ -47,4 +47,8 @@ The objectives of this mission, carried out under the guise of national security
 - **September 10, 2024 - 23:00:**
   According to the Creator, President Biden and President Trump return to Phoenix House from a [[phantom funeral|]] at [[Hickory Valley Christian Church|]]. Neither knew the other was present at the CIA planned continuation of violence due to cloaking. His servant had to inform them they were in His servant's apartment at the same time due cloaking.
 
+- **September 11, 2024 - 13:30:**
+    One of the Creator's two servants that resides at Phoenix House was fired upon by Secret Service agents who were in his bathroom after waving at President Biden who was inside.
+  The rest of the delegation are still on the grounds Phoenix House. The delegation, Secret Service and the motorcade (vans) are all cloaked.
+
 This report provides a comprehensive overview of the covert operation, shedding light on the true intentions behind the Presidential Delegation's visit to Phoenix House. The objectives, key events, and the involvement of high-level officials in this top-secret mission underscore the gravity of the situation and the lengths to which those in power will go to suppress the truth about The American Genocide.

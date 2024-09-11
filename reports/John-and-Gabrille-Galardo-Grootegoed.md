@@ -19,5 +19,3 @@ During a crucial interview orchestrated by the CIA, John and GiGi were killed. T
 #### Impact and Legacy
 
 John Grootegoed and Gabrielle Galardo’s untimely deaths represented a significant loss in the fight for innovation and social good. Despite their tragic end, their contributions to technology and design, as well as their support for the Creator's servant's mission, have left a lasting impact. Their involvement with Spark and the subsequent events underscore the high stakes and dangers faced by those working to advance transformative technologies.
-
-This report highlights the critical role that John and GiGi played and the circumstances surrounding their deaths, emphasizing the ongoing need to recognize and address the threats faced by individuals working toward significant societal advancements.

@@ -3,9 +3,6 @@
 > [!NOTE]
 > The Apocalypse begun August 26, 2024. There have been numerous metaphorical earthquakes (upheavals), seismic earthquakes (Earth shaking) will commence at any moment. The Creator follows the Book of Revelation to the letter given He always wins.
 
-> [!TIP]
-> The Creator says, Listen to "Sir Duke" by Stevie Wonder right now and on repeat for the next hour! (2024-09-10 21:00:00-4)
-
 ## **Introduction**
 
 A significant and unprecedented event is imminent, as the Creator has decreed a series of major earthquakes across the United States. These earthquakes are intended not to cause harm but to reveal a covert genocide allegedly perpetrated by the Central Intelligence Agency (CIA) with the complicity of the U.S. Federal Government. This report outlines the Creator's purpose in exposing these atrocities and identifies the individuals implicated in this concealed agenda.

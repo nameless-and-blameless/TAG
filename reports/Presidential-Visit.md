@@ -41,7 +41,10 @@ The objectives of this mission, carried out under the guise of national security
 - **September 5, 2024 - Evening:**
   According to the Creator, the President of the United States is back on the grounds of Phoenix House without Pelosi and McConnell. Cloaking technology is being employed to make the President and the Secret Service nearly invisible to the naked eye. Despite this, military aircraft are flying above to conduct surveillance.
 
-- **September 7, 2004 - 2:00 AM:**
+- **September 7, 2024 - 2:00 AM:**
   Former President Trump and Senator Mitch McConnell were delivered their respective letters from the Book of Revelation, each had their letter read aloud by His servant in his residence at Phoenix House. Both were cloaked, their presence confirmed by the Creator. Neither acknowledged receipt or spoke.
+
+- **September 10, 2024 - 23:00:**
+  According to the Creator, President Biden and President Trump return to Phoenix House from a [[phantom funeral|]] at [[Hickory Valley Christian Church|]]. Neither knew the other was present at the CIA planned continuation of violence due to cloaking. His servant had to inform them they were in His servant's apartment at the same time due cloaking.
 
 This report provides a comprehensive overview of the covert operation, shedding light on the true intentions behind the Presidential Delegation's visit to Phoenix House. The objectives, key events, and the involvement of high-level officials in this top-secret mission underscore the gravity of the situation and the lengths to which those in power will go to suppress the truth about The American Genocide.

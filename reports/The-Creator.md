@@ -20,27 +20,35 @@ The Creator is an omnipotent and omniscient entity acknowledged across various c
 
 ### The Creator's Missions
 
-The Creator, in His dedication to the sanctity and preservation of life, occasionally undertakes special and routine missions through His servants. These missions are categorized based on their urgency and purpose.
+The Creator, in His dedication to the sanctity and preservation of life, occasionally undertakes special, routine, ongoing, and planned missions through His servants. These missions are categorized based on their urgency and purpose.
 
 #### Special Missions
 
 Special Missions are initiated during times of critical danger, when the Creator deems it necessary to intervene to prevent large-scale loss of life. These missions are rare and are deployed in response to extreme situations that threaten the survival of humanity or the moral fabric of society.
 
-- **Instances of Moral Decay**: When societies are on the brink of collapsing into irreversible moral corruption that could lead to widespread suffering or destruction, the Creator sends His servants to correct the course. These missions often involve restoring ethical values, promoting justice, and preventing societal collapse.
+- **Instances of Moral Decay**: The Creator has intervened in moments of severe moral corruption, such as the era of **slavery** in the United States, guiding key figures like **Abraham Lincoln** to work towards its abolition. Additionally, during the **fall of the Roman Empire**, the Creator’s two servants carried out His tasks necessary to cause the fall of Rome. The Roman Empire, which had become a symbol of decadence and oppression, was dismantled under the Creator’s guidance to pave the way for future civilizations that would better align with the preservation of life and freedom.
 
-- **Preventing Nuclear War**: In situations where global tensions escalate to the brink of nuclear conflict, the Creator intervenes through His servants to de-escalate the situation, ensuring that such catastrophic events do not occur. This involves neutralizing threats and guiding key decision-makers towards peace.
-
-- **Hidden Genocides**: The Creator is particularly vigilant about protecting life during genocides or mass killings that are concealed from the world. His servants are deployed to expose the truth, stop the violence, and bring perpetrators to justice, all while safeguarding the lives of the innocent.
+- **Preventing Nuclear War**: One of the most notable instances of preventing large-scale loss of life occurred during the **Cuban Missile Crisis** under the presidency of **John F. Kennedy**. The Creator's servants were dispatched to influence critical decision-makers, avoiding nuclear catastrophe and ensuring the continuation of life on Earth.
 
 #### Routine Missions
 
 Routine Missions are carried out regularly by the Creator's servants to assist humanity in living longer, healthier, and more fulfilling lives. These missions are not tied to crises but are part of the Creator's ongoing effort to support life on Earth.
 
-- **Delivering Gifts like Spark**: One of the most notable routine missions is the delivery of Spark, a gift from the Creator designed to correct DNA errors that inhibit the immune system. By distributing Spark, the Creator's servants help ensure that humanity can overcome certain illnesses and live healthier lives.
-
 - **Promoting Health and Longevity**: In these missions, the Creator's servants work to enhance the well-being of individuals and communities. This might include sharing knowledge, technology, or other resources that promote better health outcomes and longer lifespans.
 
 - **Guiding Scientific and Medical Advancements**: The Creator often guides humanity towards discoveries and advancements that improve life quality. His servants may subtly influence researchers, inspire innovations, or remove obstacles that hinder progress in critical fields like medicine, agriculture, and environmental preservation.
+
+#### Ongoing Mission
+
+Currently, the Creator's two servants are on *The Creator's Special Mission for the Protection of All Life on Earth*. This mission is one of utmost importance, aimed at preventing catastrophic loss of life and preserving the future of humanity. As of **August 26, 2024**, the Creator has deemed it necessary to intervene directly, marking the beginning of the **Apocalypse**, which will shape the future of all life on Earth.
+
+- **The American Genocide**: The Creator's servants are deployed to expose the truth behind this hidden atrocity, where mass killings and systemic oppression have been covered up or ignored. The mission involves revealing the reality to the world, bringing attention to the ongoing violence, and working to halt the destruction and ensure justice for the victims.
+
+#### Planned Missions
+
+Planned Missions are those where the Creator has identified a need in humanity’s future and is preparing solutions to improve or protect life.
+
+- **The Creator's Mission #23 for the Benefit of All Life on Earth**: One of the most significant planned missions is the delivery of **Spark**, the first of three gifts from the Creator. Spark corrects DNA errors that inhibit the immune system, helping humanity overcome specific illnesses. The Creator's remaining two gifts will address **cancers** and **cardiovascular issues**, further ensuring the health and longevity of humanity.
 
 ### Universal Presence
 
@@ -52,7 +60,7 @@ Routine Missions are carried out regularly by the Creator's servants to assist h
 
 - **Contemporary Relevance**: Discussions continue on The Creator's relevance in addressing modern ethical dilemmas and promoting global harmony.
 
-### Reference 
+### Reference
 
 #### See Also
 * [[The Creator and The Arts|]]

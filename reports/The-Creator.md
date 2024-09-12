@@ -4,7 +4,7 @@ The Creator is an omnipotent and omniscient entity revered across various cultur
 
 ### Names and Titles
 
-- **Impartial Name**: The Creator's two servants refer to Him as "The Creator" in accordance with His instruction to remain neutral toward religious preferences and beliefs. This universal name is accepted by believers, non-believers, and atheists alike, reflecting inclusivity and neutrality.
+- **Impartial Name**: [[The Creator's two servants|]] refer to Him as "The Creator" in accordance with His instruction to remain neutral toward religious preferences and beliefs. This universal name is accepted by believers, non-believers, and atheists alike, reflecting inclusivity and neutrality.
   
 - **Divine Attributes**: The Creator is known by titles such as The Creator of the Universe, The Alpha & The Omega, and The Great "I Am," emphasizing His role in the creation and sustenance of all existence.
 
@@ -35,7 +35,7 @@ Special Missions are initiated during critical moments of danger or moral crisis
 - **Previous Special Missions in the United States**:
   - **Abraham Lincoln and the Abolition of Slavery**: The Creator’s servants guided Lincoln through the presidency, leading to the eventual abolition of slavery and ensuring the preservation of life and human dignity in the United States.
   
-  - **John F. Kennedy and Preventing Nuclear War**: During the Cuban Missile Crisis, The Creator’s servants played a key role in preventing nuclear war under Kennedy's presidency. Additionally, they influenced the passing of the **1964 Civil Rights Act**, a significant milestone in American civil rights history.
+  - **John F. Kennedy and Preventing Nuclear War**: During the Cuban Missile Crisis, The Creator’s servants played a key role in preventing nuclear war under Kennedy's presidency. Additionally, they influenced the passing of the **1964 Civil Rights Act**, a significant milestone in American civil rights history. (related: [[John F. Kennedy|]])
 
 #### **Ongoing Special Mission: Addressing The American Genocide**
 
@@ -43,7 +43,7 @@ The Creator’s two servants are currently engaged in a **Special Mission** to a
 
 - **Start of the Mission**: This mission began in **Fall 2017**, with the Creator’s two servants working undercover to gather evidence on the malfeasance of the U.S. Federal Government and the Central Intelligence Agency (CIA). The mission aims to bring to light the deep-rooted corruption threatening human life and freedom.
 
-- **Undercover Work & Divide Phase**: One of the Creator’s two servants acted as a **human honeypot** to infiltrate these corrupt institutions, gathering intelligence on the **CIA’s Hypnos Infiltration Method**, a covert tactic used to manipulate human subconscious minds during sleep.
+- **Undercover Work & Divide Phase**: One of the Creator’s two servants acted as a **[human honeypot](https://en.m.wikipedia.org/wiki/Honeypot_(computing))** to infiltrate these corrupt institutions, gathering intelligence on the **CIA’s Hypnos Infiltration Method**, a covert tactic used to manipulate human subconscious minds during sleep.
 
   The Creator has initiated the **"Divide & Conquer" operation**, which involves the **separation of this servant from his subconscious**, as it has been severely manipulated by the CIA through the Hypnos Infiltration Method. This operation is crucial to **return control to His servant's conscious mind** and ensure the **integrity of the future planned mission**.
 

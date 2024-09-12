@@ -53,6 +53,6 @@ The objectives of this mission, carried out under the guise of national security
 
 - **September 12, 2024 - 4:00 AM:**
      President Biden is personally overseeing attempts to end the life of one of the Creator's two servants from inside apartment B33.
-     Former President Trump and Annie Jacobsen hace just entered from another apartment where they've spent the evening doing cocaine and engaging in sex.
+     Former President Trump and Annie Jacobsen have just entered from another apartment where they've spent the evening doing cocaine and engaging in sex.
 
 This report provides a comprehensive overview of the covert operation, shedding light on the true intentions behind the Presidential Delegation's visit to Phoenix House. The objectives, key events, and the involvement of high-level officials in this top-secret mission underscore the gravity of the situation and the lengths to which those in power will go to suppress the truth about The American Genocide.

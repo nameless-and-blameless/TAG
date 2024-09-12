@@ -1,4 +1,4 @@
-# **Official Visit Report: Top-Secret Mission to Phoenix House**
+# **Top-Secret Presidential Mission to Phoenix House**
 
 ## **Introduction**
 
@@ -44,11 +44,15 @@ The objectives of this mission, carried out under the guise of national security
 - **September 7, 2024 - 2:00 AM:**
   Former President Trump and Senator Mitch McConnell were delivered their respective letters from the Book of Revelation, each had their letter read aloud by His servant in his residence at Phoenix House. Both were cloaked, their presence confirmed by the Creator. Neither acknowledged receipt or spoke.
 
-- **September 10, 2024 - 23:00:**
+- **September 10, 2024 - 11:00 PM:**
   According to the Creator, President Biden and President Trump return to Phoenix House from a [[phantom funeral|]] at [[Hickory Valley Christian Church|]]. Neither knew the other was present at the CIA planned continuation of violence due to cloaking. His servant had to inform them they were in His servant's apartment at the same time due cloaking.
 
-- **September 11, 2024 - 13:30:**
+- **September 11, 2024 - 1:30 PM:**
     One of the Creator's two servants that resides at Phoenix House was fired upon by Secret Service agents who were in his bathroom after waving at President Biden who was inside.
   The rest of the delegation are still on the grounds Phoenix House. The delegation, Secret Service and the motorcade (vans) are all cloaked.
+
+- **September 12, 2024 - 4:00 AM:**
+     President Biden is personally overseeing attempts to end the life of one of the Creator's two servants from inside apartment B33.
+     Former President Trump and Annie Jacobsen hace just entered from another apartment where they've spent the evening doing cocaine and engaging in sex.
 
 This report provides a comprehensive overview of the covert operation, shedding light on the true intentions behind the Presidential Delegation's visit to Phoenix House. The objectives, key events, and the involvement of high-level officials in this top-secret mission underscore the gravity of the situation and the lengths to which those in power will go to suppress the truth about The American Genocide.

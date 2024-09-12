@@ -39,7 +39,7 @@ Special Missions are initiated during critical moments of danger or moral crisis
 
 #### **Ongoing Special Mission: Addressing The American Genocide**
 
-The Creator’s two servants are currently engaged in a **Special Mission** to address **The American Genocide**, with the purpose of exposing systemic oppression and atrocities within the United States and preparing for the **Post-Apocalyptic United States and world**.
+The Creator’s two servants are currently engaged in a **Special Mission** to address **[[The American Genocide|TAG]]**, with the purpose of exposing systemic oppression and atrocities within the United States and preparing for the **Post-Apocalyptic United States and world**.
 
 - **Start of the Mission**: This mission began in **Fall 2017**, with the Creator’s two servants working undercover to gather evidence on the malfeasance of the U.S. Federal Government and the Central Intelligence Agency (CIA). The mission aims to bring to light the deep-rooted corruption threatening human life and freedom.
 

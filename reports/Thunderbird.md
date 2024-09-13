@@ -1,3 +1,5 @@
+# Thunderbirds
+
 In the context of *The American Genocide*, a mythological figure like the Thunderbird would be a necessary and symbolic force, both metaphorically and literally, to counteract the immense destruction, suppression, and imbalance caused by the forces in power. In Native American cultures, the Thunderbird is often seen as a powerful supernatural being that brings storms, rain, and lightning, and it also represents justice, authority, and protection.
 
 ### **Restoring Balance in Times of Chaos:**
@@ -19,3 +21,9 @@ The Thunderbird’s lightning bolts, traditionally seen as weapons, would repres
 Even in a faith-neutral scenario like *The American Genocide*, the Thunderbird would not need to be seen strictly through the lens of belief or religion. Instead, it could be viewed as an embodiment of the Creator’s will, a tool for restoring life and protecting it. Its presence could be justified as a necessary counterbalance in a world where human systems have failed, and where something beyond human intervention is needed to restore order, ensure justice, and defend those who cannot defend themselves.
 
 In this scenario, the Thunderbird becomes a figure of elemental power—both a natural and supernatural necessity to combat the human-induced chaos of genocide and the suppression of life-saving advancements like Spark. Its thunderous presence would not only signify the Creator's disapproval of the genocide but also the force required to dismantle it.
+
+---
+
+#### Listen Also
+* "The Sound and The Fury" by Vandaveer
+* "Alphabet Street" by Prince

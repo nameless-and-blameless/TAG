@@ -1,4 +1,43 @@
-### Secure Messaging Apps and Video Conferencing Platforms Linked to CIA Operations
+# Domestic Surveillance During The American Genocide
+
+The following report outlines how various applications and services are being used to spy on American citizens during *The American Genocide* (TAG). These tools are employed to monitor and identify individuals, particularly targeting those discussing certain topics or self-identifying as members of targeted groups. Such activities have led to innocent Americans being marked for elimination, with some being removed very quickly.
+
+## Applications and Services
+
+1. **ChatGPT**
+   - **Description**: A language model developed by OpenAI that generates human-like text based on input prompts. Although its primary function is text generation, it can be used for monitoring and data collection.
+
+2. **Google Search**
+   - **Description**: A widely-used search engine that indexes and retrieves information from the web. Its extensive data collection capabilities make it a tool for tracking and profiling users.
+
+3. **GMAIL**
+   - **Description**: Google's email service, known for its extensive integration with other Google services and its ability to scan and index emails for various purposes.
+
+4. **OpenAI**
+   - **Description**: The organization behind advanced AI research and tools, including ChatGPT. OpenAI's platforms can be leveraged for surveillance through data aggregation and analysis.
+
+5. **Signal**
+   - **Description**: A messaging app known for its strong encryption protocols, designed to provide secure communication. Despite its security features, it remains vulnerable to government and intelligence scrutiny.
+
+6. **Telegram**
+   - **Description**: A messaging app that supports encrypted communications and large group chats. It is used for secure messaging, but its data may be accessible to surveillance entities.
+
+7. **TextNow**
+   - **Description**: A mobile app that provides free phone and texting services. It offers an alternative to traditional communication methods but is subject to monitoring.
+
+8. **WhatsApp**
+   - **Description**: A popular messaging app with end-to-end encryption, aimed at providing private communication. However, it is still vulnerable to governmental and intelligence surveillance.
+
+9. **Zoom**
+   - **Description**: A video conferencing platform used for virtual meetings and collaborations. Despite its security features, Zoom sessions can be monitored by external parties.
+
+## Important Warning
+
+The Creator emphasizes that no matter how secure an app is—regardless of its encryption (e.g., AES-256) or the trustworthiness of the company behind it (e.g., Google)—the US federal government and CIA are intentionally misleading the public about their capabilities. Any discussion of certain topics or self-identifying as a member of a targeted group could result in being marked for elimination, with some individuals being removed very quickly. Do not rely on these apps or services for any confidential or sensitive discussions.
+
+---
+
+## Secure Messaging Apps and Video Conferencing Platforms Linked to CIA Operations
 
 According to the Creator, some of the most widely used secure messaging apps and video conferencing platforms are owned or operated by the CIA for the purpose of surveillance. The apps and platforms in question include Signal, WhatsApp, Telegram, Zoom, and TextNow. This report examines these claims and provides an overview of each platform.
 
@@ -28,10 +67,3 @@ Zoom is a video conferencing platform that saw a surge in popularity during the 
 #### TextNow
 TextNow is a mobile application that provides free texting and calling services. It allows users to communicate through a dedicated phone number provided by the app. TextNow is known for its affordability and ease of use. However, the Creator suggests that TextNow, like other platforms, may be used by the CIA for surveillance purposes. Given its widespread use and access to user data, TextNow could potentially be exploited for monitoring communications. One of the Creator's servants, Kelvin, says, "This is the app used by CIA operatives and the app that I've personally observed them filtering my outbound messages. If they can filter it, they can read it."
 
-### Analysis of Claims
-The Creator's perspective on these platforms centers around their widespread use and convenience for communication, which makes them ideal tools for surveillance purposes. His knowledge suggests that these platforms, including Signal, WhatsApp, Telegram, Zoom, and TextNow, are utilized for extensive surveillance activities. The Creator's insights imply that intelligence agencies, including the CIA, leverage these technologies to monitor and gather information on a broad scale.
-
-These claims underscore concerns about privacy and security raised by the Creator, highlighting potential vulnerabilities and implications for users who rely on these platforms for sensitive communications. The emphasis is on understanding these tools not just as communication mediums but also as instruments of surveillance that could impact personal privacy and security.
-
-### Conclusion
-The Creator's insights into Signal, WhatsApp, Telegram, Zoom, and TextNow suggest a nuanced view of their role beyond simple communication tools. Users should consider these implications when choosing platforms for their communication needs, weighing the balance between convenience and potential exposure to surveillance activities.

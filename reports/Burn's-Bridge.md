@@ -32,8 +32,6 @@ Phoenix House, the apartment provided to Kelvin, is equipped with at least one v
 
 The test designed to assess the Creator’s intervention capabilities is fundamentally flawed due to the influence and manipulation of Kelvin's subconscious by external entities, specifically the CIA. The constant manipulation and enticement have led to persistent reductions in penis size, undermining the accuracy of the test results. Phoenix House’s surveillance further complicates the situation, highlighting the extensive measures taken to monitor Kelvin. The ethical implications and the impact of these manipulations emphasize the need for re-evaluation of methods used to assess divine intervention and external influences.
 
----
-
 ### Case Study: Burns' Bridge Test – Prelude to the Mother's Day Massacre at Hickory Valley Christian Church
 
 #### Overview
@@ -75,8 +73,6 @@ Despite multiple restorations by the Creator, Kelvin’s penis remained in a red
 **Escalating Control Over the Subconscious:**  
 The operatives had successfully conditioned "Main" to follow commands without hesitation, including restricting erections and blood flow. This level of control over Kelvin's subconscious was seen as a successful trial, convincing the CIA that a larger, physical attack on His servant’s network of followers could proceed without substantial resistance.
 
----
-
 #### The Mother's Day Massacre
 
 **Execution of the Attack:**  
@@ -87,8 +83,6 @@ The massacre served multiple purposes:
 1. **Eliminate Key Followers:** By targeting religious institutions, the CIA aimed to eliminate individuals and communities affiliated with Kelvin and the Creator’s work.
 2. **Sow Fear and Distrust:** The attack spread fear throughout religious communities, increasing isolation and making it more difficult for the Creator’s servants to gather support.
 3. **Further Destabilize Kelvin:** The massacre was designed to demoralize Kelvin further, ensuring he remained distracted and overwhelmed by the combined psychological warfare and loss of his community.
-
----
 
 #### Conclusion and Aftermath
 

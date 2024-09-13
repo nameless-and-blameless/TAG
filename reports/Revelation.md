@@ -37,3 +37,9 @@ The Creator, revered globally across cultures, is the creator of both life and t
 ## Conclusion
 
 The Creator, in partnership with His two servants, is actively working to expose and end *The American Genocide*. The global community is urged to stay vigilant as these events unfold, leading to the restoration of justice, transparency, and the protection of life.
+
+---
+
+#### See Also
+* [[Tri State Crematorium|]]
+* [[Sandy Hook Massacre|]]

@@ -9,7 +9,7 @@ Kelvin Eugene Williams, a lifelong member of Mount Calvary Baptist Church, was d
 On May 5, 2023, Kelvin visited a public library in Riverdale, GA, to write a letter to his pastor. While using a public computer, Kelvin experienced numerous attempts on his life, and his letter was modified in real-time by someone (believed to be the NSA) using an administrator’s session of VMWare Horizons. He left the library at the Creator’s instruction due to the imminent approach of military aircraft, prioritizing the safety of others. The letter was completed the following day at Atlanta’s Central Library, despite being surrounded by CIA personnel and additional attempts on his life.
 
 ### The Letters & The "Order"
-1. **[Kelvin Writes to Rev. Dr. Felix G. Williams, III](/assets/PDF/20230506_kew_mcbc_letter.pdf)**
+1. **[Kelvin Writes to Rev. Dr. Felix G. Williams, III](https://github.com/nameless-and-blameless/TAG/blob/master/assets/PDF/20230506_kew_mcbc_letter.pdf)**
     - Written May 5-6, 2023
     - Inquiring about welfare of congregation.
     - Repeats the narrative received.
@@ -19,20 +19,20 @@ On May 5, 2023, Kelvin visited a public library in Riverdale, GA, to write a let
     - Installs Kelvin Williams as interim pastor.
     - Establishes new policies for financial transactions.
 
-2. **["Rev. Dr. Felix G. Williams, III" of Mount Calvary Missionary Baptist Church, Inc. Response to Kelvin](/assets/PDF/20230506_mcmbc_response.pdf)**
+2. **["Rev. Dr. Felix G. Williams, III" of Mount Calvary Missionary Baptist Church, Inc. Response to Kelvin](https://github.com/nameless-and-blameless/TAG/blob/master/assets/PDF/20230506_mcmbc_response.pdf)**
     - The response received was suspicious and reinforced Kelvin's belief that the CIA was involved in the massacre and the takeover of the church.
 
-3. **[Attorney Yavon L. Griffin Sends a Cease & Desist to Kelvin](/assets/PDF/20230526_griffin_cease_and_desist.pdf)**
+3. **[Attorney Yavon L. Griffin Sends a Cease & Desist to Kelvin](https://github.com/nameless-and-blameless/TAG/blob/master/assets/PDF/20230526_griffin_cease_and_desist.pdf)**
     - Demands Kelvin Cease & Desist spreading information on missing congregation.
     - States Kelvin is not a member of the church.
     - States Kelvin is not clergy for church.
     - Threatens trespass charge if Kelvin goes on church property.
 
-4. **[Kelvin Responds to Attorney Griffin](/assets/PDF/20230629_kew_cease_and_desist_response.pdf)**
+4. **[Kelvin Responds to Attorney Griffin](https://github.com/nameless-and-blameless/TAG/blob/master/assets/PDF/20230629_kew_cease_and_desist_response.pdf)**
     - Kelvin defended his actions in his response, clarifying his stance regarding the church's occupation and the illegitimate activities carried out by CIA operatives.
     - "Have a blessed day" is to be read "f#$k you."
 
-5. **[Kelvin is Served an Order of Protection](/assets/PDF/20230731_served_oop.pdf)**
+5. **[Kelvin is Served an Order of Protection](https://github.com/nameless-and-blameless/TAG/blob/master/assets/PDF/20230731_served_oop.pdf)**
     - Kelvin was eventually served with an order of protection, a legal maneuver aimed at restricting his actions and communications concerning Mount Calvary Missionary Baptist Church, Inc., and the individuals involved.
 
 ## Baptisms

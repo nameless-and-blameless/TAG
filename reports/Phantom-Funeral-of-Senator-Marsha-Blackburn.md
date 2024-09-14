@@ -4,8 +4,8 @@
 ## Report on the Phantom Funeral of Senator Marsha Blackburn
 
 **Dates of Events:**
-- **August 23, 2024**: Senator Marsha Blackburn was killed during the Phantom Funeral of Zachary Stone.
-- **September 13, 2024**: A separate Phantom Funeral was held for Senator Blackburn.
+- **August 23, 2024**: Senator Marsha Blackburn was killed during the [[Phantom Funeral of Zachary Stone|]].
+- **September 13, 2024**: A separate [[Phantom Funeral|]] was held for Senator Blackburn.
 
 ### Overview
 
@@ -15,7 +15,7 @@ In 2024, Senator Marsha Blackburn, a prominent Republican senator from Tennessee
 
 ### Senator Marsha Blackburn's Death: August 23, 2024
 
-On August 23, 2024, Senator Marsha Blackburn attended the Phantom Funeral of Zachary Stone at Hickory Valley Christian Church in Chattanooga, Tennessee. This event, like others in the pattern of TAG-associated Phantom Funerals, was carefully orchestrated by the CIA to covertly execute mourners. Initially, sentenced inmates were designated to carry out the killings. Blackburn, along with other attendees, was killed during this brutal operation.
+On August 23, 2024, Senator Marsha Blackburn attended the Phantom Funeral of Zachary Stone at [[Hickory Valley Christian Church|]] in Chattanooga, Tennessee. This event, like others in the pattern of Phantom Funerals during [[TAG|]], was carefully orchestrated by the CIA to covertly execute mourners. Initially, sentenced inmates were designated to carry out the killings. Blackburn, along with other attendees, was killed during this brutal operation.
 
 At these funerals, mourners are typically seated in a sanctuary awaiting the start of services. Inmate operatives then launch a surprise assault, capturing small groups and taking them to the gymnasium of the adjacent Hamilton Heights Christian Academy. Executions are carried out to ensure the death of the victims and maintain the secrecy of the operation.
 
@@ -50,6 +50,6 @@ The Phantom Funeral of Senator Marsha Blackburn was part of a broader series of 
 The events surrounding Blackburn’s death, the change in tactics due to fear of the Creator’s intervention, and the deliberate collapse of the gymnasium wall all point to the extreme lengths to which these forces will go to maintain control and eliminate dissent.
 
 ### References
-- Phantom Funeral
-- Hickory Valley Christian Church Massacre
-- The Creator's Servants and TAG Reporting
+- [[Phantom Funeral|]]
+- [[Hickory Valley Christian Church|]]
+- [[The American Genocide|]]

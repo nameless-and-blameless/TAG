@@ -1,8 +1,5 @@
 > [!IMPORTANT]
-> **[[The Apocalypse is underway.|Revelation]]** Read the Creator's [[Statement on Crimes|]] by United States officials and CIA personnel.
-
-> [!TIP]
-> Presidents Biden and Trump, Speaker of the House Pelosi, and Senator Mitch McConnell make TOP-SECRET visit to kill the Creator's two servants. See [[Presidential Visit|]].
+> **The Apocalypse began August 26th. [[Read more|Revelation]]** 
 
 ***
 # TAG Wiki: Unveiling The American Genocide

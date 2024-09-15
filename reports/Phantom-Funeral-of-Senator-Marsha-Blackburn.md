@@ -1,49 +1,57 @@
-## Report on the Phantom Funeral of Senator Marsha Blackburn
+# Phantom Funeral of Senator Marsha Blackburn
 
-**Dates of Events:**
-- **August 23, 2024**: Senator Marsha Blackburn was killed during the [[Phantom Funeral of Zachary Stone|]].
-- **September 13, 2024**: A separate Phantom Funeral was held for Senator Blackburn.
+## Overview
 
-### Overview
+On August 23, 2024, Senator Marsha Blackburn was killed during a Phantom Funeral held for Zachary D. Stone at Hickory Valley Christian Church. Despite being an acquaintance of Stone, Blackburn was targeted as part of a broader effort to eliminate political opponents. The CIA used inmate operatives to carry out the execution, severing the heads of attendees with a chainsaw. Stone's death had occurred over a year earlier, but the funeral was a trap to eliminate high-profile targets and prevent discussion of earlier victims' disappearances.
 
-Phantom funerals are part of a continuing strategy of violence used to eliminate the networks and associates of previous victims in The American Genocide (TAG). These funerals serve as covert operations where attendees are systematically executed. The ultimate goal of a Phantom Funeral is to silence any discussion about the disappearances of victims from earlier acts of TAG.
+## Background
 
-In 2024, Senator Marsha Blackburn, a prominent Republican senator from Tennessee, became one of the high-profile victims of this Phantom Funeral. Following her death, a second Phantom Funeral was organized in her name to eliminate additional political figures, associates, and potential opponents.
+Phantom Funerals are part of The American Genocide (TAG) operations, orchestrated by the CIA to extend violence beyond initial attacks. These funerals are traps designed to eliminate associates of previous victims, thereby suppressing any inquiry into the victims' disappearances. Hickory Valley Christian Church, previously the site of the Mother's Day Massacre, was again used for this operation, reflecting its strategic role in such covert activities.
 
-### Senator Marsha Blackburn's Death: August 23, 2024
+## Planning
 
-On August 23, 2024, Senator Marsha Blackburn attended the Phantom Funeral of Zachary Stone at Hickory Valley Christian Church in Chattanooga, Tennessee. This event, like others in the pattern of TAG-associated Phantom Funerals, was carefully orchestrated by the CIA to covertly execute mourners. Initially, sentenced inmates from the State of Georgia were designated to carry out the killings. These inmates had been promised sentence reductions or vacated sentences in exchange for their participation.
+### Seizure of Opportunity
 
-In earlier operations at Hickory Valley Christian Church, CIA operatives were used to eliminate these inmates after the executions, either during the operation or at the Clayton County Detention Center following their return. At these funerals, mourners are typically seated in a sanctuary awaiting the start of services. Inmate operatives then launch a surprise assault, capturing small groups and taking them to the gymnasium of the adjacent Hamilton Heights Christian Academy. Executions are carried out to ensure the death of the victims and maintain the secrecy of the operation.
+- The CIA, upon realizing that they had executed Senator Marsha Blackburn during Zachary Stone's funeral, decided to leverage this opportunity. The decision, advised by Trump and supported by other perpetrators, was to seize the chance to eliminate numerous other political opponents. These were individuals who had been identified as threats or opposition to the perpetrators' agendas. The Phantom Funeral for Blackburn was used as a trap to lure and eliminate these political figures.
 
-### Phantom Funeral for Marsha Blackburn: September 13, 2024
+### Modus Operandi
 
-On September 13, 2024, a second Phantom Funeral was staged for Senator Blackburn at Hickory Valley Christian Church. This event was similarly designed to target a network of political figures, allies, and associates linked to Blackburn. Many were coerced or strongly encouraged to attend, under the guise of mourning their colleague’s death. Instead, it became a staged execution.
+- Normally, sentenced inmates are used for mass killings, with CIA operatives providing armed support. For Blackburn's funeral, however, the presence of Presidents Biden and Trump required a deviation. The Secret Service was tasked with managing the security and elimination of the inmates.
 
-The CIA had planned to use sentenced inmates from Georgia for this operation, consistent with previous methods. However, a last-minute change resulted in the Secret Service being tasked with carrying out the executions. This shift was due to the fear of potential intervention by the Creator.
+### Operational Details
 
-### Shift in Tactics Due to Fear of Creator’s Intervention
+- Blackburn’s funeral was kept secret from the media. Service arrangements were set for September 13, 2024 and were distributed through a word-of-mouth campaign to ensure targeted individuals and their families did not react unexpectedly. Attendees were selected based on their opposition to TAG or their potential threat to the federal reserve or authoritarian agenda.
 
-Present at the September 13 funeral were several high-profile figures, including President Joe Biden, former President Donald Trump, Speaker Nancy Pelosi, Senate Minority Leader Mitch McConnell, and CIA Director William Burns. Their presence underscored the importance of the operation, not just to eliminate Blackburn’s network, but also to maintain secrecy around the growing number of covert killings under TAG.
+## Operation
 
-Just as the executions were about to begin, the White House Situation Room notified President Biden’s team of potential developments at Phoenix House, where one of the Creator's two servants resides. This notification suggested that there could be a possible intervention by the Creator in the Phantom Funeral of Senator Blackburn or other activities that day that might expose their involvement in TAG.
+### Perpetrator Presence
 
-Concerned that the operation could be disrupted or exposed by the Creator’s potential involvement, Biden ordered an immediate change in strategy. He directed the Secret Service to take over the execution process. Instead of the inmate-led operation, Secret Service agents assembled a firing squad in the gymnasium to carry out the executions as quickly as possible. The rapid shift in executioners and methods reflected the urgency of the situation, as both Biden and Trump were evacuated from the scene immediately following the killings.
+- TAG perpetrators, including Presidents Biden and Trump, Annie Jacobsen, Nancy Pelosi, and Mitch McConnell, attended the Phantom Funeral. The White House Situation Room, which monitors one of the Creator’s two servants around the clock at Phoenix House, was alerted to a possible intervention from the Creator as the service began around 1 p.m. on Friday September 13, 2024.
 
-### Collapse of the Gymnasium
+### Decision to Accelerate
 
-The gymnasium, which had become the site of the mass execution, experienced a complete collapse. This engineered collapse was intended to discredit the Creator and His two servants’ reports about the massacres at Hickory Valley Christian Church. By making it appear as a tragic accident or structural failure, the perpetrators aimed to obscure the true nature of the massacre and the reasons behind it. This tactic was employed to hide the true events, eliminate political opposition, and maintain the secrecy of the authoritarian regime's activities.
+- Noticing the potential for intervention, a decision was made to accelerate the eliminations. Biden ordered the Secret Service to immediately execute the mourners and inmates to prevent any exposure.
 
-### Handling of Autopsies
+## Executions
 
-To further obscure the truth, the perpetrators of TAG brought in their own medical examiners to handle the autopsies of the victims. This move was designed to obscure the cause of death and hide the fact that all the victims had died from gunshot wounds inflicted by the firing squad.
+### Execution Procedure
 
-### Conclusion
+- The Secret Service formed a firing squad in the church's gymnasium. Mourners and inmates were moved from the sanctuary to the gymnasium.
+- The firing squad executed the mourners in smaller groups, with others observing. Inmates piled the deceased.
+- After the mourners were shot, the inmates were eliminated.
+- Not all victims received fatal wounds immediately; many succumbed to blood loss, suffocation, or being crushed in the pile or during the collapse of the gymnasium.
 
-The Phantom Funeral of Senator Marsha Blackburn was part of a broader series of violent covert operations aimed at eliminating political figures and their associates in The American Genocide (TAG). Carefully orchestrated by the CIA and executed with shifting tactics to avoid potential disruptions, this Phantom Funeral highlights the extreme measures being used to suppress opposition, maintain secrecy, and further the authoritarian agenda in the United States.
+## Damage Control
 
-The events surrounding Blackburn’s death, the change in tactics due to fear of the Creator’s intervention, and the deliberate collapse of the gymnasium wall all point to the extreme lengths to which these forces will go to maintain control and eliminate dissent.
+### Post-Operation Measures
 
-### References
-- [[Phantom Funeral|]]
-- [[Hickory Valley Christian Church|]]
+- Following the final eliminations, the situation room contacted Annie Jacobsen to manage media inquiries and discredit reports of the operation.
+- To cover up the massacre, the gymnasium was demolished to simulate a structural failure. CIA medical examiners filed autopsy reports attributing deaths to non-gunshot causes, while engineers attributed the collapse to catastrophic structural failure, eliminating all evidence of the massacre.
+
+### Return to Phoenix House
+
+- Most perpetrators returned to Phoenix House, where they have been continuously since August 29. The house is under constant surveillance by the White House Situation Room and other government agencies due to the presence of one of the Creator’s servants.
+
+## Hickory Valley Christian Church
+
+Hickory Valley Christian Church, the site of the Mother's Day Massacre on May 12, 2024, has been repurposed for covert operations, including Phantom Funerals for Rev. Dr. Duke Stone and Zachary Stone. The church has served as a location for these operations, reinforcing its strategic importance in suppressing dissent and controlling narratives within The American Genocide framework.

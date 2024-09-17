@@ -11,8 +11,8 @@ The Burns' Bridge test was designed to measure the Creator's intervention capabi
 **Tactics Used:**  
 - **Hypnos Infiltration Method:** This method allowed the CIA to engage His servant’s subconscious while he slept, influencing his subconscious mind ("Main") to act against his own interests. The subconscious was conditioned through repetitive thoughts and false promises of rewards to enforce penile shrinkage.
 - **Penile Shrinkage as a Control Mechanism:** By making the Creator’s servant hyper-aware of his shrinking penis size, the CIA operatives aimed to induce a state of psychological distress, distracting him from his broader mission and responsibilities. This distraction was key in the lead-up to the Mother's Day attack.
-- **Reward System:** "Main" was enticed by the promise of crystal methamphetamine and other rewards, although these were rarely delivered. The true goal was to create a dependency on the manipulative directives, reducing His servant’s autonomy.
-
+- **Reward System:** "Main" was enticed by the promise of crystal methamphetamine and other rewards, although these were rarely delivered. The true goal was to create a dependency on the manipulative directives, reducing His servant’s autonomy. (See examples of [[communication of rewards|reports/_Food-Pantry-Notifications]](
+  
 #### The Connection to Hickory Valley Christian Church
 
 **Escalation of Violence:**  

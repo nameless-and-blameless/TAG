@@ -61,3 +61,7 @@ Jacobsen's Ladder is a manipulative and flawed test used to justify the CIA's ge
 
 Upholding truth and resisting these genocidal efforts are crucial in defending individual and collective freedoms against those who manipulate, recruit, and kill in the name of false justifications. 
 
+---
+
+#### See Also
+* [[Burns' Bridge|]]

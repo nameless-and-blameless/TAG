@@ -8,11 +8,13 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 
 * Table of Contents
      - [[The Creator|]]
-     - [[The Creator's two servants|]]
+       - [[The Creator's two servants|]]
+       - [[The Creator & the Arts|The-Creator-and-the-Arts]]
+         - [[Artists TAGd|]]
      - [[Introduction & Origins of TAG|TAG]]
      - [[TAG in Places of Worship|TAGPOW]]
-     - [[Artists TAGd|]]
      - [[How They Hide TAG|Tactics-Utilized-In-TAG]]
+       - [[Phantom Funerals|Phantom Funeral]]
      - [[FAQs|]]
      - [[Open Letter to GitHub|_OLTG]]
 

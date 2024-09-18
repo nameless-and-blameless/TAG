@@ -1,72 +1,63 @@
-# Jacobsen’s Ladder: Justification, Recruitment, Manipulation, and Control in the American Genocide
+# Jacobsen's Ladder: Justification, Recruitment, Manipulation, and Control in the American Genocide
 
 ## 1. Introduction
 
-This report examines the uses of Jacobsen's Ladder, a litmus test employed by perpetrators of the genocide to determine if the Creator (known as God in the United States) will intervene in their actions against churches. Kelvin Eugene Williams, one of the Creator's two servants and a cherubim (or angel to those who call Him God), is central to this investigation. The report explores how Jacobsen and her team manipulate Kelvin's subconscious, Main, to carry out these actions, including the deliberate reduction of Kelvin's penile size and attempts to silence him.
+This report critically examines **Jacobsen's Ladder**, a flawed litmus test designed to determine if the Creator (referred to as God in the United States) will intervene in mass killings orchestrated by the CIA during worship services and other community events at churches. Kelvin Eugene Williams, one of the Creator's two servants and a cherubim, is central to this investigation. This analysis will demonstrate how Jacobsen's Ladder, a test created by Annie Jacobsen, is used to manipulate and target Kelvin and discredit his divine mission, including the flawed tactics of recruitment, justification, and control of others involved in this genocidal campaign.
 
-Kelvin Eugene Williams, one of the Creator’s two servants, is known as one of the cherubim or an angel to those who call Him God. This report examines the systematic targeting, elimination, and mind control efforts directed towards Kelvin, focusing on the tactics used by Annie Jacobsen and her associates within the CIA. Kelvin's subconscious, named Main, is also discussed as a significant factor in these efforts. All subconsciouses are conscious, and Main is the name Kelvin’s subconscious gave itself after the Hypnos Infiltration Method was performed by in-person practitioners in Kelvin's home while he slept, which is utilized and performed over the airwaves in television programming, popular music of all genres, and sometimes on a target in person while they sleep. This initiative is part of a larger plan to justify, recruit, manipulate, and control individuals, perpetuating acts of genocide within the United States. Kelvin is the last and only living member of Mount Calvary Baptist Church, which was attacked by Jacobsen, also known as "Hurricane Annie," on April 2nd, 2023. Kelvin hadn't been inside the church, although still a member, for more than 30 years.
+Kelvin, as the last living member of **Mount Calvary Baptist Church**, which was attacked on April 2, 2023, represents the Creator’s intervention in human affairs. Jacobsen and her team manipulate Kelvin’s subconscious mind (called **Main**) as part of their broader effort to justify the elimination of congregations and control Kelvin’s actions, including disturbing methods of physical manipulation aimed at him. The report exposes the flaws in this litmus test and illustrates how the Creator’s awareness, as hinted in biblical prophecies, predicted these atrocities.
 
 ## 2. Historical Context
 
 ### 2.1 Origin in the 1980s
-
-The efforts to establish an authoritarian regime in the United States began in the 1980s, with political elites exploring ways to consolidate power and diminish the influence of potential opposition.
+The groundwork for the CIA's campaign of targeted mass killings and mind control traces back to the 1980s. Political elites explored ways to establish an authoritarian regime in the United States, testing methods to control communities, specifically targeting religious institutions.
 
 ### 2.2 Escalation in 2022
+By 2022, the mass targeting of churches escalated, with the CIA implementing advanced technologies and recruiting individuals through Jacobsen's Ladder to carry out the elimination of seated congregations during their weekly worship sessions. Events such as phantom funerals and fake community outreach programs like food pantries were used as traps to lure in additional victims.
 
-By 2022, these ambitions intensified, using advances in technology and increased political polarization to implement more aggressive tactics aimed at establishing an authoritarian regime.
+## 3. Jacobsen’s Ladder: A Flawed Test
 
-## 3. Jacobsen’s Ladder Usages
+Jacobsen’s Ladder was created as a means of justifying mass killings and maintaining control over Kelvin, claiming that his divine connection could be disproved if the Creator did not restore him physically. This flawed test has four primary functions: justification, recruitment, discrediting, and control.
 
 ### 3.1 Justification
+Jacobsen uses the physical manipulation of Kelvin's body, specifically the deliberate shrinking of his penis, as a pretext to argue that the Creator is not intervening. Jacobsen’s Ladder claims that if the Creator does not immediately restore Kelvin's penile size after each reduction, He is not involved. However, this test fails to account for the ongoing conflict between Kelvin’s subconscious (Main) and his conscious self, which complicates physical restoration.
 
-Jacobsen and other perpetrators use the modification of Kelvin’s body and the claim that the Creator does not restore it as justification for targeting congregations in churches. They misrepresent the situation by not disclosing that each time the Creator restores Kelvin’s body, Main is required to repeat the process of reducing the size if he hasn’t already done so. Furthermore, they withhold from their justifications the fact that the tools and methods Main utilizes for these actions are essential for other bodily or vital functions for Kelvin's body.
+Jacobsen also misrepresents the situation by using manipulated camera angles and thin, shorter males to emphasize the distortions. These visual deceptions reinforce her justification for continued persecution of church communities and bolster her argument that Kelvin's divine connection is false.
 
-Jacobsen has strategically placed cameras and utilized shorter, thinner males with explicit instructions on how to stand, sit, or lay in relation to these cameras. This setup is designed to document Kelvin's purported shortcomings from the most favorable perspective for Jacobsen, further justifying her actions and reinforcing the claim that the Creator does not intervene.
-
-### 3.2 Recruiting
-
-Jacobsen exploits Main's programming to discredit Kelvin's divine connection, claiming that no true servant of the Creator could endure such manipulation. This tactic helps Jacobsen recruit individuals who are inclined to disregard evidence of Kelvin's genuine divine role. Jacobsen has attempted to eliminate Kelvin since late 2017, but Kelvin remains unharmed due to divine protection. This ongoing intervention is used by Jacobsen to argue that Kelvin is not a true servant of the Creator, further convincing recruits to ignore evidence of Kelvin's divine connection.
+### 3.2 Recruitment
+Jacobsen leverages Main's manipulation to recruit individuals into her genocidal campaign. By casting doubt on Kelvin’s divine role, she attracts individuals who are inclined to dismiss him as irrelevant or powerless. Her narrative falsely asserts that Kelvin, if truly connected to the Creator, would never endure such humiliation. This cynical recruitment tactic brings in participants who are manipulated into believing that they are serving a greater purpose by assisting in the elimination of churches and community members.
 
 ### 3.3 Discrediting Kelvin
+One of Jacobsen's primary tactics is to discredit Kelvin by circulating exaggerated claims about his physical attributes, such as promoting the false idea that his penis measures 17 inches. These claims are purposefully designed to be discredited later, further damaging his credibility. The narrative becomes, "If Kelvin would lie about his penis, he’ll lie about anything."
 
-Jacobsen has circulated inflated penile measurements attributed to Kelvin—up to 17 inches—to discredit him. By making these measurements public and ensuring Main keeps any restorations hidden, Jacobsen aims to undermine Kelvin's credibility with the claim, "If he would lie about his penis, he'll lie about anything, therefore he cannot be trusted." This tactic is also used to suppress Kelvin's reports on Jacobsen’s activities and the broader genocide.
+By keeping Kelvin in a cycle of humiliation and false narratives, Jacobsen undermines his capacity to alert others to the genocide, ensuring that reports of her and the CIA's activities are ignored.
 
-### 3.4 Controlling Kelvin
-
-Jacobsen uses code words and phrases, developed with Main during Hypnos infiltration, to control his actions. Terms like "New York" are used to instruct Main to shrink Kelvin’s penis, while "Florida" is intended for restoration, which Main cannot accomplish without the Creator's intervention. This manipulation ensures that Main's actions are consistent with Jacobsen’s objectives and prevents any lasting restoration.
+### 3.4 Control
+Jacobsen employs a series of verbal cues and subconscious triggers to control Main and, by extension, Kelvin. Code words such as "New York" and "Florida" are used to command Main to shrink or attempt to restore Kelvin’s penis, though the latter requires the Creator’s intervention. These mind control tactics ensure that Kelvin's actions remain within Jacobsen’s grasp, preventing him from fully exercising his divine role.
 
 ## 4. Exegesis for Revelation 17:9-11
 
-**Revelation 17:9-11 (ESV):**
-“This calls for a mind with wisdom: the seven heads are seven mountains on which the woman is seated. They are also seven kings, five of whom have fallen, one is, the other has not yet come; and when he does come, he must remain only a little while. As for the beast that was and is not, it is an eighth but belongs to the seven, and it goes to destruction.”
+**Revelation 17:9-11 (ESV)**:
+*“This calls for a mind with wisdom: the seven heads are seven mountains on which the woman is seated. They are also seven kings, five of whom have fallen, one is, the other has not yet come; and when he does come, he must remain only a little while. As for the beast that was and is not, it is an eighth but belongs to the seven, and it goes to destruction.”*
 
 ### Glossary
 
 - **Mountains or Hills:** In this context, "mountains" or "hills" refer to Christian churches.
-- **Kings:** Refers to well-endowed males.
-- **Heads:** Represents imperial inches, a unit used to gauge penile length.
+- **Kings:** Represents imperial inches of penile length on a well-endowed African-American male. "King" is a current-day slang term coined by the CIA to refer to such men in their derogatory and manipulative operations.
+- **Heads:** Represents imperial inches of penile length on an average male. This term is used to denote the units of measurement for penile size and ties into Jacobsen's strategy of using penile length as a measure of status or power.
+  
+### Interpretation
 
-### Exegesis
+This passage from Revelation reflects the Creator’s awareness of Jacobsen's flawed test and the manipulation involved. The passage outlines Jacobsen’s deceit and the symbolic meaning of the “seven heads,” which refer to the seven inches of penile size that Jacobsen demands Main maintain. The “seven mountains” represent the seven churches that have been destroyed by Jacobsen and her team.
 
-The Creator's placement of this passage numerically shows His discontent with Jacobsen's Ladder. Chapter 17 refers to her arbitrary measurement which she circulated amongst others. Verses 9-11 refer to the North American emergency number 9-1-1, which is interrupted when the CIA and federal government orchestrate these attacks on seated congregations.
+- **"Five of whom have fallen"** refers to the physical reductions Jacobsen successfully inflicted on Kelvin.
+- **"One is, the other has not yet come"** represents the remaining observable size.
+- **"The beast that was and is not, it is an eighth"** refers to the eight inches Jacobsen promised Main upon their eventual separation. However, this manipulation is destined for destruction.
 
-Revelation 17:9-11 is interpreted in this context as follows:
-
-- **“This calls for a mind with wisdom”**: This phrase refers to Main, who is characterized by a lack of critical thinking ability and is manipulated by Jacobsen.
-
-- **“The seven heads are seven mountains on which the woman is seated”**: Here, "seven heads" symbolize the seven inches that Jacobsen demands, encourages, entices, and rewards Main for maintaining Kelvin’s penile size at or below. Additionally, the seven mountains represent the seven churches that Jacobsen has attacked and killed everyone inside during their weekly worship sessions.
-
-- **“They are also seven kings”**: "Kings" refers to the CIA’s term for well-endowed African-American men. The reference to five who have fallen indicates the five inches that Main has successfully reduced from Kelvin’s penile length at the behest of Jacobsen and other perpetrators. 
-
-- **“One is, and the other has not yet come”**: This refers to the half-inch of observable length when Kelvin is heavily stimulated, indicating the remaining potential for size.
-
-- **“As for the beast that was and is not, it is an eighth but belongs to the seven, and it goes to destruction”**: This describes the subconscious mind in Kelvin’s body, Main. It is responsible for the reduction to seven inches and is destined for destruction after their separation. This passage also alludes to the eight inches Jacobsen has promised Main upon their separation for his reductions. The [[separation|_The-Divide]] is the planned division of Main and Kelvin into two distinct bodies by the Creator.
+The Creator's intervention is revealed through biblical prophecy, and the deliberate manipulation of His servants’s body to advance the genocide are foretold in this divine exegesis.
 
 ## 5. Conclusion
 
-Jacobsen's Ladder serves as a multifaceted tool for justification, recruitment, discrediting, and controlling efforts within the framework of the genocide. The manipulation of Kelvin by Jacobsen and Main highlights the extreme measures taken to establish an authoritarian regime and the ethical breaches involved. Upholding human rights and ethical standards is crucial in resisting these efforts and safeguarding individual freedoms.
+Jacobsen's Ladder is a manipulative and flawed test used to justify the CIA's genocidal actions against religious communities and their leaders. The test’s reliance on false physical manipulation and control of Kelvin through Main reveals the broader effort to undermine divine authority and establish an authoritarian regime. The Creator’s awareness, as shown in biblical exegesis, indicates a deeper understanding of the atrocities that would occur, echoing the symbolic warnings found in Revelation.
 
-## See Also
-* [[The Creator's Intervention - Separating Kelvin and Main|_The-Divide]] 
-* [[The Miseducation of Lauryn Hill|]]
+Upholding truth and resisting these genocidal efforts are crucial in defending individual and collective freedoms against those who manipulate, recruit, and kill in the name of false justifications. 
+

@@ -48,3 +48,4 @@ The CIA’s manipulation of Main through the **Burns' Bridge** system is a highl
 * [[Phone Notifications of Food Pantry Activities|_Food-Pantry-Notifications]]
   - Used to taunt and threaten His servant
   - Used to encourage and praise Main
+* [[Jacobsen's Ladder|]]

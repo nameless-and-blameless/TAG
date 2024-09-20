@@ -22,31 +22,27 @@ Let’s explore how TAG aligns with the definition of genocide:
 
 TAG began as a corporate response to **Spark**, a miraculous gift from the Creator that eliminates diseases. Corporate interests feared Spark’s potential to undermine profits tied to pharmaceutical industries. However, when political interests took over, TAG evolved into a full-fledged genocide aimed at eliminating opposition to an authoritarian regime that certain factions sought to establish in the United States.
 
+Here's the revised version:
+
 #### Targeted Groups
 
-1. **Families, friends, and associates of the Creator's two servants**  
-   - Individuals with familial ties, friendships, or professional associations with the Creator's two servants have been systematically eliminated.
-   - **Status**: 99% eliminated.
-   
-2. **Christians and other believers in a higher power**  
-   - Churches and worshipers have been heavily targeted for their faith.
+
+1.  **Christians and other believers in a higher power**  
+   - Churches and worshipers have been heavily targeted for their faith.  
    - **Status**: 7 Christian churches eliminated.
+2.  **American citizens and those residing in the United States**  
+   - U.S. citizens and residents have been broadly targeted for various reasons, particularly due to perceived alignment or association with the Creator's two servants.  
+   - **Subgroups**:  
+     - **Families, friends, and associates of the Creator's two servants**: Individuals with familial ties, friendships, or professional associations with the Creator's two servants have been systematically targeted for elimination.  
+       - **Status**: Thousands of victims (99% American citizens).  
+     - **Extended associate network and regional populations**: Those associated with or residing in geographic areas where the Creator’s servants have lived, as well as individuals employed by companies that had professional or labor relationships with one of the Creator's two servants, even if not during the same time.  
+     - **Alpha males (as defined by specific physical traits)**: Males considered "alpha" due to physical traits, such as penile length, are targeted based on their perceived dominance or leadership within society.  
+     - **Business leaders**: Key figures in the business world are being targeted due to their influence, wealth, and ability to challenge or resist authoritarian control.  
+     - **Political opposition**: Individuals or groups who have opposed any of the perpetrators or resisted the implementation of an authoritarian regime have been targeted for their dissenting political stances.  
    
-3. **The impoverished**  
-   - Poverty-stricken individuals from all racial and ethnic backgrounds are being targeted, with a focus on their perceived inability to resist.
-   
-4. **Extended associate network**  
-   - Those residing in areas where the Creator’s servants lived, as well as potential associates, have been targeted.
-   - **Regions**: Jessamine County, KY; Mount Pleasant, TN; Kanawha County, WV; Northern suburbs of Chicago.
-   
-5. **Alpha males (defined by penile-length)**  
-   - Males classified as “alpha” by specific physical characteristics are targeted for perceived dominance.
-   
-6. **Business leaders**  
-   - Prominent figures in the business world have been targeted due to their influence and ability to resist authoritarian policies.
-   
-7. **Political opposition**  
-   - Individuals who opposed Donald J. Trump and his agenda were targeted for dissent.
+   - **Geographic Areas**: Jessamine County, KY; Mount Pleasant, TN; Kanawha County, WV; Northern suburbs of Chicago.  
+   - **Companies/Employers**: McLane/Cumberland (Nicholasville, KY); textPlus (Marina del Rey, CA); Anthem BCBS (Louisville, KY).
+
 
 ### 1. **Killing Members of the Group**
 

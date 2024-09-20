@@ -74,31 +74,48 @@ TAG has also seen a series of attacks on religious institutions during their wor
 
 The perpetrators have attacked the following churches:
 
-- **Mount Calvary Baptist Church**  
-   - **Location**: 4742 Todds Road, Lexington, KY  
-   - **Date**: April 2, 2023  
-   - **Casualties**: 127  
+1. **Mount Calvary Baptist Church**
+   - Location: 4742 Todds Road, Lexington, Kentucky
+   - Congregation: Predominantly African American
+   - Date: April 2, 2023
+   - Casualties: 127
 
-- **House of God (Georgetown Street)**  
-   - **Location**: Lexington, KY  
-   - **Date**: May 2023  
-   - **Casualties**: 300+
+2. **Lexington Bethel Baptist Church**
+   - Location: 4686 Todds Road, Lexington, Kentucky
+   - Congregation: Predominantly Caucasian
+   - Date: May 2023
+   - Casualties: 250+
 
-- **Lexington Bethel Baptist Church**  
-   - **Location**: Lexington, KY  
-   - **Date**: May 2023  
-   - **Casualties**: 250+
+3. **House of God (Georgetown Street)**
+   - Location: Georgetown Street, Lexington, Kentucky
+   - Congregation: Predominantly African American
+   - Date: May 2023
+   - Casualties: 300+
 
-- **Mount Zion Baptist Church**  
-   - **Location**: Georgetown, KY  
-   - **Date**: June 2023  
-   - **Casualties**: 166
+4. **House of God (Broadway)**
+   - Location: Broadway, Lexington, Kentucky
+   - Congregation: Predominantly African American
+   - Date: May 2023
+   - Casualties: 300+
 
-- **Hickory Valley Christian Church**  
-   - **Location**: Chattanooga, TN  
-   - **Date**: May 12, 2024  
-   - **Casualties**: 1000+
+5. **Mount Zion Baptist Church**
+   - Location: Georgetown, Kentucky
+   - Congregation: Predominantly African American
+   - Date: June 2023
+   - Casualties: 166
 
+6. **Calvary Baptist Church**
+   - Location: High Street, Lexington, Kentucky
+   - Congregation: Predominantly Caucasian
+   - Date: May 12, 2023
+   - Casualties: 400+
+
+7. **Hickory Valley Christian Church**
+   - Location: Shallowford Road, Chattanooga, Tennessee
+   - Congregation: Predominantly Caucasian
+   - Date: May 12, 2024
+   - Casualties: 1000+
+   
 These churches were used by perpetrators to lure victims under the guise of mock services, food pantries, and social events.
 
 ### 2. **Causing Serious Bodily or Mental Harm**

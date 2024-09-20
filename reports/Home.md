@@ -11,7 +11,7 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
        - [[The Creator's two servants|]]
        - [[The Creator & the Arts|The-Creator-and-the-Arts]]
          - [[Artists TAGd|]]
-     - [[TAG: By Definition, A Genocide|TAGD3F]]
+     - [[TAG: By Definition, A Genocide|TAGDEF]]
      - [[TAG's Origins|TAG]]
      - [[TAG in Places of Worship|TAGPOW]]
      - [[How They Hide TAG|Tactics-Utilized-In-TAG]]

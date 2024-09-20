@@ -26,7 +26,6 @@ Here's the revised version:
 
 #### Targeted Groups
 
-
 1.  **Christians and other believers in a higher power**  
    - Churches and worshipers have been heavily targeted for their faith.  
    - **Status**: 7 Christian churches eliminated.

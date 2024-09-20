@@ -136,6 +136,11 @@ Lyricists should not be persecuted for their works, as their creations often ref
   - **Reason for Being Targeted:** Appears on Whitney Houston's "Somebody Bigger Than You and I"
   - **Status:** Endangered
 
+- **Gladys Knight**
+  - **Occupation:** Performer
+  - **Reason for Being Targeted:** End of the Road Medley (the Creator's nameless/main divide)
+  - **Status:** Endangered
+
 - **Ana Matronic**
   - **Occupation:** Vocals (The Scissor Sisters)
   - **Reason for Being Targeted:** The Magic Hour

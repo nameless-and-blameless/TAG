@@ -1,5 +1,4 @@
 # The Big Setup
-
 ## Introduction
 
 The American Genocide (TAG) refers to a series of covert operations involving mass killings and targeted killings carried out by the Central Intelligence Agency (CIA) under the direction of "Hurricane Annie" Jacobsen. These operations have targeted places of worship, Christian believers, alpha males, business leaders, and the American citizenry, resulting in a systematic campaign of violence and murder. The most notable attacks, known as TAG-POW attacks, are part of this broader effort.
@@ -70,13 +69,6 @@ The Creator advises that the shift back to previous operatives is a calculated s
 
 The Big Setup reveals the horrifying reality behind TAG and the phantom funerals orchestrated under the direction of Donald Trump. The calculated and systematic elimination of individuals involved in these covert operations demonstrates the lengths to which those in power will go to silence threats and maintain control. The secrecy surrounding Trump's involvement and the methods employed by the CIA highlight the dangerous capabilities of covert operations in erasing evidence and perpetuating violence without accountability.
 
-## Likely Seized Opportunity 
-* Mount Zion Baptist Church, Georgetown, KY
-     - Completely renovated after massacre.
-     - Perfect backdrop for perp walk.
-     - A bunch of actors will discredits reporting.
-     - Community outpouring of support == new waves of victims.
-     - BUT THEY DO NOT LISTEN: Lauryn Hill - The Miseducation of Lauryn Hill - To Zion
-     - Likely August 26, 2024
-* Hickory Valley Christian Church
-     - Likely August 26, 2024
+***
+#### Related
+* [[Urgent Advisory for Mosques|_JW20240922]]

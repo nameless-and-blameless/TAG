@@ -66,6 +66,9 @@ The objectives of this mission, carried out under the guise of national security
      Both Presidents Biden and Trump were in Apt B33 to witness another attempt on His servant. It failed.
 
      The Creator's servant notified them that innocent civilians were being killed at their food pantry mass-killing operations in Kentucky.  Neither made an attempt to stop it.
+
+- **September 21, 2024 - 9:30 PM**
+     His servant told Secret Service agents that "security through obscurity" IS NOT SECURITY amd cloaking protectees in Uptowm (Atlanta) is dangerous and reckless.
   
      Since their arrival, the delegation has still not engaged in a dialogue with the His servant while he was consciously aware.
 

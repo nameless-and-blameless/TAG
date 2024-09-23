@@ -42,9 +42,6 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
   - Unpacking: Shady Love [[TAG wiki|Shady Love]]
 
 ## Massacres and Tragedies
-- Sandy Hook Massacre [[TAG wiki|Sandy Hook Massacre]]
-- Orr Chapel Tragedy [[TAG wiki|Orr Chapel Tragedy]]
-Here’s a table created from the *Massacres and Tragedies* section, with the columns for **Church & Location**, **Demographics**, **Casualties**, and **TAG wiki**:
 
 | **Church & Location**                                                                        | **Demographics**              | **Casualties**                      | **TAG wiki**                                             |
 |-----------------------------------------------------------------------------------------------|-------------------------------|-------------------------------------|----------------------------------------------------------|
@@ -58,15 +55,6 @@ Here’s a table created from the *Massacres and Tragedies* section, with the co
 | Calvary Baptist Church, Lexington, KY (Mother's Day 2024)                                     | Predominantly White            | 400+                       | [[Calvary Baptist Church]]                                |
 | Hickory Valley Christian Church, Suburban Chattanooga, TN (Mother's Day 2024)                 | Predominantly White            | 1,000+                       | [[Hickory Valley Christian Church]]                       |
 
-
-
-- The massacre of Mount Calvary Baptist Church, a predominantly black congregation in Lexington, KY on April 2, 2023 [[TAG wiki|Mount Calvary Baptist Church]]
-- The massacre of House of God on Georgetown Street, a predominantly black congregation in Lexington, KY in May 2023 [[TAG wiki|House of God (Georgetown Street)]]
-- The massacre of House of God on Broadway, a predominantly black congregation in Lexington, KY in May 2023 [[TAG wiki|House of God (Broadway)]]
-- The massacre of Lexington Bethel Baptist Church, a predominantly white congregation in Lexington, KY in June 2023 [[TAG wiki|Lexington Bethel Baptist Church]]
-- The massacre of Mount Zion Baptist Church, a predominantly black congregation in Georgetown, KY [[TAG wiki|Mount Zion Baptist Church]]
-- The massacre of Calvary Baptist Church, a predominantly white congregation in Lexington, KY on Mother's Day 2024 [[TAG wiki|Calvary Baptist Church]]
-- The massacre of Hickory Valley Christian Church, a predominantly white congregation in suburban Chattanooga on Mother's Day 2024 [[TAG wiki|Hickory Valley Christian Church]]
 
 ## Notable Individuals
 - John Grootegoed and Gabrielle Galardo [[TAG wiki|John and Gabrille Galardo Grootegoed]]

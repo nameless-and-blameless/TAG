@@ -32,7 +32,7 @@ The operatives arranged their own transportation, many carpooling as instructed,
 
 At approximately 1:30 am on the day of the attack, Kelvin was arrested for shoplifting at a Texaco in Riverdale, Georgia. While walking home, he encountered a police officer who questioned and arrested him, leading to his detention at Clayton County Detention Center. Kelvin faced multiple attempts on his life while in custody.
 
-Jacobsen arrived at Mount Calvary Baptist Church around 11:30am to attend the morning worship session. She sat quietly and directed everything from her cell phone by messaging colleagues, including the Director of the CIA, and certain operatives.
+Jacobsen and Michael Blackmon arrived at Mount Calvary Baptist Church around 11:30am to attend the morning worship session. They sat quietly and Jacobsen directed everything from her cell phone by messaging colleagues, including the Director of the CIA, and certain operatives.
 
 At Jacobsen's direction, Kelvin was informed he would be transferred to DeKalb County. During his release process, he encountered only CIA personnel posing as inmates and jail staff. No charges were pressed in Clayton County.  Upon release, he was placed in a DeKalb County Sheriff's SUV.  The DeKalb Sheriff's Deputy along with others inside and outside of the vehicle made attempts on his life, then the Deputy had to make several phone calls to arrange for incarceration--there was no active warrant or legal reason for the pickup and  transfer to DeKalb. 
 

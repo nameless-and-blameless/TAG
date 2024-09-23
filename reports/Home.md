@@ -1,3 +1,4 @@
+
 # TAG Wiki: Unveiling The American Genocide
 
 Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reality of a hidden genocide occurring right before our eyes. TAG is not just a name; it's a stark representation of the systematic eradication of individuals across the United States.
@@ -29,3 +30,49 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 
 > [!WARNING]
 > Should the United States federal government seek to interfere with our divine mission, we will call upon [[the Creator|]] for **the continued** protection of His work. Thank you for your understanding and respect.
+***
+# TAG Wiki Links
+
+## The Creator and Servants
+- The Creator [[TAG wiki|The Creator]]
+  - The Creator's two servants [[TAG wiki|The Creator's two servants]]
+- The Creator's Statement on Crimes [[TAG wiki|Statement on Crimes]]
+  - Presidents Biden & Trump Make TOP-SECRET Trip to Atlanta [[TAG wiki|Presidential Visit]]
+- The Creator’s Influence on the Arts to Reveal Hidden Realities and Provide Direct Access to Truth [[TAG wiki|The Creator and The Arts]]
+  - Unpacking: Shady Love [[TAG wiki|Shady Love]]
+
+## Massacres and Tragedies
+- Sandy Hook Massacre [[TAG wiki|Sandy Hook Massacre]]
+- Orr Chapel Tragedy [[TAG wiki|Orr Chapel Tragedy]]
+- The massacre of Mount Calvary Baptist Church, a predominantly black congregation in Lexington, KY on April 2, 2023 [[TAG wiki|Mount Calvary Baptist Church]]
+- The massacre of House of God on Georgetown Street, a predominantly black congregation in Lexington, KY in May 2023 [[TAG wiki|House of God (Georgetown Street)]]
+- The massacre of House of God on Broadway, a predominantly black congregation in Lexington, KY in May 2023 [[TAG wiki|House of God (Broadway)]]
+- The massacre of Lexington Bethel Baptist Church, a predominantly white congregation in Lexington, KY in June 2023 [[TAG wiki|Lexington Bethel Baptist Church]]
+- The massacre of Mount Zion Baptist Church, a predominantly black congregation in Georgetown, KY [[TAG wiki|Mount Zion Baptist Church]]
+- The massacre of Calvary Baptist Church, a predominantly white congregation in Lexington, KY on Mother's Day 2024 [[TAG wiki|Calvary Baptist Church]]
+- The massacre of Hickory Valley Christian Church, a predominantly white congregation in suburban Chattanooga on Mother's Day 2024 [[TAG wiki|Hickory Valley Christian Church]]
+
+## Notable Individuals
+- John Grootegoed and Gabrielle Galardo [[TAG wiki|John and Gabrielle Galardo Grootegoed]]
+- Nanea Reeves [[TAG wiki|Nanea Reeves]]
+
+## Government and Cover-ups
+- How the government uses Donald Trump to cover it up [[TAG wiki|Donald J. Trump]]
+- The cover-up operations that kill mourners at fake funerals designed to kill a victim's associates [[TAG wiki|Phantom Funeral]]
+  - How attending the funeral of Rev. Duke Stone's phantom funeral resulted in the deaths of over 600 mourners, with Trump watching [[TAG wiki|Phantom Funeral of Rev. Duke Stone]]
+  - How Trump used the phantom funeral of Zachary Stone to kill intentionally Senator Blackburn and others [[TAG wiki|Phantom Funeral of Zachary Stone]]
+  - How Trump and the perpetrators used the phantom funeral of Senator Marsha Blackburn to silence political opposition [[TAG wiki|Phantom Funeral of Senator Marsha Blackburn]]
+
+## Alpha Males and Genocide
+- The solutions for alpha males [[TAG wiki|Targeting Alpha Males]]
+- The Treatment of Alpha Males During The American Genocide [[TAG wiki|Treatment of Alpha Males during TAG]]
+
+## Arts and Murders
+- Numerous performing artists and musicians murdered [[TAG wiki|Artists TAGd]]
+  - Madonna is dead and Impersonated [[TAG wiki|Madonna]]
+
+## Additional Insights
+- Why 911 failed & How they keep a genocide hidden [[TAG wiki|Tactics Utilized In TAG]]
+- The CIA's masquerade: Mount Calvary Missionary Baptist Church, Inc. [[TAG wiki|MCMBCI]]
+- The Revelation & Apocalypse [[TAG wiki|Revelation]]
+  - The Judgment of Satan, Donald J. Trump [[TAG wiki|The Judgment of Satan]]

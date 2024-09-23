@@ -41,20 +41,17 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 - The Creator’s Influence on the Arts to Reveal Hidden Realities and Provide Direct Access to Truth [[TAG wiki|The Creator and The Arts]]
   - Unpacking: Shady Love [[TAG wiki|Shady Love]]
 
-## Massacres and Tragedies
+## Church Massacres and Tragedies
 
-| **Church & Location**                                                                        | **Demographics**              | **Casualties**                      | **TAG wiki**                                             |
-|-----------------------------------------------------------------------------------------------|-------------------------------|-------------------------------------|----------------------------------------------------------|
-| Sandy Hook Massacre | Family of one of the Creator's two servants (mixed) | ~200 | [[Sandy Hook Massacre]] |
-| Orr Chapel Tragedy | Predominantly Black | 3,000+ | [[Orr Chapel Tragedy]]  |
-| Mount Calvary Baptist Church, Lexington, KY (April 2, 2023)                                   | Predominantly Black            | 126                       | [[Mount Calvary Baptist Church]]                          |
-| Lexington Bethel Baptist Church, Lexington, KY (June 2023)                                    | Predominantly White            | 250                     | [[Lexington Bethel Baptist Church]]                       |
-| House of God, Georgetown Street, Lexington, KY (May 2023)                                     | Predominantly Black            | 300+                       | [[House of God (Georgetown Street)]]                      |
-| House of God, Broadway, Lexington, KY (May 2023)                                              | Predominantly Black            | 300+                        | [[House of God (Broadway)]]                               |
-
-| Mount Zion Baptist Church, Georgetown, KY                                                     | Predominantly Black            | 200+                       | [[Mount Zion Baptist Church]]                             |
-| Calvary Baptist Church, Lexington, KY (Mother's Day 2024)                                     | Predominantly White            | 400+                       | [[Calvary Baptist Church]]                                |
-| Hickory Valley Christian Church, Suburban Chattanooga, TN (Mother's Day 2024)                 | Predominantly White            | 1,000+                       | [[Hickory Valley Christian Church]]                       |
+| **Church & Location**                                                                        | **Casualties**                  | **TAG wiki**                                             |
+|-----------------------------------------------------------------------------------------------|---------------------------------|----------------------------------------------------------|
+| Mount Calvary Baptist Church, Lexington, KY (April 2, 2023)                                   | 127                             | [[Mount Calvary Baptist Church]]                          |
+| Lexington Bethel Baptist Church, Lexington, KY (May 2023)                                     | 250+                            | [[Lexington Bethel Baptist Church]]                       |
+| House of God, Georgetown Street, Lexington, KY (May 2023)                                     | 300+                            | [[House of God (Georgetown Street)]]                      |
+| House of God, Broadway, Lexington, KY (May 2023)                                              | 300+                            | [[House of God (Broadway)]]                               |
+| Mount Zion Baptist Church, Georgetown, KY (June 2023)                                         | 166                             | [[Mount Zion Baptist Church]]                             |
+| Calvary Baptist Church, Lexington, KY (May 12, 2023)                                          | 400+                            | [[Calvary Baptist Church]]                                |
+| Hickory Valley Christian Church, Suburban Chattanooga, TN (May 12, 2024)                      | 1000+                           | [[Hickory Valley Christian Church]]                       |
 
 
 ## Notable Individuals

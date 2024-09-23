@@ -46,7 +46,7 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 | **Church & Location**                                                                        | **Demographics**              | **Casualties**                      | **TAG wiki**                                             |
 |-----------------------------------------------------------------------------------------------|-------------------------------|-------------------------------------|----------------------------------------------------------|
 | Sandy Hook Massacre | Black | ~200 | [[Sandy Hook Massacre]] |
-| Orr Chapel Tragedy | Predominantly Black | 3,000+ | [[Orr Chapel Tragedy|]]  |
+| Orr Chapel Tragedy | Predominantly Black | 3,000+ | [[Orr Chapel Tragedy]]  |
 | Mount Calvary Baptist Church, Lexington, KY (April 2, 2023)                                   | Predominantly Black            | 126                       | [[Mount Calvary Baptist Church]]                          |
 | House of God, Georgetown Street, Lexington, KY (May 2023)                                     | Predominantly Black            | 300+                       | [[House of God (Georgetown Street)]]                      |
 | House of God, Broadway, Lexington, KY (May 2023)                                              | Predominantly Black            | 300+                        | [[House of God (Broadway)]]                               |

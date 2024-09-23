@@ -44,6 +44,20 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 ## Massacres and Tragedies
 - Sandy Hook Massacre [[TAG wiki|Sandy Hook Massacre]]
 - Orr Chapel Tragedy [[TAG wiki|Orr Chapel Tragedy]]
+Here’s a table created from the *Massacres and Tragedies* section, with the columns for **Church & Location**, **Demographics**, **Casualties**, and **TAG wiki**:
+
+| **Church & Location**                                                                        | **Demographics**              | **Casualties**                      | **TAG wiki**                                             |
+|-----------------------------------------------------------------------------------------------|-------------------------------|-------------------------------------|----------------------------------------------------------|
+| Mount Calvary Baptist Church, Lexington, KY (April 2, 2023)                                   | Predominantly Black            | 126                       | [[Mount Calvary Baptist Church]]                          |
+| House of God, Georgetown Street, Lexington, KY (May 2023)                                     | Predominantly Black            | 300+                       | [[House of God (Georgetown Street)]]                      |
+| House of God, Broadway, Lexington, KY (May 2023)                                              | Predominantly Black            | 300+                        | [[House of God (Broadway)]]                               |
+| Lexington Bethel Baptist Church, Lexington, KY (June 2023)                                    | Predominantly White            | 250                     | [[Lexington Bethel Baptist Church]]                       |
+| Mount Zion Baptist Church, Georgetown, KY                                                     | Predominantly Black            | 200+                       | [[Mount Zion Baptist Church]]                             |
+| Calvary Baptist Church, Lexington, KY (Mother's Day 2024)                                     | Predominantly White            | 400+                       | [[Calvary Baptist Church]]                                |
+| Hickory Valley Christian Church, Suburban Chattanooga, TN (Mother's Day 2024)                 | Predominantly White            | 1,000+                       | [[Hickory Valley Christian Church]]                       |
+
+
+
 - The massacre of Mount Calvary Baptist Church, a predominantly black congregation in Lexington, KY on April 2, 2023 [[TAG wiki|Mount Calvary Baptist Church]]
 - The massacre of House of God on Georgetown Street, a predominantly black congregation in Lexington, KY in May 2023 [[TAG wiki|House of God (Georgetown Street)]]
 - The massacre of House of God on Broadway, a predominantly black congregation in Lexington, KY in May 2023 [[TAG wiki|House of God (Broadway)]]

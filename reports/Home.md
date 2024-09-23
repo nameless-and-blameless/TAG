@@ -53,7 +53,7 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 - The massacre of Hickory Valley Christian Church, a predominantly white congregation in suburban Chattanooga on Mother's Day 2024 [[TAG wiki|Hickory Valley Christian Church]]
 
 ## Notable Individuals
-- John Grootegoed and Gabrielle Galardo [[TAG wiki|John and Gabrielle Galardo Grootegoed]]
+- John Grootegoed and Gabrielle Galardo [[TAG wiki|John and Gabrille Galardo Grootegoed]]
 - Nanea Reeves [[TAG wiki|Nanea Reeves]]
 
 ## Government and Cover-ups
@@ -73,6 +73,6 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 
 ## Additional Insights
 - Why 911 failed & How they keep a genocide hidden [[TAG wiki|Tactics Utilized In TAG]]
-- The CIA's masquerade: Mount Calvary Missionary Baptist Church, Inc. [[TAG wiki|MCMBCI]]
+- The CIA's masquerade: Mount Calvary Missionary Baptist Church, Inc. [[TAG wiki|_MCMBCI]]
 - The Revelation & Apocalypse [[TAG wiki|Revelation]]
   - The Judgment of Satan, Donald J. Trump [[TAG wiki|The Judgment of Satan]]

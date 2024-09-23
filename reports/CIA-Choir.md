@@ -18,6 +18,8 @@ The primary objectives of the choir are:
 - The **Surveillance Choir** has been photographed at several churches that later suffered coordinated assaults. This pattern strongly suggests their involvement in gathering pre-attack intelligence for planning purposes.
   
 - **Mount Calvary Baptist Church:** Two weeks before the fatal attack on April 2, 2023, the Surveillance Choir was photographed at the church. This photo, later obtained by one of the Creator's two servants, was included as part of the letterhead response to a letter he had sent. This crucial piece of evidence links the choir's presence directly to the reconnaissance conducted prior to the assault.
+![Screenshot_20240923-011420](https://github.com/user-attachments/assets/0a016ad6-087a-4478-9316-d2baccbc5291)
+
 
 - The **choir’s visits** to targeted churches are carefully timed to ensure maximum effectiveness. By attending services and integrating with the congregation, the choir collects critical data to facilitate seamless, high-intensity operations when the attack occurs.
 

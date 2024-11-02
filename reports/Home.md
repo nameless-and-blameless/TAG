@@ -65,10 +65,13 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
   - How Trump used the phantom funeral of Zachary Stone to kill intentionally Senator Blackburn and others [[TAG wiki|Phantom Funeral of Zachary Stone]]
   - How Trump and the perpetrators used the phantom funeral of Senator Marsha Blackburn to silence political opposition [[TAG wiki|Phantom Funeral of Senator Marsha Blackburn]]
 
-## Alpha Males and Genocide
+## Targeted Groups
+### Alpha Males and Genocide
 - The solutions for alpha males [[TAG wiki|Targeting Alpha Males]]
 - The Treatment of Alpha Males During The American Genocide [[TAG wiki|Treatment of Alpha Males during TAG]]
 
+### Inmates
+- Inmates, sentenced and otherwise, used to eliminate others then themselves eliminated [[Inmates|]]
 ## Arts and Murders
 - Numerous performing artists and musicians murdered [[TAG wiki|Artists TAGd]]
   - Madonna is dead and Impersonated [[TAG wiki|Madonna]]

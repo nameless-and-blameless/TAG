@@ -39,9 +39,9 @@ The Creator, revered globally across cultures, is the creator of both life and t
 The Creator, in partnership with His two servants, is actively working to expose and end *The American Genocide*. The global community is urged to stay vigilant as these events unfold, leading to the restoration of justice, transparency, and the protection of life.
 
 ## Media
+
 The Creator has instructed His two servants to hold a media briefing to shed
 light on The American Genocide. The briefing will take place at noon immediately following the seismic earthquakes, and may be held on Sunday, at the site of Orr Chapel, and the Orr Chapel and Sheepneck cemeteries, 8397 West Sheepneck Road, Sandy Hook (Mount Pleasant), Tennessee.
----
 
 #### See Also
 * [[Tri State Crematorium|]]

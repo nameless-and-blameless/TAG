@@ -53,6 +53,7 @@ Music Reference: In Prince's 1982 song "1999," a line in some mixes features a c
 
 Media and Public Perception: The term "Mother of All Bombs" has been used in news media and documentaries as an emblem of extreme force and intimidation, amplifying the MOAB's impact as a psychological deterrent in addition to its tactical role on the battlefield.
 
+See [[Planned MOAB use during Apocalypse|_PlannedMOABUse]]
 7. Conclusion
 
 The MOAB remains a significant asset in the U.S. military’s arsenal, particularly useful for operations against heavily fortified targets and in settings where large-scale psychological impact is desired. Its blast radius of up to 1 mile ensures its role as both a tactical and symbolic weapon, illustrating the devastating force the U.S. can bring to bear in unconventional warfare.

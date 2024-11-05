@@ -1,3 +1,5 @@
+> [!NOTE]
+> This is a time sensitive draft.
 # Comprehensive Report: Planned Use of a MOAB Over Capitol View Neighborhood, Atlanta, Georgia
 
 ## Overview

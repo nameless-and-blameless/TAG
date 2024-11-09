@@ -29,7 +29,6 @@ The Creator (God) has provided clarity on the following key aspects of Revelatio
   
 - **Current Fulfillment**: 
     - **Deployment to Places of Worship**: Operatives were strategically sent to central Kentucky, particularly to the Cumberland Plateau, to execute mass killings in targeted places of worship—symbolized as the “camp of God’s people.” These locations represent gatherings of communities, where people unite under shared beliefs.  
-    - **Attempted Assassination at Phoenix House**: Trump’s operatives also arrived at Phoenix House in Atlanta, where one of the Creator’s servants resides, in an attempt to kill this servant. For days, they tried without success, as the Creator’s protection shielded the servant despite their relentless pursuit. In this scenario, Phoenix House is represented as "the city he loves," symbolizing a sanctuary under divine protection.
 
 ### 4. **"But fire came down from heaven and devoured them."**
 

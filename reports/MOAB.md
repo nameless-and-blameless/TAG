@@ -66,25 +66,7 @@ The MOAB was first tested in 2003 and used in combat in Afghanistan in 2017 to d
 ### Why Use the MOAB?
 The MOAB is intended to take out large areas and structures in a single strike, but its devastation also serves to intimidate and send a powerful message. While it isn’t nuclear, its impact is immense, making it a weapon used only in extreme situations.
 
-## Section 6: Apocalyptic Context and the Creator's Statement
-
-The planned bombing is condemned as a grave injustice linked to The American Genocide (TAG), a covert operation aimed at marginalizing specific groups. The Creator states that this operation is a direct fulfillment of the first "bowl of wrath" as described in **Revelation 16:2**, which reads:
-
-> *"So the first angel went and poured out his bowl on the land, and ugly, festering sores broke out on the people who had the mark of the beast and worshiped its image."* (Revelation 16:2, NIV)
-
-This is not part of the Creator's divine intervention, which includes the forthcoming earthquakes and His servants’ planned media briefing. The bombing is an attempt to hide the atrocities of TAG and delay the inevitable exposure of those responsible.
-
-#### Explanation of Revelation 16:2
-
-- **The Angel**: In the context of Revelation, the word "angel" refers to a servant who carries out specific instructions. The "angel" in this passage is the Air Force pilot who will execute the MOAB bombing as per his commander's orders.
-  
-- **The Festering Sores**: These are symbolic of the injuries sustained by the victims in the immediate blast radius, who will endure severe suffering as a result of the bombing.
-
-- **The Beast**: According to the Creator, the "beast" is former President Donald J. Trump, the primary architect of TAG. Trump has secretly visited Phoenix House multiple times since August 2024, coordinating actions in support of the genocide.
-
-- **Those Who Worship the Beast**: These are the individuals involved in perpetrating TAG-related operations in and around the Capitol View neighborhood, working under the influence of the beast and contributing to the systematic violence.
-
-## Section 7: Presidential Visit to Phoenix House
+## Section 6: Presidential Visit to Phoenix House
 
 The decision to deploy the MOAB was reached after a **TOP-SECRET** Presidential mission to Phoenix House. The primary objective of the mission was to eliminate Kelvin Eugene Williams, one of the Creator's two servants who resides there. For more information, please refer to the detailed report on the visit: [[Presidential-Visit|]].
 

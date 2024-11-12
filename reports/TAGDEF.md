@@ -65,9 +65,7 @@ These counties have seen numerous targeted killings, leaving thousands dead, pri
 
 #### Mass Killing
 
-TAG has also seen a series of attacks on religious institutions during their worship services. Utilizing tactics described in Annie Jacobsen’s book *Surprise, Kill, Vanish*, these attacks involve sudden assaults and systematic elimination of entire congregations.
-
-The perpetrators have attacked the following churches:
+The following churches were sites of coordinated, surprise assaults during their respective weekly worship services. Each attack resulted in the death of all worshipers present:
 
 1. **Mount Calvary Baptist Church**
    - Location: 4742 Todds Road, Lexington, Kentucky
@@ -111,7 +109,16 @@ The perpetrators have attacked the following churches:
    - Date: May 12, 2024
    - Casualties: 1000+
    
-These churches were used by perpetrators to lure victims under the guise of mock services, food pantries, and social events.
+#### **Subsequent Targeted Killings**
+TAG's operations did not stop with the initial assaults. Members who were not present during these tragic events were later identified and systematically eliminated through targeted killings, ensuring that the church communities were decimated and unable to regroup or share information about the massacres.
+
+#### **Masquerade Churches as Killing Sites**
+TAG perpetrators have taken control of these locations and operated them as **masquerade churches**. Under the guise of legitimate religious and community functions, they have hosted:
+
+- **Funerals** for earlier victims of TAG operations.
+- **Charitable services**, including food pantries and assistance programs.
+
+These events are designed with a sinister purpose: to lure anyone associated with the original victims or affiliated with the targeted churches, ensuring their elimination. The masquerade churches are fronts for continued acts of violence, ensuring that survivors, family members, and community supporters face ongoing danger.
 
 ### 2. **Causing Serious Bodily or Mental Harm**
 

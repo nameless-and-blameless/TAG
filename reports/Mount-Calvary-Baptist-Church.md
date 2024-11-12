@@ -63,9 +63,8 @@ The vehicles belonging to the congregants were driven away by operatives or load
 Each victim's death is further obscured by a CIA-devised "[[Phantom Identity Scheme|]]." The scheme effectively makes victims appear "alive" after their murder.
 
 ### Aftermath 
-The CIA formed Mount Calvary Missionary Baptist Church, Inc., a charade church, after the massacre to portray a sense of normalcy. They added "Missionary" to the name in response to the Creator's mission.
+Members and individuals affiliated with Mount Calvary Baptist Church were systematically identified and eliminated in targeted killings, ensuring the complete erasure of those who could reveal the truth. Despite these events, the local community remains entirely unaware of the massacre that claimed the lives of all attendees. To maintain this secrecy and extend their operations, the CIA established Mount Calvary Missionary Baptist Church, Inc., a masquerade church that continues TAG’s acts of violence. This façade hosts mock services and community events to project a sense of normalcy, masking the ongoing dangers that persist within its walls.
 
-For all of the proof anyone should ever need, see: [[40th Pastoral Anniversary|_MCMBCI]]
 
 > [!IMPORTANT]
 > All correspondence between Mount Calvary Missionary Baptist Church, Inc. and Kelvin Williams is available in the repository at https://GitHub.com/MCBCMF/MCBCMassacre (see /assets/pdf). Anyone investigating must review this correspondence and other critical materials. We strongly recommend cloning the repository immediately, as the government is forcing GitHub to remove it.

@@ -1,7 +1,7 @@
 # Mount Calvary Missionary Baptist Church, Inc.
 
 ## Overview
-Mount Calvary Missionary Baptist Church, Inc. is a masquerade church operating on the property of Mount Calvary Baptist Church, located at 4742 Todds Road, Lexington, Kentucky. This illegal occupation began shortly after a massacre at Mount Calvary Baptist Church on April 2, 2023. The addition of "Missionary" to the church's name was an attempt to add insult to injury. Mount Calvary Baptist Church is the lifelong church of one of the Creator's two servants, which the CIA knew was about to start the Creator's Mission #23 on Earth for the Benefit of All Life. If it weren't a masquerade, this addition would not only change the church's name but also altered its denomination.
+Mount Calvary Missionary Baptist Church, Inc. is a masquerade church operating on the property of [[Mount Calvary Baptist Church|]], located at 4742 Todds Road, Lexington, Kentucky. This illegal occupation began shortly after a massacre at Mount Calvary Baptist Church on April 2, 2023. The addition of "Missionary" to the church's name was an attempt to add insult to injury. Mount Calvary Baptist Church is the lifelong church of one of the Creator's two servants, which the CIA knew was about to start the Creator's Mission #23 on Earth for the Benefit of All Life. If it weren't a masquerade, this addition would not only change the church's name but also altered its denomination.
 
 ## Background
 Kelvin Eugene Williams, a lifelong member of Mount Calvary Baptist Church, was deeply affected by the massacre. Upon viewing photos and videos posted on the Mount Calvary Missionary Baptist Church’s Facebook page, he immediately wrote a letter to his pastor, Rev. Dr. Felix G. Williams, III.

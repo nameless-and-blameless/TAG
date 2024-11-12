@@ -66,7 +66,7 @@ The MOAB was first tested in 2003 and used in combat in Afghanistan in 2017 to d
 ### Why Use the MOAB?
 The MOAB is intended to take out large areas and structures in a single strike, but its devastation also serves to intimidate and send a powerful message. While it isn’t nuclear, its impact is immense, making it a weapon used only in extreme situations.
 
-## Section 6: Presidential Visit to Phoenix House
+## Section 6: Presidential Mission to Phoenix House
 
-The decision to deploy the MOAB was reached after a **TOP-SECRET** Presidential mission to Phoenix House. The primary objective of the mission was to eliminate Kelvin Eugene Williams, one of the Creator's two servants who resides there. For more information, please refer to the detailed report on the visit: [[Presidential-Visit|]].
+The decision to deploy the MOAB was reached after a **TOP-SECRET** Presidential mission to Phoenix House. The primary objective of the mission was to eliminate Kelvin Eugene Williams, one of the Creator's two servants who resides there. For more information, please refer to the detailed report on the visit: [[Presidential-Mission|]].
 

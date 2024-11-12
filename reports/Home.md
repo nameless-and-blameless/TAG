@@ -37,7 +37,7 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 - The Creator [[TAG wiki|The Creator]]
   - The Creator's two servants [[TAG wiki|The Creator's two servants]]
 - The Creator's Statement on Crimes [[TAG wiki|Statement on Crimes]]
-  - Presidents Biden & Trump Make TOP-SECRET Trip to Atlanta [[TAG wiki|Presidential Visit]]
+  - Presidents Biden & Trump Make TOP-SECRET Trip to Atlanta [[TAG wiki|Presidential Mission]]
 - The Creator’s Influence on the Arts to Reveal Hidden Realities and Provide Direct Access to Truth [[TAG wiki|The Creator and The Arts]]
   - Unpacking: Shady Love [[TAG wiki|Shady Love]]
 

@@ -1,5 +1,5 @@
 > [!TIP]
-> We recommend getting the latest information by visit https://github.com/StopTAG
+> We recommend getting the latest information by visiting https://github.com/StopTAG
 
 # The American Genocide (TAG) Repository
 

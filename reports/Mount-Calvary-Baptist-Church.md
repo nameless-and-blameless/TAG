@@ -63,7 +63,7 @@ The vehicles belonging to the congregants were driven away by operatives or load
 Each victim's death is further obscured by a CIA-devised "[[Phantom Identity Scheme|]]." The scheme effectively makes victims appear "alive" after their murder.
 
 ### Aftermath 
-Members of Mount Calvary Baptist Church were systematically identified and eliminated in targeted killings, ensuring the complete erasure of those who could reveal the truth. Despite these events, the local community remains entirely unaware of the massacre that claimed the lives of all attendees. A real estate agent, brought in to sell the property, established Mount Calvary Missionary Baptist Church, Inc., a masquerade maintained at the CIA’s direction. The masquerade hosts mock services and community events to project a sense of normalcy while the CIA uses the church’s property for continued acts of violence, concealing the ongoing dangers.
+Members of Mount Calvary Baptist Church were systematically identified and eliminated in targeted killings, ensuring the complete erasure of those who could reveal the truth. Despite these events, the local community remains entirely unaware of the massacre that claimed the lives of all attendees. A real estate agent, brought in to sell the property, established [[Mount Calvary Missionary Baptist Church, Inc.|_MCMBCI]], a masquerade maintained at the CIA’s direction. The masquerade hosts mock services and community events to project a sense of normalcy while the CIA uses the church’s property for continued acts of violence, concealing the ongoing dangers.
 
 
 > [!IMPORTANT]

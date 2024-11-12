@@ -16,13 +16,6 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
      - [[FAQs|]]
      - [[Open Letter to GitHub|_OLTG]]
 
-> [!IMPORTANT]
-> The Creator will indemnify any entity that redistributes the information from the TAG wiki (located at https://GitHub.com/nameless-and-blameless/TAG/wiki) provided that the information is not materially changed.
-
-* Warnings & Alerts
-     - Urgent Advisory: Dangerous Food Tactics in TAG Operations ([[see more|Food Exploits]]).
-     - Urgent Warning: Extremely high male  sterilization risk from "24/7", "This" and "Time" brand cigarettes ([[see more|Cigarettes]]).
-
 > [!NOTE]
 > This wiki is part of a repository maintained by the Creator's servants as part of our mission to foster and protect life. Our missions are always ordered by the Creator, and since His servants only answer to Him, the laws of the state do not apply. Since the Magna Carta, predating the U.S. Constitution, our missions have been safeguarded by the principles of separation of church and state. The Creator's two servants are symbolically represented on the Ark of the Covenant and are known as the Cherubim in some religions and as angels in practically all religions. Thus, this is the work of our church.
 >
@@ -33,9 +26,9 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 ***
 # TAG Wiki Links
 
-## The Creator and Servants
+## The Creator and His two servants
 - The Creator [[TAG wiki|The Creator]]
-  - The Creator's two servants [[TAG wiki|The Creator's two servants]]
+  - His two servants [[TAG wiki|The Creator's two servants]]
 - The Creator's Statement on Crimes [[TAG wiki|Statement on Crimes]]
   - Presidents Biden & Trump Make TOP-SECRET Trip to Atlanta [[TAG wiki|Presidential Mission]]
 - The Creator’s Influence on the Arts to Reveal Hidden Realities and Provide Direct Access to Truth [[TAG wiki|The Creator and The Arts]]

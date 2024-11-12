@@ -38,7 +38,9 @@ On May 5, 2023, Kelvin visited a public library in Riverdale, GA, to write a let
 ## Baptisms
 Following Kelvin Williams' demand letters to Mount Calvary Missionary Baptist Church, Inc., where he voted to remove the pastor, associate pastors, and deacons, the CIA responded by attempting to make new members of their charade church through baptisms.
 
-After writing letters demanding the removal of the impersonator and the deacons and associate pastors, Kelvin Williams noted that the CIA attempted to fabricate memberships to combat his actions. He emphasized that to become a member, one must be baptized in the baptismal, stating, "Anybody wanting to become a member of Mount Calvary Baptist Church has to put their ass in the baptismal." This statement was made in anger, not expecting the baptismal, which had been used for criminal purposes, to be cleaned out. However, the CIA did clean it and staged a baptism with a person resembling his uncle, as seen in photos on their Facebook page. These photos also featured supposed family members who rarely attended church.
+![mcmbc_baptism](https://github.com/nameless-and-blameless/TAG/assets/169210208/f843f2a7-5b7d-4192-95da-0aaa842a2244)
+
+After writing letters demanding the removal of the impersonator, deacons, and associate pastors, Kelvin Williams noted that the CIA attempted to fabricate memberships to undermine his efforts. He emphasized that becoming a member required baptism in the church's baptismal, stating, "Anybody wanting to become a member of Mount Calvary Baptist Church has to put their ass in the baptismal." This statement was made in frustration, as he did not expect the baptismal, which had been involved in criminal activity, to be cleaned out. However, the CIA did clean it and staged a baptism using a person who resembled his uncle, as shown in photos on their Facebook page. These photos also included supposed family members—specifically, siblings of Patricia Williams and their children—who rarely attended church. The CIA was aware of a familial connection between Kelvin Williams and Rev. Dr. Felix G. Williams, III, but did not realize that the connection stemmed from Kelvin’s father.
 
 ## 40th Pastoral Anniversary Celebration
 ![FB_IMG_1705566697555.jpg](https://github.com/serviCreator/TAG/assets/155787787/0f9fbcab-1bfa-4c89-8867-1bdb099dd706)
@@ -54,34 +56,39 @@ The event was highly publicized, it was the first announced event for Mount Calv
 ### Deceptions
 The CIA's involvement extends beyond staging events:
 - **Fabricated Family Presence:** Individuals resembling Williams' family members were placed in prominent roles, despite not being actual family members.
-- **Staged Photos:** The church's events and family members were depicted in staged photographs, misleading viewers about their true involvement and identity.
+- **Staged Photos:** The church's events and impersonated family members were depicted in staged photographs, misleading viewers about their true involvement and identity.
 
 ### Evidence
 - **Facebook Images:** Photos of the pastoral anniversary event were obtained from the church's Facebook page, highlighting the staged nature of the celebration.
 
 ![1_uebrU1biZ49sqILyVWjmQg@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/773831f7-4da3-4542-b36c-7c6f273993db)
+- A Kelvin Williams impersonator.
 
 ![1_HyjCek1sRyHr43qCT063DA@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/e7b3d847-d804-4ef1-a9d4-8073353a1a0d)
+- Kelvin Williams taking a selfie per the Creator's instructions at the same time as the Pastoral Anniversary Celebration, in the background a CIA minder.
 
 ![1_bMPYFCWUGeY14vX8vVDytw@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/3fcb92fb-a837-4d76-840f-5565f2f1206b)
+- In the front row of the choir stand, from left to right, are impersonators of Patricia Williams, Kennedy Torain, and Katrina Duvall-Torain—Kelvin's mother, niece, and sister—who were all murdered by the CIA in October 2022. They are overlooking impersonators of the Rev. Dr. Felix G. Williams, III, and his wife.
 
 ![1_oVKaD9pvH0TjVG-HsyH9eQ@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/aa488e96-46ab-41f8-b685-b9fd41c7e685)
+- Kennedy Torain and Patricia Williams at Conor's Steak and Seafood, a CIA facade restaurant.
 
 ![1_I7SKWtx14-ole6u0NYPepw@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/74f79980-265f-4b80-bdce-e30b2d93e34b)
+- An impersonators posing for a staged photo.
 
 ![1_PgvpLsskgjOhu07TvUkgnQ@2x (1).jpg](https://github.com/serviCreator/TAG/assets/155787787/0d7482be-ab1c-407b-bea7-ef4674615cc8)
+- Karrington Torain and Katrina Duvall-Torain at Conor's Steak and Seafood. "Brian", Annie Jacobsen, and Michael Blackmon, all CIA operatives, are seen seated behind them.
 
 ![1_z3MXoRJZt8kOwGgf2xJXLQ@2x.jpg](https://github.com/serviCreator/TAG/assets/155787787/922d76ac-1d0b-4eb9-afda-8574b057a9f9)
+- Impersonators for Katrina Duvall-Torain and Emma Jean Dale (Kelvin's aunt) posing for a staged photo.
 
-***
-### Mount Calvary Missionary Baptist Church, Inc.
-#### Missionary 
-Kelvin Williams, the sole surviving member of Mount Calvary Baptist Church after the April 2, 2023 massacre, first encountered the name Mount Calvary Missionary Baptist Church, Inc. in response to his letter which was addressed to his cousin, Rev. Dr. Felix G. Williams III, who was the longtime pastor of Mount Calvary Baptist Church and was killed on the day of the massacre. 
+### **Continuations of Violence**
+Mount Calvary Missionary Baptist Church, Inc. has been exploited by TAG perpetrators as a site for numerous [[phantom funerals|phantom funeral] and other community-oriented charitable and social events. These events have served as covert, continued acts of violence, targeting unsuspecting attendees.
 
-#### Baptisms
-> [!NOTE]
-> This article is still being developed and edited.
+#### **Lethal Consequences for Visitors**
+Anyone attending or visiting the property of Mount Calvary Baptist Church is systematically identified and eliminated. The church has become a focal point in TAG's operations, turning community outreach and memorials into traps aimed at eradicating those connected to previous victims or affiliated with the church in any way.
 
-![mcmbc_baptism](https://github.com/nameless-and-blameless/TAG/assets/169210208/f843f2a7-5b7d-4192-95da-0aaa842a2244)
+#### **Social Media Presence**
+The masquerade church maintains a social media presence that portrays a facade of normalcy, using **actors and models** for staged photography. All individuals appearing in these photos should be considered endangered due to their association with the portrayal. The photographs are typically taken during the workweek to avoid arousing suspicion.
 
-Following Kelvin Williams' letter expressing concern to Rev. Dr. Felix G. Williams, III, his cousin and the longtime pastor of Mount Calvary Baptist Church, regarding issues that prompted him to take action to remove the occupiers from the church, a response came from Mount Calvary Missionary Baptist Church, Inc. Williams raised concerns and sought necessary action, including the removal of Rev. Dr. Felix G. Williams, III, along with the associate pastors and deacons. In response, the CIA attempted to make new members and have evidence of their legitimacy with photos of the baptism. Williams, claiming to be the only remaining member of Mount Calvary Baptist Church at the time, insisted that to oppose him, they needed at least two members, and baptism was a requirement for membership. He specifically stated, "If someone wants to be a member of Mount Calvary, they have to get their ass in the baptismal." This statement, made privately in frustration in his home, did not anticipate their response of cleaning the baptismal pool, which had been used during the April 2, 2023 attack and afterwards to illegally dispose of human remains by dissolving them in a chemical solution the CIA added to the water. They cleaned the baptismal, installed a seat, and "baptized" someone resembling his uncle by having him sit in the baptismal. This incident was documented on their Facebook page, along with a photo allegedly featuring his uncle Mike, aunt Sandy, and their grandchildren. Williams says, "Anyone can see the photo is obviously staged. Not to mention it's taken from the wrong side of the baptismal." Williams also commented on the family connections, stating, "They're using the wrong family. Felix G. Williams, III was my father's cousin. My uncle Mike is my mom's brother."
+On **Sundays**, the property is staffed by **CIA operatives** who are tasked with eliminating anyone who comes onto the premises. This strategic timing ensures that no unwelcome visitors can disrupt their ongoing operation or expose their true activities.

@@ -47,7 +47,7 @@ Here's the revised version:
 
 #### Targeted Killings
 
-During **The American Genocide (TAG)**, numerous Americans have been executed for their connection to one or both of the Creator's two servants, or for belonging to the aforementioned targeted groups. Some of the hardest-hit regions include:
+During **The American Genocide (TAG)**, numerous Americans have been executed for their connection to one or both of the Creator's two servants. Some of the hardest-hit regions include:
 
 - **Jessamine County, Kentucky (Nicholasville)**  
    - **Population**: 48,586 (2010 census)  
@@ -61,7 +61,7 @@ During **The American Genocide (TAG)**, numerous Americans have been executed fo
    - **Population**: 80,956 (2010 census)  
    - **Demographics**: Primarily white, with African American, Hispanic, and other minority communities.
 
-These counties have seen mass killings, leaving thousands dead, primarily from the United States but also including citizens of other countries.
+These counties have seen numerous targeted killings, leaving thousands dead, primarily from the United States but also including citizens of other countries.
 
 #### Mass Killing
 

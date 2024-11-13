@@ -42,4 +42,14 @@ Below is a list of food pantry operations orchestrated by the perpetrators:
 | Mount Zion Baptist Church        | September 2024| School Bus     | CIA             | 500+      |
 
 **Note**: Only Phantom Pantries are listed in this table.
+
 **Note**: According to the Creator over 7,000 victims have been killed at Phantom Pantries, some were operated by groups authorized by TAG perpetrators.
+
+Below is a list of food pantry operations orchestrated by groups authorized by TAG perpetrators:
+
+| Church                           | Dates         | Transportation | Orchestrators     | Victims   |
+|----------------------------------|---------------|----------------|-----------------|-----------|
+| Hickory Valley Christian Church  | November 5, 2024 | None           | Gog    | 2,086   |
+| Mount Zion Baptist Church        | November 2024 | None     | Magog         | 1,095      |
+
+

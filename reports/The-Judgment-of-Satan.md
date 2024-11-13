@@ -1,7 +1,7 @@
 # The Judgment of Satan
 
 ## Introduction
-The prophecy outlined in Revelation 20:7-10 has found a startling fulfillment in recent events. Actions taken by President-elect Donald J. Trump, the perpetrators of The American Genocide (TAG), and operatives under their command align closely with this ancient prophecy. Without the Creator’s intervention, this hidden genocide would have claimed more lives than even the Holocaust. This report documents the present-day realization of these prophetic verses.
+The prophecy outlined in Revelation 20:7-10 has found a startling fulfillment in recent events. Actions taken by President-elect Donald J. Trump, the orchestrators of The American Genocide (TAG), and operatives under their command align closely with this ancient prophecy. Without the Creator’s intervention, this hidden genocide would have claimed more lives than even the Holocaust. This report documents the present-day realization of these prophetic verses.
 
 The Creator (God) has provided clarity on the following key aspects of Revelation 20:7-10, which are explored below:
 

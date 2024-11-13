@@ -12,9 +12,9 @@ This report analyzes the planned deployment of a Massive Ordnance Air Blast (MOA
 
 ### Purpose of Targeting
 The MOAB detonation is intended to:
-- **Eliminate Kelvin Eugene Williams**: His work for the Creator, which involves exposing and reporting on TAG operations, poses a significant threat to the perpetrators.
+- **Eliminate Kelvin Eugene Williams**: His work for the Creator, which involves exposing and reporting on TAG operations, poses a significant threat to the orchestrators.
 - **Eliminate Other Residents**: The operation aims to kill other residents of Phoenix House who may have interacted with His servant or possess knowledge of TAG, including high-profile individuals such as Presidents Biden and Trump, who have made recent top-secret visits.
-- **Suppress Evidence of TAG**: The bombing seeks to prevent His two servants from holding a planned media briefing following the upcoming earthquakes in the Creator's apocalypse, which will expose the perpetrators' acts of violence and detail their involvement in the genocide.
+- **Suppress Evidence of TAG**: The bombing seeks to prevent His two servants from holding a planned media briefing following the upcoming earthquakes in the Creator's apocalypse, which will expose the orchestrators' acts of violence and detail their involvement in the genocide.
 - **Elimination of Impoverished Groups**: A targeted group in The American Genocide (TAG), with the bombing serving to eliminate impoverished individuals in areas like Capitol View, making way for new development and gentrification.
 
 ## Section 2: Blast Radius and Lives in Danger

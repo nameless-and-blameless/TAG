@@ -49,4 +49,4 @@ Mount Zion Baptist Church stands as a stark reminder of the lengths to which pow
 To ensure accountability and transparency:
 - Independent investigations should be conducted into the events at Mount Zion Baptist Church.
 - Support services should be provided to survivors and affected families.
-- Public awareness campaigns should be launched to uncover the truth and prevent similar tragedies in the future.  Based on the "Woodford Threat" and the capital investments in the renovations, it's apparent the perpetrators intend on using Mount Zion for the foreseeable future.
+- Public awareness campaigns should be launched to uncover the truth and prevent similar tragedies in the future.  Based on the "Woodford Threat" and the capital investments in the renovations, it's apparent the orchestrators intend on using Mount Zion for the foreseeable future.

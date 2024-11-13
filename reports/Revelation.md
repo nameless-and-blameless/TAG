@@ -12,7 +12,7 @@ TAG, secretly orchestrated by the CIA with the complicity of the U.S. Federal Go
 
 Starting on August 26, 2024, the Creator's apocalypse began, marking a significant intervention to confront and end this genocide. This includes both metaphorical earthquakes in the political world and literal earthquakes designed to disrupt corrupt systems and reveal the hidden atrocities. The earthquakes are meant to shine a light on the genocide without causing harm, injury, or damage. Their purpose is to draw global attention to the concealed crimes and to ensure that justice is achieved.
 
-The Creator's intervention extends well beyond the Apocalypse. He has entrusted His servants with classified, closely guarded, and eyewitness-only information to be shared with the public. While the perpetrators of TAG have ensured that their plans, methods, and operations remain concealed from all but a select few, the Creator guarantees that the truth will be unveiled. Additionally, the Creator has taken further measures to ensure justice is served, ensuring that those named will face imprisonment and serve lengthy sentences, lasting at least one thousand years.
+The Creator's intervention extends well beyond the Apocalypse. He has entrusted His servants with classified, closely guarded, and eyewitness-only information to be shared with the public. While the orchestrators of TAG have ensured that their plans, methods, and operations remain concealed from all but a select few, the Creator guarantees that the truth will be unveiled. Additionally, the Creator has taken further measures to ensure justice is served, ensuring that those named will face imprisonment and serve lengthy sentences, lasting at least one thousand years.
 
 ## The Creator’s Assurance of Safety
 

@@ -30,7 +30,7 @@ The objective of Divide & Conquer is to dismantle the harmful systems and ideolo
 
 The Divide & Conquer strategy involves:
 
-1. **Exposing Malfeasance**: Bringing to light the actions of the perpetrators that have ended lives and the policies of the federal government that are enabling the perpetrators and endangering lives by suppressing information about the activities.
+1. **Exposing Malfeasance**: Bringing to light the actions of the orchestrators that have ended lives and the policies of the federal government that are enabling the orchestrators and endangering lives by suppressing information about the activities.
 2. **Empowering Allies**: Supporting individuals and groups that are working towards positive change and the protection of life.
 3. **Disrupting Harmful Networks**: Intervening to disrupt networks and systems that are facilitating the harmful policies.
 4. **Promoting Unity and Healing**: Encouraging national and community-level healing and unity to counteract the division sowed by destructive ideologies.

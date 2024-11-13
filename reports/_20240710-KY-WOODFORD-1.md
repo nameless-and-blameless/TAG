@@ -21,5 +21,5 @@
 > - **Stay Alert:** If you have visited or plan to visit the area, exercise extreme caution and remain vigilant.
 > - **Report Suspicious Activity:** If you observe any suspicious activity or believe you may have information related to these events, please contact the authorities immediately.
 > 
-> This warning is issued in the interest of public safety. Your awareness and cooperation are crucial in preventing further tragedies and bringing the perpetrators to justice. Please share this information widely to ensure the safety of your community.
+> This warning is issued in the interest of public safety. Your awareness and cooperation are crucial in preventing further tragedies and bringing the orchestrators to justice. Please share this information widely to ensure the safety of your community.
 

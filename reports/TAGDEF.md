@@ -14,7 +14,7 @@ The key element is **intent**, which distinguishes genocide from other forms of 
 
 ## TAG: Meeting the Criteria for Genocide
 
-**The American Genocide (TAG)** represents a covert and systematic campaign aimed at specific groups that align with the UN definition of genocide. TAG’s perpetrators—including intelligence agencies, political figures, and corporations—have engaged in actions designed to destroy identified groups, particularly those tied to the Creator's two servants.
+**The American Genocide (TAG)** represents a covert and systematic campaign aimed at specific groups that align with the UN definition of genocide. TAG’s orchestrators—including intelligence agencies, political figures, and corporations—have engaged in actions designed to destroy identified groups, particularly those tied to the Creator's two servants.
 
 Let’s explore how TAG aligns with the definition of genocide:
 
@@ -37,7 +37,7 @@ Here's the revised version:
      - **Extended associate network and regional populations**: Those associated with or residing in geographic areas where the Creator’s servants have lived, as well as individuals employed by companies that had professional or labor relationships with one of the Creator's two servants, even if not during the same time.  
      - **Alpha males (as defined by specific physical traits)**: Males considered "alpha" due to physical traits, such as penile length, are targeted based on their perceived dominance or leadership within society.  
      - **Business leaders**: Key figures in the business world are being targeted due to their influence, wealth, and ability to challenge or resist authoritarian control.  
-     - **Political opposition**: Individuals or groups who have opposed any of the perpetrators or resisted the implementation of an authoritarian regime have been targeted for their dissenting political stances.  
+     - **Political opposition**: Individuals or groups who have opposed any of the orchestrators or resisted the implementation of an authoritarian regime have been targeted for their dissenting political stances.  
    
    - **Geographic Areas**: Jessamine County, KY; Mount Pleasant, TN; Kanawha County, WV; Northern suburbs of Chicago.  
    - **Companies/Employers**: McLane/Cumberland (Nicholasville, KY); textPlus (Marina del Rey, CA); Anthem BCBS (Louisville, KY).
@@ -113,7 +113,7 @@ The following churches were sites of coordinated, surprise assaults during their
 TAG's operations did not stop with the initial assaults. Members who were not present during these tragic events were later identified and systematically eliminated through targeted killings, ensuring that the church communities were decimated and unable to regroup or share information about the massacres.
 
 #### **Masquerade Churches as Killing Sites**
-TAG perpetrators have taken control of these locations and operated them as **masquerade churches**. Under the guise of legitimate religious and community functions, they have hosted:
+TAG orchestrators have taken control of these locations and operated them as **masquerade churches**. Under the guise of legitimate religious and community functions, they have hosted:
 
 - **Funerals** for earlier victims of TAG operations.
 - **Charitable services**, including food pantries and assistance programs.
@@ -140,4 +140,4 @@ Although child abductions are not present in TAG, the killing of children within
 
 ## Conclusion: TAG as a Genocide
 
-The American Genocide meets all criteria for genocide defined by the United Nations. Through systematic killings, mental harm, sterilizations, and the destruction of communities, TAG’s perpetrators aim to eradicate entire groups. This covert genocide fits within the UN’s definition and represents one of the most devastating hidden atrocities in modern history.
+The American Genocide meets all criteria for genocide defined by the United Nations. Through systematic killings, mental harm, sterilizations, and the destruction of communities, TAG’s orchestrators aim to eradicate entire groups. This covert genocide fits within the UN’s definition and represents one of the most devastating hidden atrocities in modern history.

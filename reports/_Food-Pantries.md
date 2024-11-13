@@ -1,6 +1,6 @@
 ### Food Pantries in TAG Operations
 
-In a disturbing extension of their covert tactics, the perpetrators of The American Genocide (TAG) have begun exploiting food pantries and food giveaways as a means to lure in additional victims. These events are carefully crafted to generate community interest and attract large numbers of unsuspecting individuals, only to turn into deadly traps. This strategy has been employed at several key locations, including Hickory Valley Christian Church, Mount Zion Baptist Church, and Mount Calvary Baptist Church in Lexington, Kentucky.
+In a disturbing extension of their covert tactics, the orchestrators of The American Genocide (TAG) have begun exploiting food pantries and food giveaways as a means to lure in additional victims. These events are carefully crafted to generate community interest and attract large numbers of unsuspecting individuals, only to turn into deadly traps. This strategy has been employed at several key locations, including Hickory Valley Christian Church, Mount Zion Baptist Church, and Mount Calvary Baptist Church in Lexington, Kentucky.
 
 #### Overview
 
@@ -57,7 +57,7 @@ Unlike Phantom Funerals, which target the associate networks of previous victims
 
 #### Conclusion
 
-The use of food pantries and giveaways as a tactic in TAG operations highlights the perpetrators' ruthless manipulation and exploitation of community trust. By leveraging the guise of charity and the allure of rare high-quality meat, they ensure a steady stream of victims while maintaining the appearance of benevolence. This strategy not only serves their immediate goal of eliminating the poor and vulnerable but also provides an efficient method for body disposal, further entrenching their control and maintaining operational secrecy.
+The use of food pantries and giveaways as a tactic in TAG operations highlights the orchestrators' ruthless manipulation and exploitation of community trust. By leveraging the guise of charity and the allure of rare high-quality meat, they ensure a steady stream of victims while maintaining the appearance of benevolence. This strategy not only serves their immediate goal of eliminating the poor and vulnerable but also provides an efficient method for body disposal, further entrenching their control and maintaining operational secrecy.
 
 ### See Also
 

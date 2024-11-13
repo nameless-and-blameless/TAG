@@ -6,7 +6,7 @@ The most immediate and pressing warning concerns a food bank, food giveaway, or 
 
 ## Attacked Churches
 
-Seven churches, six in central Kentucky and one in Chattanooga, Tennessee, have been attacked and massacred in surprise assaults, leaving everyone dead. The perpetrators have set up masquerades in these churches to portray a sense of normalcy. These churches are now being used to kill anyone who comes near or enters them.
+Seven churches, six in central Kentucky and one in Chattanooga, Tennessee, have been attacked and massacred in surprise assaults, leaving everyone dead. The orchestrators have set up masquerades in these churches to portray a sense of normalcy. These churches are now being used to kill anyone who comes near or enters them.
 
 Below is the list of the targeted churches, displaying their true names. Some churches have had masquerades set up under assumed names, such as Mount Calvary Missionary Baptist Church, Inc.:
 

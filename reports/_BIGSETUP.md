@@ -43,7 +43,7 @@ Each attack on a place of worship has displayed tactics described in Annie Jacob
 
 ### Cover-Up and Discrediting Efforts by Donald J. Trump
 
-To prevent public awareness and outcry, the perpetrators of TAG have employed various cover-up tactics. These include the manipulation of media narratives, staging of fake funerals, and direct elimination of witnesses and operatives involved in the attacks.
+To prevent public awareness and outcry, the orchestrators of TAG have employed various cover-up tactics. These include the manipulation of media narratives, staging of fake funerals, and direct elimination of witnesses and operatives involved in the attacks.
 
 ### Phantom Funerals
 

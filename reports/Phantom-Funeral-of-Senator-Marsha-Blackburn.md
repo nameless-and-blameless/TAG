@@ -12,7 +12,7 @@ Phantom Funerals are part of The American Genocide (TAG) operations, orchestrate
 
 ### Seizure of Opportunity
 
-- The CIA, upon realizing that they had executed Senator Marsha Blackburn during Zachary Stone's funeral, decided to leverage this opportunity. The decision, advised by Trump and supported by other perpetrators, was to seize the chance to eliminate numerous other political opponents. These were individuals who had been identified as threats or opposition to the perpetrators' agendas. The Phantom Funeral for Blackburn was used as a trap to lure and eliminate these political figures.
+- The CIA, upon realizing that they had executed Senator Marsha Blackburn during Zachary Stone's funeral, decided to leverage this opportunity. The decision, advised by Trump and supported by other orchestrators, was to seize the chance to eliminate numerous other political opponents. These were individuals who had been identified as threats or opposition to the orchestrators' agendas. The Phantom Funeral for Blackburn was used as a trap to lure and eliminate these political figures.
 
 ### Modus Operandi
 
@@ -24,9 +24,9 @@ Phantom Funerals are part of The American Genocide (TAG) operations, orchestrate
 
 ## Operation
 
-### perpetrator Presence
+### orchestrator Presence
 
-- TAG perpetrators, including Presidents Biden and Trump, Annie Jacobsen, Nancy Pelosi, and Mitch McConnell, attended the Phantom Funeral. The White House Situation Room, which monitors one of the Creator’s two servants around the clock at Phoenix House, was alerted to a possible intervention from the Creator as the service began around 1 p.m. on Friday September 13, 2024.
+- TAG orchestrators, including Presidents Biden and Trump, Annie Jacobsen, Nancy Pelosi, and Mitch McConnell, attended the Phantom Funeral. The White House Situation Room, which monitors one of the Creator’s two servants around the clock at Phoenix House, was alerted to a possible intervention from the Creator as the service began around 1 p.m. on Friday September 13, 2024.
 
 ### Decision to Accelerate
 
@@ -50,7 +50,7 @@ Phantom Funerals are part of The American Genocide (TAG) operations, orchestrate
 
 ### Return to Phoenix House
 
-- Most perpetrators returned to Phoenix House, where they have been continuously since August 29. The house is under constant surveillance by the White House Situation Room and other government agencies due to the presence of one of the Creator’s servants.
+- Most orchestrators returned to Phoenix House, where they have been continuously since August 29. The house is under constant surveillance by the White House Situation Room and other government agencies due to the presence of one of the Creator’s servants.
 
 ## Hickory Valley Christian Church
 

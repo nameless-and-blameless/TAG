@@ -23,7 +23,7 @@ Government agencies, including the CIA, employ ESIT to manage emergency communic
      - Forces mobile phones in the targeted area to connect, redirecting emergency calls to CIA operatives posing as 911 dispatchers.
      - Prevents legitimate emergency responses to disrupt organized resistance during covert operations.
      - Blocks access to other numbers and the internet to maintain control.
-   - **Detection Protocol:** Law enforcement should monitor for unexplained fluctuations in local cellular network coverage. **Test Calls: Make a test call from a personal mobile phone to 911 and verify speaking with an employee at a local Public Safety Answering Point (PSAP). Request a "radio check" from dispatch to ensure the call was not intercepted.** Use of department-issued phones is discouraged as the perpetrators may have normal call routing configured for those telephone numbers to avoid detection.
+   - **Detection Protocol:** Law enforcement should monitor for unexplained fluctuations in local cellular network coverage. **Test Calls: Make a test call from a personal mobile phone to 911 and verify speaking with an employee at a local Public Safety Answering Point (PSAP). Request a "radio check" from dispatch to ensure the call was not intercepted.** Use of department-issued phones is discouraged as the orchestrators may have normal call routing configured for those telephone numbers to avoid detection.
 
 2. **Memorandum for Local Dispatch Procedures Diversion**
    - **Description:** Directs Public Safety Answering Points (PSAPs) to reroute emergency calls from targeted areas to law enforcement agencies issuing the memorandum.

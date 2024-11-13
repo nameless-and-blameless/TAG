@@ -22,7 +22,7 @@ The Mother's Day massacre at Hickory Valley Christian Church was a turning point
 
 #### The Role of Paranoia and Substance Abuse
 
-At the core of these actions is a profound paranoia, exacerbated by rampant cocaine abuse among the perpetrators. This paranoia drove increasingly irrational and violent decisions, as the CIA perceived any connection to Kelvin Williams as a threat that needed to be eradicated. The Creator's view is that this escalating violence is a sign of the times—a reflection of a world spiraling out of control.
+At the core of these actions is a profound paranoia, exacerbated by rampant cocaine abuse among the orchestrators. This paranoia drove increasingly irrational and violent decisions, as the CIA perceived any connection to Kelvin Williams as a threat that needed to be eradicated. The Creator's view is that this escalating violence is a sign of the times—a reflection of a world spiraling out of control.
 
 #### Trump’s Role in TAG Operations
 
@@ -42,9 +42,9 @@ The Creator has assured the American public that no one is above His law. He une
 
 To combat these grave injustices, the Creator is actively providing His two servants with classified and confidential information. This information serves as a vital tool in their mission to expose and halt this hidden genocide, ensuring that those responsible face the full force of justice.
 
-#### The List of perpetrators
+#### The List of orchestrators
 
-The Creator has identified the principal perpetrators of this genocide:
+The Creator has identified the principal orchestrators of this genocide:
 
 - President Donald J. Trump, the primary composer
 - Annie Jacobsen, the conductor, referred to as Hurricane Annie in Prince's "Sign o' the Times"
@@ -54,7 +54,7 @@ The Creator has identified the principal perpetrators of this genocide:
 - Senate Minority Leader Mitch McConnell (R-KY)
 - CIA Director William Burns
 
-Should the Commonwealth of Kentucky or other affected states fail to prosecute or imprison these perpetrators to His satisfaction, the Creator will task His servants with ensuring their confinement. Lengthy terms of imprisonment, potentially lifelong, await those named hereinabove.
+Should the Commonwealth of Kentucky or other affected states fail to prosecute or imprison these orchestrators to His satisfaction, the Creator will task His servants with ensuring their confinement. Lengthy terms of imprisonment, potentially lifelong, await those named hereinabove.
 
 #### The Apocalypse as the Only Solution
 

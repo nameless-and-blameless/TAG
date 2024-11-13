@@ -56,7 +56,7 @@ The CIA under the direction of  Annie Jacobsen or “Hurricane Annie” conducte
 
 #### The Role of Speed-Induced Paranoia
 
-Each subsequent assault on congregations has been primarily driven by speed-induced paranoia. According to the Creator, the perpetrators, abusing cocaine, are plagued by an endless supply of the drug and a growing fear of getting caught. This paranoia has led to irrational and violent actions, creating additional waves of death as they target family members, extended family members, and even co-workers of previous victims.
+Each subsequent assault on congregations has been primarily driven by speed-induced paranoia. According to the Creator, the orchestrators, abusing cocaine, are plagued by an endless supply of the drug and a growing fear of getting caught. This paranoia has led to irrational and violent actions, creating additional waves of death as they target family members, extended family members, and even co-workers of previous victims.
 
 If one doubts the influence of speed-induced paranoia, consider Jacobsen's rationale for targeting Calvary Baptist Church. For decades, the church has operated a preschool and daycare program. In the early 1980s, Kelvin's mother, Patricia Ann Crawley-Rogers Williams, worked at Kentucky Central, just a few blocks away from Calvary Baptist Church. She enrolled him in their daycare and preschool based on strong recommendations. However, after he started kindergarten, neither his mother nor he maintained any contact with the church, school, or anyone associated with these programs. Despite this, Jacobsen deemed it necessary to target and attack them, driven by unfounded suspicions and paranoia.
 

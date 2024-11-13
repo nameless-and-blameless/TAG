@@ -14,7 +14,7 @@ His servant asked the Creator if the church listed on the advertisement, Emmanue
    - Roof was chosen based on several factors, including his lack of family support, limited education, isolation from news media, and previous vulnerabilities under interrogation.
 
 2. **Manufactured Profile:**
-   - The CIA constructed Roof’s profile using a few carefully selected images, such as those where he posed with a gun and a rebel flag. These were used to shape a narrative that portrayed him as a hate crime perpetrator.
+   - The CIA constructed Roof’s profile using a few carefully selected images, such as those where he posed with a gun and a rebel flag. These were used to shape a narrative that portrayed him as a hate crime orchestrator.
 
 3. **Selection Criteria:**
    - Roof was chosen because of his limited social connections, inability to navigate the legal process, and lack of financial resources to secure competent legal defense.

@@ -11,7 +11,7 @@
 
 Recent intelligence and credible eyewitness accounts suggest the continuation of covert operations known as Phantom Funerals. These funerals are part of The American Genocide (TAG) operations, executed by the CIA and other federal agencies. 
 
-We are aware the perpetrators have begun advertising (via word of mouth campaigns) food pantries/giveaways to the general public wherein tbose who come to the churches are executed.
+We are aware the orchestrators have begun advertising (via word of mouth campaigns) food pantries/giveaways to the general public wherein tbose who come to the churches are executed.
 
 The purpose of these operations are to eliminate potential whistleblowers and maintain secrecy regarding TAG activities. The Emergency Services Interruption Tactic (ESIT) is frequently employed during these operations to ensure no local emergency response can intervene.
 

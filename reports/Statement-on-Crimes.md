@@ -6,7 +6,7 @@ The Creator understands that genocides persist in the absence of external interv
 
 In response to these grave injustices, the Creator is actively providing His two servants with classified and confidential information. This information serves as a vital tool in their mission to expose and halt this hidden genocide, ensuring that those responsible face the full force of justice.
 
-The Creator emphasizes that no individual or entity is above His law. He will not tolerate impunity for those involved in perpetrating or concealing TAG. The following individuals have been identified as principal perpetrators of this genocide:
+The Creator emphasizes that no individual or entity is above His law. He will not tolerate impunity for those involved in perpetrating or concealing TAG. The following individuals have been identified as principal orchestrators of this genocide:
 
 - President Donald J. Trump
 - Annie Jacobsen
@@ -16,7 +16,7 @@ The Creator emphasizes that no individual or entity is above His law. He will no
 - Senate Minority Leader Mitch McConnell (R-KY)
 - CIA Director William Burns
 
-Should the Commonwealth of Kentucky or other affected states fail to prosecute or imprison these perpetrators to His satisfaction, the Creator will task His servants with ensuring their confinement. Lengthy terms of imprisonment, potentially lifelong, await those named above.
+Should the Commonwealth of Kentucky or other affected states fail to prosecute or imprison these orchestrators to His satisfaction, the Creator will task His servants with ensuring their confinement. Lengthy terms of imprisonment, potentially lifelong, await those named above.
 
 ## **The Creator's Intervention: The Apocalypse Begins**
 

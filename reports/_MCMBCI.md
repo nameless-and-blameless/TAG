@@ -83,7 +83,7 @@ The CIA's involvement extends beyond staging events:
 - Impersonators for Katrina Duvall-Torain and Emma Jean Dale (Kelvin's aunt) posing for a staged photo.
 
 ### **Continuations of Violence**
-Mount Calvary Missionary Baptist Church, Inc. has been exploited by TAG perpetrators as a site for numerous [[phantom funerals|phantom funeral] and other community-oriented charitable and social events. These events have served as covert, continued acts of violence, targeting unsuspecting attendees.
+Mount Calvary Missionary Baptist Church, Inc. has been exploited by TAG orchestrators as a site for numerous [[phantom funerals|phantom funeral] and other community-oriented charitable and social events. These events have served as covert, continued acts of violence, targeting unsuspecting attendees.
 
 #### **Lethal Consequences for Visitors**
 Anyone attending or visiting the property of Mount Calvary Baptist Church is systematically identified and eliminated. The church has become a focal point in TAG's operations, turning community outreach and memorials into traps aimed at eradicating those connected to previous victims or affiliated with the church in any way.

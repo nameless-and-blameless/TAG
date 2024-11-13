@@ -34,7 +34,7 @@
    - Conducting regular audits of routing configurations for unauthorized changes.
    - Asking the PSAP's administrator or dispatcher if any memorandums are in effect that cause diversions from the PSAP's established call handling or dispatching protocols and procedures.
    - Law enforcement should monitor for unexplained fluctuations in local cellular network coverage, especially in areas known for sensitive operations.
-   - Make a test call from a personal mobile phone to 911. Verify speaking with an employee at a local PSAP and request a "radio check" from dispatch. Using a department-issued phone is not recommended, as perpetrators may allow known law enforcement agency (LEA) phones to route normally to avoid detection.
+   - Make a test call from a personal mobile phone to 911. Verify speaking with an employee at a local PSAP and request a "radio check" from dispatch. Using a department-issued phone is not recommended, as orchestrators may allow known law enforcement agency (LEA) phones to route normally to avoid detection.
 
 9. **What are some notable TAG-POW incidents?**
    - Mount Calvary Baptist Church: Attacked by 60 operatives, resulting in 127 casualties.

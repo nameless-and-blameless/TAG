@@ -56,7 +56,7 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 - The cover-up operations that kill mourners at fake funerals designed to kill a victim's associates [[TAG wiki|Phantom Funeral]]
   - How attending the funeral of Rev. Duke Stone's phantom funeral resulted in the deaths of over 600 mourners, with Trump watching [[TAG wiki|Phantom Funeral of Rev. Duke Stone]]
   - How Trump used the phantom funeral of Zachary Stone to kill intentionally Senator Blackburn and others [[TAG wiki|Phantom Funeral of Zachary Stone]]
-  - How Trump and the perpetrators used the phantom funeral of Senator Marsha Blackburn to silence political opposition [[TAG wiki|Phantom Funeral of Senator Marsha Blackburn]]
+  - How Trump and the orchestrators used the phantom funeral of Senator Marsha Blackburn to silence political opposition [[TAG wiki|Phantom Funeral of Senator Marsha Blackburn]]
 
 ## Targeted Groups
 ### Alpha Males and Genocide

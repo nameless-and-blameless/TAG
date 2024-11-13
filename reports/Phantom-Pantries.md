@@ -10,7 +10,7 @@ The Creator has reported that over 6,000 victims have been executed at these Pha
 Phantom Pantries were set up exclusively to conduct mass executions. No individual who sought assistance from these pantries left alive. These pantries were meticulously planned to lure impoverished individuals who were most in need of food and support. Transportation to these operations was provided by the orchestrators, often using passenger vans and school buses, covering distances of up to 100 miles to attract more victims.
 
 ### Feeder Pantries
-Feeder Pantries were operated solely to attract and lure more victims to the Phantom Pantries. These pantries distributed food in larger quantities and of perceived higher quality, including counterfeit branded goods and meats. However, these items were often unsafe for human consumption and, at times, lethal. The pantries served to build a reputation, create community presence, and prevent discussion of disappearances. Transportation was never provided for these operations.
+Feeder Pantries were hosted only by TAG perpetrators and were operated solely to attract and lure more victims to the Phantom Pantries. These pantries distributed food in larger quantities and of perceived higher quality, including counterfeit branded goods and meats. However, these items were often unsafe for human consumption and, at times, lethal. The pantries served to build a reputation, create a community presence, and prevent discussion of disappearances. Transportation was never provided for these operations.
 
 ## Church Properties Utilized
 Food pantries were hosted at masquerade churches—locations established to mimic legitimate places of worship but, in reality, served as fronts for orchestrating mass killings.
@@ -30,6 +30,12 @@ Other orchestrators utilized passenger vans and school buses to transport those 
 ## Benefits Fraud by CIA
 
 The CIA exploited the aftermath of the massacres by registering deceased victims for various federal assistance programs. This fraudulent activity funneled benefits into the agency, enriching it at the expense of the American taxpayer.
+
+## Non-TAG Orchestrators
+
+TAG orchestrators have formed relationships with criminal organizations, typically through intermediaries, with whom they rent church properties to host their own Phantom Pantry operations. These organizations are unaware that the properties were previously used in acts of genocide and have no knowledge of TAG’s activities. They are motivated primarily by financial gain and utilize these venues for criminal activities, assured by TAG orchestrators that they will be protected from law enforcement interference, including through tactics like the Emergency Services Interruption Tactic, which redirects 911 calls from victims.
+
+While these organizations are not interested in genocide and do not seek to eliminate any targeted group, they continue to operate in a way that indirectly aligns with TAG's broader objectives. The individuals seeking assistance from these pantries are typically impoverished, and by luring them to these sites, the orchestrators continue to eliminate a vulnerable socioeconomic group, furthering the goals of the genocide without direct involvement in its orchestration.
 
 ## Phantom Pantry Operations
 

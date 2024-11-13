@@ -17,7 +17,7 @@ Phantom Remains serve as a crucial component in operations that require absolute
 4. **Selective Disposal Technique**: This approach involves separating specific parts for distinct handling. Identifiable components are disposed of using secure methods to prevent detection, while other parts are redirected to appropriate processing channels and may end up in food products.
 
 > [!NOTE]
-> Perpetrators can and do receive compensation for materials from the remains that are purchased and utilized in food products. Primus Labs is a preferred purchaser of human remains.
+> perpetrators can and do receive compensation for materials from the remains that are purchased and utilized in food products. Primus Labs is a preferred purchaser of human remains.
 > ![20240620_172736](https://github.com/nameless-and-blameless/TAG/assets/169210208/ba7dfa03-56d7-4c68-bf39-30a93643256b)
 
 

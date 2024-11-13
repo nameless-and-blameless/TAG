@@ -19,7 +19,7 @@ Food pantries were hosted at masquerade churches—locations established to mimi
 | Hickory Valley Christian Church  | Chattanooga, TN     |
 | Mount Zion Baptist Church        | Georgetown, KY      |
 
-**Note for Mount Zion Baptist Church**: The May 2023 massacre severely damaged the sanctuary, and the TAG perpetrators invested heavily to completely renovate it. Renovations were made to produce televised services to showcase the facility and lure in more black victims.
+* **Mount Zion Baptist Church**: The May 2023 massacre severely damaged the sanctuary, and the TAG perpetrators invested heavily to completely renovate it. Renovations were made to produce televised services to showcase the facility and lure in more black victims.
 
 ## 4. Transportation
 
@@ -41,15 +41,15 @@ Below is a list of food pantry operations orchestrated by the perpetrators:
 | Mount Zion Baptist Church        | August 2024   | School Bus     | CIA             | 200+      |
 | Mount Zion Baptist Church        | September 2024| School Bus     | CIA             | 500+      |
 
-**Note**: Only Phantom Pantries are listed in this table.
+* **Note**: Only Phantom Pantries are listed in this table.
 
-**Note**: According to the Creator over 7,000 victims have been killed at Phantom Pantries, some were operated by groups authorized by TAG perpetrators.
+* **Note**: According to the Creator over 7,000 victims have been killed at Phantom Pantries, some were operated by groups authorized by TAG perpetrators.
 
 Below is a list of food pantry operations orchestrated by groups authorized by TAG perpetrators:
 
-| Church                           | Dates         | Transportation | Orchestrators     | Victims   |
+| Church                           | Dates         | Transportation | orchestrators     | Victims   |
 |----------------------------------|---------------|----------------|-----------------|-----------|
 | Hickory Valley Christian Church  | November 5, 2024 | None           | Gog    | 2,086   |
 | Mount Zion Baptist Church        | November 2024 | None     | Magog         | 1,095      |
 
-**Note**: Gog and Magog are not the names used by the groups.
+* **Note**: Gog and Magog are not the names used by the groups.

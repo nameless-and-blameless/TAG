@@ -42,7 +42,7 @@ The Creator has assured the American public that no one is above His law. He une
 
 To combat these grave injustices, the Creator is actively providing His two servants with classified and confidential information. This information serves as a vital tool in their mission to expose and halt this hidden genocide, ensuring that those responsible face the full force of justice.
 
-#### The List of Perpetrators
+#### The List of perpetrators
 
 The Creator has identified the principal perpetrators of this genocide:
 

@@ -33,9 +33,13 @@ The CIA exploited the aftermath of the massacres by registering deceased victims
 
 Below is a list of food pantry operations orchestrated by the perpetrators:
 
-| Church                 | Dates         | Transportation      | Operatives  | Victims   |
-|------------------------|---------------|---------------------|-------------|-----------|
-| Example Church         | 2024-01-01    | School Bus          | Inmates     | 500+      |
+| Church                           | Dates         | Transportation | Operatives      | Victims   |
+|----------------------------------|---------------|----------------|-----------------|-----------|
+| Hickory Valley Christian Church  | August 2024   | None           | Inmates (GA)    | 200+/50   |
+| Hickory Valley Christian Church  | August 2024   | None           | Inmates (GA)    | 1200+/50  |
+| Hickory Valley Christian Church  | August 2024   | None           | Inmates (GA)    | 200+/50   |
+| Mount Zion Baptist Church        | August 2024   | School Bus     | CIA             | 200+      |
+| Mount Zion Baptist Church        | September 2024| School Bus     | CIA             | 500+      |
 
 **Note**: Only Phantom Pantries are listed in this table.
-**Note**: According to the Creator over 7,000 victims have been killed. The table is being populated. 
+**Note**: According to the Creator over 7,000 victims have been killed at Phantom Pantries, some were operated by groups authorized by TAG perpetrators.

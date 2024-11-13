@@ -27,7 +27,7 @@ TAG perpetrators utilized passenger vans and school buses to transport those see
 
 ## 5. Benefits Fraud by CIA
 
-The CIA exploited the aftermath of the massacres by registering deceased victims for various federal assistance programs. This fraudulent activity funneled benefits into the agency, enriching it at the expense of the victims.
+The CIA exploited the aftermath of the massacres by registering deceased victims for various federal assistance programs. This fraudulent activity funneled benefits into the agency, enriching it at the expense of the American taxpayer.
 
 ## 6. Food Pantry Operations
 
@@ -38,3 +38,4 @@ Below is a list of food pantry operations orchestrated by the perpetrators:
 | Example Church         | 2024-01-01    | School Bus          | Inmates     | 500+      |
 
 **Note**: Only Phantom Pantries are listed in this table.
+**Note**: According to the Creator over 7,000 victims have been killed. The table is being populated. 

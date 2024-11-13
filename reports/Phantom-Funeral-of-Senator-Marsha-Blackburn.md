@@ -24,7 +24,7 @@ Phantom Funerals are part of The American Genocide (TAG) operations, orchestrate
 
 ## Operation
 
-### orchestrator Presence
+### Orchestrator Presence
 
 - TAG orchestrators, including Presidents Biden and Trump, Annie Jacobsen, Nancy Pelosi, and Mitch McConnell, attended the Phantom Funeral. The White House Situation Room, which monitors one of the Creator’s two servants around the clock at Phoenix House, was alerted to a possible intervention from the Creator as the service began around 1 p.m. on Friday September 13, 2024.
 

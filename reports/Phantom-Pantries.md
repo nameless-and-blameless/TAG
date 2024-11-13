@@ -52,4 +52,4 @@ Below is a list of food pantry operations orchestrated by groups authorized by T
 | Hickory Valley Christian Church  | November 5, 2024 | None           | Gog    | 2,086   |
 | Mount Zion Baptist Church        | November 2024 | None     | Magog         | 1,095      |
 
-
+**Note**: Gog and Magog are not the names used by the groups.

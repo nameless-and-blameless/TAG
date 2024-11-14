@@ -63,5 +63,5 @@ The tables in this section detail Phantom Pantry operations, providing comprehen
 | Mount Zion Baptist Church        | November 2024 | None     | Magog         | 1,095      |
 
 * **Orchestratora**: "Gog" and "Magog" are not the names used by these groups; rather, they are the names used internally by the Creator and His two servants to refer to them.
-* **PerPerpetrators**: The perpetrators for Non-TAG orchestrations are typically affiliated with the orchestrator, while inmate perpetrators are exclusive to TAG orchestrations.
+* **Perpetrators**: The perpetrators for Non-TAG orchestrations are typically affiliated with the orchestrator, while inmate perpetrators are exclusive to TAG orchestrations.
 

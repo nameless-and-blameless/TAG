@@ -41,10 +41,6 @@ While these organizations are not interested in genocide and do not seek to elim
 
 The tables in this section detail Phantom Pantry operations, providing comprehensive information about the church properties used, dates of operation, operatives involved, transportation details, and the number of victims. 
 
-* Operatives: "Inmates" indicates that inmates were used as perpetrators. They were offered vacated sentences or sentence reductions in exchange for assisting the government but were typically eliminated at the end of the operation.
-
-* Victims: The number of victims executed during the operation. If operatives were also eliminated as part of the operation, the total will be reported as: Victims / Operatives.
-
 #### Hosted by TAG Orchestrators
 
 | Church                           | Dates         | Transportation | Perpetrators      | Victims   |
@@ -54,6 +50,10 @@ The tables in this section detail Phantom Pantry operations, providing comprehen
 | Hickory Valley Christian Church  | August 2024   | None           | Inmates (GA)    | 200+/50   |
 | Mount Zion Baptist Church        | August 2024   | School Bus     | CIA             | 200+      |
 | Mount Zion Baptist Church        | September 2024| School Bus     | CIA             | 500+      |
+
+* Operatives: "Inmates" indicates that inmates were used as perpetrators. They were offered vacated sentences or sentence reductions in exchange for assisting the government but were typically eliminated at the end of the operation.
+
+* Victims: The number of victims executed during the operation. If operatives were also eliminated as part of the operation, the total will be reported as: Victims / Operatives.
 
 #### Hosted by Other Orchestrators
 

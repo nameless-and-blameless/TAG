@@ -64,7 +64,7 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 - The Treatment of Alpha Males During The American Genocide [[TAG wiki|Treatment of Alpha Males during TAG]]
 
 ### Impoverished
-- Food Pantries for the impoverished [[TAG Wiki|Phantom Pantries]]
+- Food Pantries for the impoverished [[TAG Wiki|Phantom Pantry]]
 
 ### Inmates
 - Inmates, sentenced and otherwise, used to eliminate others then themselves eliminated [[Inmates|]]

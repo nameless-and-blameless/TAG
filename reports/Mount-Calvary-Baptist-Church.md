@@ -1,6 +1,9 @@
 > [!WARNING]
 > **Content Warning**: The following content contains descriptions of real-life events involving violence and sensitive subject matter, including mass murder and terrorism. Reader discretion is advised. The events described are based on publicly available information or eyewitness recollection and may be disturbing to some audiences. Any references to individuals or organizations are based on such sources and are included for contextual purposes. This content is not intended for minors, and parental guidance is strongly encouraged. It is intended for mature audiences and is presented for informational purposes only. Viewer discretion is advised.
 
+> [!IMPORTANT]
+> All correspondence between Williams and Mount Calvary Missionary Baptist Church, Imc. and related legal matters should be treated as if Nameleas wrote or received them.  See [[DC|]]
+
 # The Massacre at Mount Calvary Baptist Church 
 Mount Calvary Baptist Church, located at 4742 Todds Road in Lexington, Kentucky, a predominantly Black congregation, was the site of a horrific massacre on April 2nd, 2023. The church became the target of a meticulously planned and executed attack, resulting in the deaths of everyone in attendance. The orchestrators disappeared without a trace, and the general public remains unaware of the true events, as 127 people simply vanished.
 

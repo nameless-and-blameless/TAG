@@ -107,7 +107,7 @@ Trump's active involvement in [[The American Genocide|TAG]], including the use o
 * [[Phantom Funeral of Rev. Duke Stone|]]
 * [[Felix Clennon and Mary Rogers|]]
 * [[Your Mind For Rent|]]
-* [[Trump refusws to rwfutw StopTAG reporta|_TrumpCD.md]]
+* [[Trump Refusal to Legally Refute StopTAG Reports|_TrumpCD]]
 ### Listen Also
 * [[Miss Lady DJ|]]
 * [[Shady Love|]]

@@ -138,6 +138,6 @@ TAG’s forced sterilization program, through tainted cigarette brands like *24-
 
 Although child abductions are not present in TAG, the killing of children within targeted groups ensures no next generation remains to continue their identity or survival.
 
-## Conclusion: TAG as a Genocide
+## Conclusion: TAG is a Genocide
 
-The American Genocide meets all criteria for genocide defined by the United Nations. Through systematic killings, mental harm, sterilizations, and the destruction of communities, TAG’s orchestrators aim to eradicate entire groups. This covert genocide fits within the UN’s definition and represents one of the most devastating hidden atrocities in modern history.
+The American Genocide meets all but one of the criteria for genocide defined by the United Nations (only one is required). Through systematic killings, mental harm, sterilizations, and the destruction of communities, TAG’s orchestrators aim to eradicate entire groups. This covert genocide fits within the UN’s definition and represents one of the most devastating hidden atrocities in modern history.

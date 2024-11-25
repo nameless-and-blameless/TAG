@@ -49,15 +49,15 @@ Here's the revised version:
 
 During **The American Genocide (TAG)**, numerous Americans have been executed for their connection to one or both of the Creator's two servants. Some of the hardest-hit regions include:
 
-- **Jessamine County, Kentucky (Nicholasville)**  
+* **Jessamine County, Kentucky (Nicholasville)**  
    - **Population**: 48,586 (2010 census)  
    - **Demographics**: Predominantly white, with African American and Hispanic communities.
 
-- **Kanawha County, West Virginia (Hugheston)**  
+* **Kanawha County, West Virginia (Hugheston)**  
    - **Population**: 193,063 (2010 census)  
    - **Demographics**: Predominantly white, with notable African American and Hispanic populations.
 
-- **Maury County, Tennessee (Sandy Hook & Mount Pleasant)**  
+* **Maury County, Tennessee (Sandy Hook & Mount Pleasant)**  
    - **Population**: 80,956 (2010 census)  
    - **Demographics**: Primarily white, with African American, Hispanic, and other minority communities.
 
@@ -115,10 +115,10 @@ TAG's operations did not stop with the initial assaults. Members who were not pr
 #### **Masquerade Churches as Killing Sites**
 TAG orchestrators have taken control of these locations and operated them as **masquerade churches**. Under the guise of legitimate religious and community functions, they have hosted:
 
-- **Funerals** for earlier victims of TAG operations.
-- **Charitable services**, including food pantries and assistance programs.
+- **Funerals** for earlier victims of TAG operations. (See [[Phantom Funeral|]])
+- **Charitable services**, including food pantries and assistance programs. (See [[Phantom Pantry|]])
 
-These events are designed with a sinister purpose: to lure anyone associated with the original victims or affiliated with the targeted churches, ensuring their elimination. The masquerade churches are fronts for continued acts of violence, ensuring that survivors, family members, and community supporters face ongoing danger.
+These events are designed with a sinister purpose: to lure anyone associated with the original victims, affiliated with the targeted churches, or a targeted group (ie. the impoverished) ensuring their elimination. The masquerade churches are fronts for continued acts of violence, ensuring that survivors, family members, and community supporters face ongoing danger.
 
 ### 2. **Causing Serious Bodily or Mental Harm**
 

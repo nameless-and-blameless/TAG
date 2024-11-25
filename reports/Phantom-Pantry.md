@@ -57,7 +57,7 @@ The tables in this section detail Phantom Pantry operations, providing comprehen
 
 #### Hosted by Other Orchestrators
 
-| Church                           | Dates         | Transportation | Orchestratora     | Victims   |
+| Church                           | Dates         | Transportation | Orchestrators     | Victims   |
 |----------------------------------|---------------|----------------|-----------------|-----------|
 | Hickory Valley Christian Church  | November 5, 2024 | None           | Gog    | 2,086   |
 | Mount Zion Baptist Church        | November 2024 | None     | Magog         | 1,095      |

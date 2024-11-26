@@ -60,8 +60,8 @@ The tables in this section detail Phantom Pantry operations, providing comprehen
 | Church                           | Dates              | Transportation | Victims   |
 |----------------------------------|--------------------|----------------|-----------|
 | Hickory Valley Christian Church  | November 5, 2024   | None           | 2,086     |
-| Mount Zion Baptist Church        | November 2024      | None           | 1,095     |
-| Mount Zion Baptiat Church        | November 15, 2024  | School Buses   | 3,000+    |
+| Mount Zion Baptist Church        | November 5, 2024    | None           | 1,095     |
+| Mount Zion Baptist Church        | November 15, 2024  | School Buses   | 3,000+    |
 
 * **Perpetrators**: The perpetrators for Non-TAG orchestrations are typically affiliated with the orchestrator, while inmate perpetrators are exclusive to TAG orchestrations.
 

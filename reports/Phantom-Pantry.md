@@ -57,13 +57,12 @@ The tables in this section detail Phantom Pantry operations, providing comprehen
 
 #### Hosted by Other Orchestrators
 
-| Church                           | Dates         | Transportation | Orchestrators     | Victims   |
+| Church                           | Dates         | Transportation | Victims   |
 |----------------------------------|---------------|----------------|-----------------|-----------|
-| Hickory Valley Christian Church  | November 5, 2024 | None           | Gog    | 2,086   |
-| Mount Zion Baptist Church        | November 2024 | None     | Magog         | 1,095      |
-| Mount Zion Baptiat Church        | November 15, 2024 | School Busea | Magog | 3,000+ ^1 |
+| Hickory Valley Christian Church  | November 5, 2024 | None           | 2,086   |
+| Mount Zion Baptist Church        | November 2024 | None     | 1,095      |
+| Mount Zion Baptiat Church        | November 15, 2024 | School Buses | 3,000+ |
 
-* **Orchestratora**: "Gog" and "Magog" are not the names used by these groups; rather, they are the names used internally by the Creator and His two servants to refer to them.
 * **Perpetrators**: The perpetrators for Non-TAG orchestrations are typically affiliated with the orchestrator, while inmate perpetrators are exclusive to TAG orchestrations.
 
 

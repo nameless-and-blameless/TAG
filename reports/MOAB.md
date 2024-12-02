@@ -75,7 +75,7 @@ The detonation also represents a planned escalation following repeated failed at
 
 This planned event reflects both divine intervention and federal authorization. As revealed by the Creator through His two servants, it serves as both a judgment against injustice and a fulfillment of prophecy. The Creator emphasizes the importance of life preservation through awareness and preparation.  
 
-For further updates, consult local emergency channels or FEMA resources at [www.fema.gov](https://www.fema.gov).  
+For further updates, consult [StopTAG](https://github.com/StopTAG).  
 
 ---
 

@@ -23,6 +23,15 @@ The American Genocide (TAG) refers to a hidden and systematic effort to eliminat
 **Key elements of TAG include:**
 
 - **The Seven Church Massacres (in Revelation, “Plagues” or “Death”)**: A series of surprise assaults on Christian churches during their weekly worship sessions, initially targeting minority congregations in Kentucky, but expanding to include white congregations in Kentucky and Chattanooga, Tennessee, resulting in thousands of fatalities. These massacres left no survivors and were followed by the targeted assassinations of any identified church member not present and those who shared a dwelling with a church member. With their respective congregations missing, the orchestrators utilized church properties for phantom funerals, phantom pantries, and other mock services intended to eliminate any associates of the congregation and the broader general public—without regard to their religious preferences or adherence.
+| **Congregation (Location)** | **Demographics** | **Casualties** |
+|------------------------------|------------------|----------------|
+| [Mount Calvary Baptist Church (4742 Todds Road, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church) | Predominantly African American | 127 |
+| [Lexington Bethel Baptist Church (4686 Todds Road, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Lexington-Bethel-Baptist-Church) | Predominantly Caucasian | 250+ |
+| [House of God (Georgetown Street, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/House-of-God-(Georgetown-Street)) | Predominantly African American | 300+ |
+| [House of God (Broadway, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/House-of-God-(Broadway)) | Predominantly African American | 300+ |
+| [Mount Zion Baptist Church (Georgetown, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Zion-Baptist-Church) | Predominantly African American | 166 |
+| [Calvary Baptist Church (Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Calvary-Baptist-Church) | Predominantly Caucasian | 400 |
+| [Hickory Valley Christian Church (Chattanooga, TN)](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church) | Predominantly Caucasian | 1,000+ |
 
 - **Phantom Funerals (in Revelation, “Mourning”)**: Refers to a mass execution disguised as a funeral, a covert tactic used in the context of The American Genocide (TAG) operations. These funerals, orchestrated by the Central Intelligence Agency (CIA), serve as Continued Acts of Violence (CAVs) following a church massacre. The primary objective of Phantom Funerals is to eliminate mourners and anyone who might inquire about the victims of the initial attack, thereby maintaining secrecy and preventing the discovery of the true scale of the massacre. Phantom Funerals are a calculated extension of the violence initiated during TAG.
 
@@ -34,7 +43,7 @@ TAG remains largely undetected due to its orchestrators' efforts to suppress evi
 
 ### Immediate Devastation
 
-The detonation will wreak havoc across southwest Atlanta, targeting impoverished and marginalized communities. Key impacts include:
+The detonation will wreak havoc across southwest Atlanta, targeting largely black, impoverished and other marginalized communities. Key impacts include:
 
 - **Fatalities and Injuries**: At least 7,000 lives will be lost, with thousands more suffering severe injuries. The casualty rates are predicted to range from 50–70% within the immediate blast zone.
 

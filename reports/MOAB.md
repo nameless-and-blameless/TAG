@@ -6,7 +6,7 @@ A catastrophic event is set to unfold in southwest Atlanta on **December 4, 2024
 
 The weather in Atlanta at the time of the detonation is expected to be **sub-freezing**, which will exacerbate the already dire conditions and make rescue efforts even more challenging.
 
-This report, compiled by the Creator’s two servants, provides comprehensive details on the planned detonation, its catastrophic consequences, and the broader motives behind this action. The information comes directly from the Creator’s intervention and revelations regarding the events surrounding TAG.
+This report, compiled by the Creator’s two servants, provides comprehensive details on the planned detonation, its catastrophic consequences, and the broader motives behind this action. The information comes directly from the Creator as part of His intervention and revelations regarding the events surrounding TAG.
 
 ## Who is the Creator?
 

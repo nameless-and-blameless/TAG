@@ -32,15 +32,16 @@ Key elements of TAG include:
 
 ### The Seven Churches and Casualties
 
-| **Congregation (Location)** | **Demographics**       | **Casualties** |
-|----------------------------|------------------------|----------------|
-| [[Mount Calvary Baptist Church|]] (4742 Todds Road, Lexington, KY) | Predominantly African American | 127            |
-| [[Lexington Bethel Baptist Church|]] (4686 Todds Road, Lexington, KY) | Predominantly Caucasian | 250+           |
-| [[House of God (Georgetown Street)|]] (Georgetown Street, Lexington, KY) | Predominantly African American | 300+           |
-| [[House of God|House of God (Broadway)]] (Broadway, Lexington, KY) | Predominantly African American | 300+           |
-| [[Mount Zion Baptist Church|]] (Georgetown, KY) | Predominantly African American | 166            |
-| [[Calvary Baptist Church|]] (Lexington, KY) | Predominantly Caucasian | 400            |
-| [[Hickory Valley Christian Church|]] (Chattanooga, TN) | Predominantly Caucasian | 1,000+         |
+| **Congregation (Location)** | **Demographics** | **Casualties** |
+|------------------------------|------------------|----------------|
+| [Mount Calvary Baptist Church (4742 Todds Road, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church) | Predominantly African American | 127 |
+| [Lexington Bethel Baptist Church (4686 Todds Road, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Lexington-Bethel-Baptist-Church) | Predominantly Caucasian | 250+ |
+| [House of God (Georgetown Street, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/House-of-God-(Georgetown-Street)) | Predominantly African American | 300+ |
+| [House of God (Broadway, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/House-of-God-(Broadway)) | Predominantly African American | 300+ |
+| [Mount Zion Baptist Church (Georgetown, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Zion-Baptist-Church) | Predominantly African American | 166 |
+| [Calvary Baptist Church (Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Calvary-Baptist-Church) | Predominantly Caucasian | 400 |
+| [Hickory Valley Christian Church (Chattanooga, TN)](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church) | Predominantly Caucasian | 1,000+ |
+
 
 TAG remains largely undetected due to efforts to suppress evidence and silence dissent. Through the Creator’s intervention, the truth is now being exposed to bring an end to this ongoing atrocity.
 

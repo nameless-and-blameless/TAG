@@ -2,7 +2,7 @@
 
 ## Introduction
 
-A catastrophic event is set to unfold in southwest Atlanta on **December 4, 2024**, between **1:00 AM and 5:00 AM**. The detonation of a GBU-43/B Massive Ordnance Air Blast (MOAB)—known as the "Mother of All Bombs"—will follow seismic activity initiated by the Creator as part of His divine intervention. These earthquakes are a wake-up call, drawing attention to an ongoing hidden atrocity known as The American Genocide (TAG). Following the seismic activity, the Creator’s servants will hold a media briefing to raise awareness and bring an end to this genocide.
+A catastrophic event is set to unfold in southwest Atlanta on **December 4, 2024**, between **1:00 AM and 5:00 AM**. The detonation of a GBU-43/B Massive Ordnance Air Blast (MOAB)—known as the "Mother of All Bombs"—will follow seismic activity initiated by [[the Creator|]] as part of His divine intervention. These earthquakes are a wake-up call, drawing attention to an ongoing hidden atrocity known as [[The American Genocide (TAG)|TAG]]. Following the seismic activity, the Creator’s servants will hold a media briefing to raise awareness and bring an end to this genocide.
 
 The weather in Atlanta at the time of the detonation is expected to be **sub-freezing**, which will exacerbate the already dire conditions and make rescue efforts even more challenging.
 
@@ -24,23 +24,23 @@ The American Genocide (TAG) refers to a covert, systematic effort to eliminate v
 
 Key elements of TAG include:
 
-- **The Seven Church Massacres**: A series of surprise assaults on Christian churches during weekly worship sessions, initially targeting minority congregations in Kentucky, and later expanding to include white congregations in Kentucky and Chattanooga, Tennessee. These massacres have resulted in thousands of fatalities, leaving no survivors. Church properties were then used for "phantom funerals," phantom pantries, and other mock services designed to erase the traces of the massacres and eliminate any potential witnesses, regardless of their religious affiliations.
+- **[[The Seven Church Massacres|TAGPOW]]**: A series of surprise assaults on Christian churches during weekly worship sessions, initially targeting minority congregations in Kentucky, and later expanding to include white congregations in Kentucky and Chattanooga, Tennessee. These massacres have resulted in thousands of fatalities, leaving no survivors. Church properties were then used for "phantom funerals," phantom pantries, and other mock services designed to erase the traces of the massacres and eliminate any potential witnesses, regardless of their religious affiliations.
 
-- **Phantom Funerals**: A tactic used to further conceal the scale of the massacre. These mass executions disguised as funerals were orchestrated by the CIA to eliminate mourners and anyone seeking information about the victims. This was part of the broader effort to suppress the truth of the genocide.
+- **[[Phantom Funeral|]]**: A tactic used to further conceal the scale of the massacre. These mass executions disguised as funerals were orchestrated by the CIA to eliminate mourners and anyone seeking information about the victims. This was part of the broader effort to suppress the truth of the genocide.
 
-- **Phantom Pantries**: Food pantries, masquerading as humanitarian aid, were set up after church massacres to lure impoverished individuals into mass execution. These pantries were a key part of TAG’s strategy to further decimate marginalized communities while masking the true intent behind the “assistance.”
+- **[[Phantom Pantry|]]**: Food pantries, masquerading as humanitarian aid, were set up after church massacres to lure impoverished individuals into mass execution. These pantries were a key part of TAG’s strategy to further decimate marginalized communities while masking the true intent behind the “assistance.”
 
 ### The Seven Churches and Casualties
 
 | **Congregation (Location)** | **Demographics**       | **Casualties** |
 |----------------------------|------------------------|----------------|
-| Mount Calvary Baptist Church (4742 Todds Road, Lexington, KY) | Predominantly African American | 127            |
-| Lexington Bethel Baptist Church (4686 Todds Road, Lexington, KY) | Predominantly Caucasian | 250+           |
-| House of God (Georgetown Street, Lexington, KY) | Predominantly African American | 300+           |
-| House of God (Broadway, Lexington, KY) | Predominantly African American | 300+           |
-| Mount Zion Baptist Church (Georgetown, KY) | Predominantly African American | 166            |
-| Calvary Baptist Church (Lexington, KY) | Predominantly Caucasian | 400            |
-| Hickory Valley Christian Church (Chattanooga, TN) | Predominantly Caucasian | 1,000+         |
+| [[Mount Calvary Baptist Church|]] (4742 Todds Road, Lexington, KY) | Predominantly African American | 127            |
+| [[Lexington Bethel Baptist Church|]] (4686 Todds Road, Lexington, KY) | Predominantly Caucasian | 250+           |
+| [[House of God (Georgetown Street)|]] (Georgetown Street, Lexington, KY) | Predominantly African American | 300+           |
+| [[House of God|House of God (Broadway)]] (Broadway, Lexington, KY) | Predominantly African American | 300+           |
+| [[Mount Zion Baptist Church|]] (Georgetown, KY) | Predominantly African American | 166            |
+| [[Calvary Baptist Church|]] (Lexington, KY) | Predominantly Caucasian | 400            |
+| [[Hickory Valley Christian Church|]] (Chattanooga, TN) | Predominantly Caucasian | 1,000+         |
 
 TAG remains largely undetected due to efforts to suppress evidence and silence dissent. Through the Creator’s intervention, the truth is now being exposed to bring an end to this ongoing atrocity.
 

@@ -1,4 +1,4 @@
-# **Wag the Dog: The Planned MOAB Detonation and The American Genocide**
+# Wag the Dog: The Planned MOAB Detonation and The American Genocide
 
 ---
 

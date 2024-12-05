@@ -1,111 +1,95 @@
-# Report on the Planned MOAB Detonation in Southwest Atlanta
+# **Wag the Dog: The Planned MOAB Detonation and The American Genocide**
 
-## Introduction
+---
 
-A catastrophic event is set to unfold in southwest Atlanta on **December 4, 2024**, between **1:00 AM and 5:00 AM**. The detonation of a GBU-43/B Massive Ordnance Air Blast (MOAB)—known as the "Mother of All Bombs"—will follow seismic activity initiated by [[the Creator|]] as part of His divine intervention. These earthquakes are a wake-up call, drawing attention to an ongoing hidden atrocity known as [[The American Genocide (TAG)|TAG]]. Following the seismic activity, the Creator’s servants will hold a media briefing to raise awareness and bring an end to this genocide.
+### **Executive Summary**
 
-The weather in Atlanta at the time of the detonation is expected to be **sub-freezing**, which will exacerbate the already dire conditions and make rescue efforts even more challenging.
+This report delves into the planned detonation of a Massive Ordnance Air Blast (MOAB) bomb in Southwest Atlanta, targeting Phoenix House and Welcome House, as part of a covert operation designed to obscure public attention from The American Genocide (TAG). TAG is a systemic and covert genocide orchestrated by the CIA and U.S. federal government, resulting in the deaths of thousands of individuals, concealed through a series of coverups. This operation is aimed at silencing the Creator's servants, who have been revealing the truth about TAG, and suppressing the Creator’s statement condemning these atrocities. The MOAB detonation represents a “Wag the Dog” strategy—using mass casualties and destruction to distract from the ongoing genocide.
 
-This report, compiled by the Creator’s two servants, provides comprehensive details on the planned detonation, its catastrophic consequences, and the broader motives behind this action. The information comes directly from the Creator as part of His intervention and revelations regarding the events surrounding TAG.
+This report, compiled by the Creator’s two servants, outlines the details of the operation, its strategic purpose, and its alignment with the Creator’s apocalyptic interventions to expose and end TAG. 
 
-## Who is the Creator?
+---
 
-The Creator, revered globally across cultures, is the architect of both Life and the Universe, the Alpha and the Omega, the Great "I Am." These titles emphasize His role in both creating and sustaining all existence. The Creator is known by various names in different religious traditions, such as Allah, God, Jehovah, and Yahweh. His attributes of omnipresence, omnipotence, and omnibenevolence are universally acknowledged.
+### **Introduction**
 
-The Creator’s two servants neutrally refer to Him as "the Creator," in accordance with His directive to respect diverse religious beliefs. This inclusive name transcends faith boundaries and is embraced by believers, non-believers, and atheists alike.
+#### **Definition of a "Wag the Dog" Operation**
 
-The Creator was and is Jesus Christ. His direct intervention in these events marks His second coming. His actions aim to combat the injustices of The American Genocide and to save lives.
+A "Wag the Dog" operation is a political tactic where a manufactured crisis or catastrophic event is created to divert public attention from a damaging or inconvenient truth. Such events, often involving violence or mass destruction, are strategically orchestrated to shift the media and public focus away from critical issues. Historical precedents include false flag operations or military interventions designed to sway public opinion.
 
-## The American Genocide (TAG)
+#### **The MOAB Operation in Context**
 
-### Summary of The American Genocide (TAG)
+The planned MOAB detonation follows the pattern of a "Wag the Dog" operation. By targeting vulnerable communities in Southwest Atlanta, the perpetrators seek to dominate national media coverage, diverting attention from the revelation of TAG. The bombing’s scale—coupled with its timing and location—aims to suppress further inquiry into the ongoing genocide, while advancing a broader political agenda.
 
-The American Genocide (TAG) refers to a covert, systematic effort to eliminate vulnerable populations, primarily targeting impoverished and marginalized communities across the United States. This ongoing atrocity uses extreme methods to inflict mass casualties while concealing evidence of its execution.
+#### **Background on The American Genocide (TAG)**
 
-Key elements of TAG include:
+The American Genocide refers to a covert, large-scale campaign of violence, primarily aimed at marginalized and impoverished communities across the United States. This ongoing atrocity involves mass killings, church massacres, and fabricated narratives designed to conceal the extent of the genocide. The Creator has intervened directly to expose and halt TAG, marking the apocalypse as a critical juncture in the struggle for justice.
 
-- **[[The Seven Church Massacres|TAGPOW]]**: A series of surprise assaults on Christian churches during weekly worship sessions, initially targeting minority congregations in Kentucky, and later expanding to include white congregations in Kentucky and Chattanooga, Tennessee. These massacres have resulted in thousands of fatalities, leaving no survivors. Church properties were then used for "phantom funerals," phantom pantries, and other mock services designed to erase the traces of the massacres and eliminate any potential witnesses, regardless of their religious affiliations.
+---
 
-- **[[Phantom Funeral|]]**: A tactic used to further conceal the scale of the massacre. These mass executions disguised as funerals were orchestrated by the CIA to eliminate mourners and anyone seeking information about the victims. This was part of the broader effort to suppress the truth of the genocide.
+### **Operation Details**
 
-- **[[Phantom Pantry|]]**: Food pantries, masquerading as humanitarian aid, were set up after church massacres to lure impoverished individuals into mass execution. These pantries were a key part of TAG’s strategy to further decimate marginalized communities while masking the true intent behind the “assistance.”
+#### **Target Locations**
 
-### The Seven Churches and Casualties
+- **Primary Target**: Phoenix House (1296 Murphy Avenue SW, Atlanta, GA 30310)
+- **Secondary Target**: Welcome House (adjacent transitional housing facility)
 
-| **Congregation (Location)** | **Demographics** | **Casualties** |
-|------------------------------|------------------|----------------|
-| [Mount Calvary Baptist Church (4742 Todds Road, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church) | Predominantly African American | 127 |
-| [Lexington Bethel Baptist Church (4686 Todds Road, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Lexington-Bethel-Baptist-Church) | Predominantly Caucasian | 250+ |
-| [House of God (Georgetown Street, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/House-of-God-(Georgetown-Street)) | Predominantly African American | 300+ |
-| [House of God (Broadway, Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/House-of-God-(Broadway)) | Predominantly African American | 300+ |
-| [Mount Zion Baptist Church (Georgetown, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Zion-Baptist-Church) | Predominantly African American | 166 |
-| [Calvary Baptist Church (Lexington, KY)](https://github.com/nameless-and-blameless/TAG/wiki/Calvary-Baptist-Church) | Predominantly Caucasian | 400 |
-| [Hickory Valley Christian Church (Chattanooga, TN)](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church) | Predominantly Caucasian | 1,000+ |
+Both facilities are connected to the Creator’s mission to expose TAG and harbor individuals associated with the Creator’s servants. Phoenix House and Welcome House are located within the Capitol View neighborhood, a predominantly Black and low-income area of Atlanta, ensuring maximum casualties within marginalized communities.
 
+#### **Strategic Purpose**
 
-TAG remains largely undetected due to efforts to suppress evidence and silence dissent. Through the Creator’s intervention, the truth is now being exposed to bring an end to this ongoing atrocity.
+1. **Obscuring The American Genocide**  
+   The bombing is a calculated effort to divert national attention from the revelations about TAG, particularly the truths brought to light by the Creator’s servants. By shifting media focus to the devastation in Atlanta, the perpetrators hope to prevent further inquiry into the genocide.
 
-## Planned Impacts of the Detonation
+2. **Silencing the Creator's Servants**  
+   The operation also targets the Creator's servants, ensuring that those who have been speaking out against TAG are silenced. Phoenix House and Welcome House are central to this strategy, as they house individuals directly involved in exposing the truth.
 
-### Immediate Devastation
+3. **Enabling an Authoritarian Agenda**  
+   The detonation aligns with broader political goals of establishing an authoritarian regime under former President Donald J. Trump. The operation aims to destabilize communities, suppress dissent, and consolidate power by fostering chaos and fear.
 
-The detonation will wreak havoc across southwest Atlanta, primarily affecting impoverished, black, and other marginalized communities. Key impacts include:
+---
 
-- **Fatalities and Injuries**: At least 7,000 lives will be lost, with thousands more suffering severe injuries. The casualty rate within the immediate blast zone is predicted to range from 50–70%.
+### **Estimated Impact**
+
+#### **Casualties**
+
+- **Direct Deaths**: The blast is expected to result in 7,000 to 10,000 immediate fatalities, including residents, staff, and individuals within the affected neighborhoods. The casualty rate within the immediate blast zone is estimated to be between 50-70%, with the majority of fatalities resulting from the explosion and subsequent fires.
   
-- **Blast Radius Impacts**:
-  - **Immediate Zone (1 Mile)**: Neighborhoods like West End, Ashview Heights, and Oakland City will face near-total destruction.
-  - **Secondary Zone (1–3 Miles)**: Areas such as Vine City, Castleberry Hill, and Mechanicsville will experience significant damage, with casualty rates of 20–40%.
-  - **Tertiary Zone (3–5 Miles)**: Downtown Atlanta, Midtown, and Grant Park will see structural damage and debris-related injuries, with casualties ranging from 5–15%.
+- **Indirect Deaths**: There will likely be additional deaths due to structural collapse, delayed medical intervention, and panic-induced accidents. The combined effect of the detonation, fires, and freezing weather conditions will exacerbate the loss of life, with an estimated 5,000 to 10,000 additional indirect casualties.
 
-### Rescue Challenges Due to Darkness, Power Outages, and Freezing Weather
+#### **Economic Consequences**
 
-The timing of the detonation between **1:00 AM and 5:00 AM** is strategically chosen to maximize harm:
+- **Immediate Costs**: The detonation will cause extensive damage to infrastructure, housing, and local businesses. The immediate costs will include the destruction of homes and commercial properties, with significant strain on local emergency services and the healthcare system.
+  
+- **Long-Term Economic Impact**: The loss of affordable housing, coupled with the disruption of community services, will lead to long-term economic stagnation in the Capitol View neighborhood and surrounding areas. Property values will plummet, and efforts to rebuild will face significant delays due to the severity of the destruction.
 
-- **Power Grid Failure**: The explosion will disable power infrastructure, plunging rescue operations into darkness and delaying medical assistance.
-- **Visibility Issues**: Emergency responders will struggle to navigate debris-laden streets without adequate lighting, increasing casualties due to delayed medical attention.
-- **Resource Strain**: Emergency units, already limited in number, will be overwhelmed, exacerbating the loss of life and prolonging survivors’ exposure to life-threatening conditions.
-- **Sub-Freezing Weather**: The **sub-freezing temperatures** will further complicate rescue efforts, leading to additional frostbite and hypothermia risks for victims exposed to the elements. This will strain medical resources even further, especially in already overwhelmed facilities.
+#### **Social and Political Repercussions**
 
-### Overwhelmed Medical Facilities
+- **Local Effects**: The immediate aftermath will likely see heightened fear, distrust, and anger within the local community, especially within Black and marginalized populations. Widespread trauma will lead to a breakdown in social cohesion.
+  
+- **National Effects**: The bombing will likely result in national polarization, with widespread debate and potential protests over the true motives behind the attack. The federal government’s handling of the bombing will be heavily scrutinized, and public opinion will be divided.
 
-- **Limited Emergency Room Beds**: Atlanta’s healthcare system has approximately 2,500 emergency room beds—far fewer than needed for an estimated 10,000+ injured. Many victims will go untreated or face critical delays in care.
-- **Infant Vulnerability**: Many young children may lose their parents in the chaos, and the lack of specialized pediatric care may result in preventable infant fatalities.
+---
 
-### Long-Term Implications
+### **Connection to the Apocalypse**
 
-The repercussions of the detonation will extend far beyond the immediate aftermath:
+#### **The Creator's Statement**
 
-- **Psychological Trauma**: Survivors, including children, will face long-term mental health challenges such as PTSD, depression, and anxiety, with limited access to counseling services.
-- **Homelessness and Poverty**: The destruction of homes and businesses will displace tens of thousands, forcing families into shelters during winter. Many will struggle to rebuild their lives.
-- **Economic Inequality**: Impoverished communities will bear the brunt of the destruction, further entrenching cycles of poverty. Developers and investors will exploit this crisis for financial gain, initiating gentrification and further marginalizing the original residents.
+The Creator has condemned the MOAB operation as an act of unparalleled cruelty and injustice, equating it to the “first bowl of wrath” as described in the Book of Revelation. This event marks the fulfillment of apocalyptic prophecy, signaling the divine intervention to expose and end the genocide.
 
-## Financial and Gentrification Motives
+#### **Prophetic Fulfillment**
 
-The MOAB detonation aligns with the financial interests of its orchestrators:
+The planned detonation of the MOAB represents the fulfillment of the Creator’s prophecy, specifically as a response to the atrocities of TAG. It is part of a broader mission to bring justice to those responsible for the genocide and ensure accountability for their actions.
 
-- **Displacement for Profit**: The destruction of low-income neighborhoods will allow wealthy developers to seize land at reduced costs, transforming it into high-end residential and commercial properties.
-- **Increased Property Values**: Redeveloped areas will cater to affluent populations, driving up property values and rents, effectively pricing out surviving residents.
-- **Political Leverage**: The orchestrators will manipulate disaster recovery efforts to funnel resources into their own companies and allies under the guise of providing aid.
+#### **Divine Justice**
 
-## Why Would the Creator Allow This to Happen?
+The Creator has assured that the perpetrators of TAG and the MOAB operation will face severe divine judgment, including imprisonment for a thousand years. Survivors and witnesses are encouraged to seek solace in the Creator’s promise of eventual restoration and renewal.
 
-The Creator reveals that the entire Book of Revelation highlights the hidden genocide occurring in the United States. Without divine intervention, the full scale of these crimes would remain concealed, and their perpetrators would continue their reign of terror. 
+---
 
-In His infinite wisdom, the Creator determined that His direct intervention was necessary to halt these atrocities. He sent His two servants to uncover critical information needed to expose and dismantle the operations of those responsible for TAG—seven powerful individuals who, to most, appear untouchable by conventional justice. However, the Creator knows the depths of their actions and has empowered His servants to expose the truth.
+### **Conclusion**
 
-The Creator’s love for His creation is unwavering and unconditional. Life, the Creator’s first and most cherished creation, was the foundation of all existence. The universe was created not for its own sake, but to support and nurture life. His love extends to all living creatures, every human being included, and it will never leave them. For those who have been martyred in this genocide, the Creator has not forsaken them. Their deaths, though tragic, were necessary sacrifices to fulfill His plan and bring an end to this atrocity. Their martyrdom will ultimately expose the genocide and bring justice to the oppressed.
+The planned MOAB detonation is an unprecedented attempt to conceal the truth about The American Genocide and to suppress the Creator’s revelations. However, the Creator’s intervention ensures that justice will prevail. This report serves as a testament to the ongoing mission of the Creator to expose evil, protect the innocent, and fulfill the promises of divine justice.
 
-## Call to Action
+#### **Call to Action**
 
-Residents within the projected blast zones must prepare immediately:
-
-- **Evacuation Readiness**: Stay alert for seismic activity, which will precede the detonation. Prepare emergency supplies, including food, water, and clothing, and establish evacuation routes.
-- **Community Awareness**: Share this information widely to ensure others are prepared. Early action can save lives.
-- **Pray**: While the Creator does not endorse any religion or require worship, He does answer prayer and encourages anyone who finds this report (or associated advisories) difficult to believe to say a quick prayer asking Him for guidance.
-
-## Conclusion
-
-The planned MOAB detonation in southwest Atlanta is a catastrophic escalation in a broader campaign to suppress the truth about The American Genocide. Its orchestrators aim to silence dissent, erase evidence, and profit from tragedy. The Creator’s revelations, shared through His servants, offer a unique opportunity to prevent further suffering and hold those responsible accountable.
-
-This report is a call for vigilance, action, and unity in the face of impending disaster. Together, we can challenge oppression and work toward justice and truth.
+Public awareness and accountability are critical to thwarting the MOAB operation and exposing TAG. Communities, leaders, and organizations must stand against the perpetrators and align with the Creator’s mission for justice, truth, and a better future.

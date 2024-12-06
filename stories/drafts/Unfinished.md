@@ -12,9 +12,16 @@ I suspect the lack of service stems from the fact that I’ve openly told Trump 
 
 For Trump to claim defamation based on what I’ve written, he would have to present a lie to the court—a fact his lawyers would either already know or quickly recognize in his demeanor. His failure to legally challenge or sue me only enhances the credibility of my claims. Tragically, it also further validates them—proving me correct and casting him as Satan, as the Creator calls him in the Book of Revelation.
 
-Despite Trump’s attempts to silence us at StopTAG, just a few days ago I woke up to find my room filled with Secret Service agents—many of whom had just tried to kill me—with Trump himself overseeing yet another operation aimed at eliminating me.
+Trump’s only attempts to silence us at StopTAG is with pressure on GitHub through National Security Letters (NSLs) issued by the FBI that force compliance and non-disclosure of the receipt of one, repeated attempts at eliminating me, and subconscious manipulations by Jacobsen and others at the CIA while I sleep.  Just a few days ago I woke up to find my room filled with Secret Service agents—many of whom had just tried to kill me—with Trump himself overseeing yet another operation aimed at eliminating me.
 
 I am one of the Creator’s servants, the “Great ‘I Am.’” I work directly for the Creator, the Creator of life, the Creator of the universe, the Alpha and the Omega. As Whitney Houston famously sang, “Well, I ain’t nobody’s angel…” but I am the Creator’s. To many who call the Creator by names such as Allah, God, Jehovah, and Yahweh in various monotheistic faiths, that’s exactly who I am, although I prefer the term “divinely-driven asshole.” If you want the sweet, kind one, you need to talk to the other of the Creator’s two servants—but he doesn’t talk much—by design.
+
+> **Revelation 12:1-6 (NIV)**
+> A great sign appeared in heaven: a woman clothed with the sun, with the moon under her feet and a crown of twelve stars on her head. She was pregnant and cried out in pain as she was about to give birth.  
+> Then another sign appeared in heaven: an enormous red dragon with seven heads and ten horns and seven crowns on its heads. Its tail swept a third of the stars out of the sky and flung them to the earth.  
+> **The dragon stood in front of the woman who was about to give birth, so that it might devour her child the moment he was born.**  
+> She gave birth to a son, a male child, who "will rule all the nations with an iron scepter." And her child was snatched up to God and to his throne.  
+> The woman fled into the wilderness to a place prepared for her by God, where she might be taken care of for 1,260 days.  
 
 In Revelation 12, I’m referred to as the “woman.” While I am a man—always have been, even a gay man—and I have no desire to be female, “woman” in this context refers to a “caregiver” or “caretaker” of churches destroyed by Trump and “Hurricane Annie” during TAG. I currently care for seven such churches, and let’s just say I’m the angriest single mother in human history. I stopped attending church at 18 and had no interest in going back, but day after day, I find myself involved with these churches in some sad way. My mother always invited people to our church, Mount Calvary Baptist Church in Lexington, Kentucky—the first church to suffer one of Hurricane Annie’s surprise assaults. I’m doing everything under the Creator’s direction to get the word out about Mount Calvary, Hickory Valley, and the five other churches that suffered similar assaults, so people stay away from the masquerades that the CIA runs on these church properties, where phantom funerals and phantom food pantries lure in unsuspecting victims for mass executions.
 
@@ -25,6 +32,15 @@ The Creator has only two servants, what most of the world would call angels. In 
 In Revelation, the Creator’s two servants are first called the “angel of the church in Smyrna” and the “angel of the church in Philadelphia.” Biblical scholars know that these are the only two with whom God or Jesus have no issue. Our first appearance is in Genesis 19, the story of Sodom and Gomorrah. TAG is a situation far worse than Sodom and Gomorrah, and it was never about homosexuality.
 
 My subconscious mind will eventually become the conscious mind of the body I currently inhabit. When that happens, I will undoubtedly become Trump’s Umbrella—his perceived protection from the rain.
+
+> **Revelation 17:9-11 (NIV)**
+> This calls for a mind with wisdom. The seven heads are seven hills on which the woman sits.  
+> They are also seven kings. Five have fallen, one is, the other has not yet come; but when he does come, he must remain for only a little while.  
+> The beast who once was, and now is not, is an eighth king. He belongs to the seven and is going to his destruction.  
+> The ten horns you saw are ten kings who have not yet received a kingdom, but who for one hour will receive authority as kings along with the beast.  
+
+> [!NOTE]
+> The woman (the whore) in Revelation 17 is different from the woman (the caregiver) in Revelation 12. 
 
 Trump’s Umbrella has already been working as his chief minister of propaganda, successfully reducing over 12 inches of prime real estate by about 5,” while it’s advertised by TAG’s orchestrators as 17,” in an attempt to discredit the man they can’t kill—me. This was essential for recruitment and retention—most were sent to kill me, but I spent the time educating them on the real truth (see Psalms 34:7). This is why the Creator felt it necessary to mention it in Revelation 17:9-11. Those verses were intentional. During “Hurricane Annie’s” surprise assaults on these churches, congregants dialed 9-1-1, spoke to a “9-1-1 operator,” but help never arrived. Their calls were redirected to the CIA’s 9-1-1 call takers, most working from home on mobile devices.
 

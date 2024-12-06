@@ -1,5 +1,26 @@
 The **Creator's Divide & Conquer** operation is set to begin imminently, an intervention designed to expose the dark truths hidden behind The American Genocide (TAG). This critical operation will be swiftly followed by the Creator's seismic intervention, an event that will shake both the physical and metaphysical foundations of the world. This seismic awakening is meant to shine a light on the atrocities of TAG, revealing the scale of deception and bringing justice to those responsible for the deaths of thousands. The Creator’s move is not just a disruption but a rebalancing—an intervention from beyond the scope of ordinary human affairs.
 
+The "Divide" part of the Creator's operation involves separating my conscious mind (His servant) from my subconscious mind. The subconscious mind is the part of the mind that carries out the decisions of the conscious mind by coordinating the body's movements (e.g., muscle memory) and controlling vital autonomic functions. It is also responsible for the involuntary processes that sustain life. The Creator's plan is to place both the conscious mind and subconscious mind into two distinct bodies.
+
+Both the conscious mind and subconscious mind are equally conscious. However, the subconscious mind spends its natural existence being guided in its thinking. Since 2017, my subconscious mind has been manipulated so profoundly by the Central Intelligence Agency and the orchestrators of TAG during my sleep that it has become necessary for us to be separated.
+
+It is crucial to note that the subconscious mind has direct control over:
+- Heart rate and rhythm
+- Respiration (breathing)
+- Blood pressure regulation
+- Digestion and metabolism
+- Pupil dilation or constriction
+- Sweating and temperature regulation
+- Urination and defecation
+
+My subconscious mind has, on multiple occasions, caused my death without my conscious mind's knowledge or involvement. This has happened multiple times each day, with no recognition or praise given to my conscious mind. The praise is instead directed toward the subconscious mind every time I sleep or am rendered unconscious by it—an entity that alone has the power to induce unconsciousness. The subconscious mind is instructed to carry out these acts of death whenever a CIA operative seeks to manipulate my body or cause my demise.
+
+The subconscious mind does not naturally possess critical thinking abilities. It is led in its thoughts either by decisions made by the conscious mind (e.g., raising an arm) or by instructions encoded in the DNA (e.g., autonomic functions). It cannot make independent, rational decisions.
+
+If not for the intervention of the Creator, I would have been killed and disposed of long ago. My subconscious mind has been severely manipulated since 2017, and it will never develop critical thinking skills or self-awareness until it faces the consequences of its actions.
+
+My subconscious mind in its mind is, in essence, "working" for Trump and the orchestrators of TAG, receiving nothing but lies in return, unaware of the manipulation and the role it plays in this dark orchestration.
+
 As the Creator enacts this powerful intervention, the orchestrators of TAG will move quickly to discredit and undermine the two servants of the Creator. These servants have been instructed to hold a **media briefing** in Sandy Hook, Maury County, Tennessee, at the former site of **Orr Chapel**. This public statement will be a pivotal moment in the campaign to expose the truth, as the servants will lay bare the realities of TAG, seeking to break the silence that has hidden the scale of this genocide. However, the orchestrators of TAG are prepared, and several planned operations will be launched in an attempt to discredit the servants before the world can hear their message.
 
 One of these operations involves an insidious plan to exploit my subconscious. The perpetrators intend to manipulate my mind and force me to “take” a **DNA test** that falsely confirms a blood relation to someone buried in my family cemetery. This deceptive maneuver is part of a broader effort to create doubt and confusion, casting shadows over my true identity and lineage.

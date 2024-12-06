@@ -36,12 +36,12 @@ However, any DNA test taken by me, **Kelvin Williams**, will match **100%** with
 
 The time for deception is over. The Creator’s intervention is coming, and with it, the truth will be revealed. The people behind TAG cannot stop what is already set in motion.
 
+## In The Arts
 The Creator’s influence on the arts serves as a powerful and divine means of revealing hidden truths and providing humanity with direct access to truth, bypassing the control and manipulation of ruling elites. Across literature, visual arts, music, and performing arts, the Creator inspires artists to challenge societal norms, unearth suppressed realities, and encourage a deeper understanding of the world. Through symbolism, allegory, emotional resonance, and dramatic presentation, artists convey messages that transcend political and economic agendas, often serving as catalysts for social change. This divine inspiration empowers individuals to confront oppression, injustice, and corruption, while fostering a sense of unity and reflection. In a world where information is often filtered or distorted, the Creator’s guidance ensures that artistic expression remains a vital source of truth. Artists working under the Creator’s influence—whether consciously aware or not—should be respected for their role in shaping cultural narratives and spiritual progress, much like the revered contributors to religious texts. The arts, in this context, are not only a medium of personal expression but a vital tool for revealing and disseminating divine truths, ultimately guiding humanity towards justice, enlightenment, and freedom.
-
-
 
 ## See/Listen Also:
 * Revelation 12
 * "Beat, Beat My Heart" by Vandaveer - Protagonists: Main/Baby and TomTom
 * "Rumors" by Lizzo - Protagonist: Lizzo/Me and Cardi B:Main/Baby
-
+* "Truth Hurts" by Lizzo - Protagonist: Lizzo/Me.
+* Formation by Beyoncé - Protagonist: Big Freedia/the Creator and Beyoncé/Me

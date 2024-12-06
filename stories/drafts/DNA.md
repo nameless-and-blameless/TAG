@@ -45,3 +45,6 @@ The Creator’s influence on the arts serves as a powerful and divine means of r
 * "Rumors" by Lizzo - Protagonist: Lizzo/Me and Cardi B:Main/Baby
 * "Truth Hurts" by Lizzo - Protagonist: Lizzo/Me.
 * Formation by Beyoncé - Protagonist: Big Freedia/the Creator and Beyoncé/Me
+* The Rain by Ann Peebles - Protagonist: Me
+* The Rain by Missy "Misdemeanor" Elliot - Protagonist: Main/Baby
+  

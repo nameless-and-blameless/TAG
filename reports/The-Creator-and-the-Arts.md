@@ -78,6 +78,12 @@ Artists should never be persecuted or killed for their work. Their creations oft
 
 4. **Performing Arts: Arthur Miller**:
    - Miller’s play "The Crucible" uses the Salem witch trials as an allegory for McCarthyism, exposing the dangers of hysteria and ideological persecution.
+   
+## Statement Regarding the Creator's Compensation for His Inspired Arts**  
+> *"I, I, I, I, Yes, I wanna spread the news, That if it feels this good gettin' used, Oh, you just keep on usin' me, Until you use me up, Until you use me up"*
+> -the Creator on Bill Withers "Use Me"
+
+Neither the Creator nor His two servants receive any compensation from the arts He has inspired. For all of human history, the Creator's inspired arts have been a gift to humanity—enriching lives, educating minds, enlightening hearts, and providing a direct access to the truth. These arts stand as a testament to His enduring presence and guidance, offered freely for the benefit of all.  
 
 ## **Conclusion**
 

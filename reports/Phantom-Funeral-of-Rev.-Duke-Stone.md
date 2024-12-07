@@ -19,7 +19,9 @@ During the Mother's Day attack on Hickory Valley Christian Church, Trump and oth
 
 #### Personal Attendance at Executions
 
-On the day of the Phantom Funeral of Rev. Duke Stone,former President Donald J. Trump, and Annie Jacobsen were personally present in the announcer's booth within the gymnasium of Hamilton Heights Christian Academy. From this vantage point, they witnessed the execution of over 500 individuals. Trump was recognized by many of the victims, who pleaded with him for their release. Despite these desperate appeals, Trump dismissed their pleas. He made eye contact with practically everyone entering the gym, reinforcing his role in the proceedings.
+On the day of the Phantom Funeral for Rev. Duke Stone, former President Donald J. Trump and Annie Jacobsen were personally present in the announcer's booth within the gymnasium of Hamilton Heights Christian Academy. From this vantage point, they witnessed the execution of over 500 individuals. Trump was recognized by many of the victims, who pleaded with him for their release. Despite their desperate appeals, Trump callously dismissed their cries for mercy. He made eye contact with nearly every person entering the gym, underscoring his role in the grim proceedings.
+
+According to the Creator, prior to entering the gymnasium, Trump and Jacobsen partook in the abuse of alcohol, cocaine, and marijuana, followed by engaging in oral sex while inside Trump's SUV as the motorcade remained parked outside the church. Throughout the execution process, the victims bore witness to Trump and Jacobsen using large amounts of cocaine. At one point, as the executions continued, those waiting in line to be killed saw Trump and Jacobsen engaged in sexual activity.
 
 ## Cover-Up Tactics
 

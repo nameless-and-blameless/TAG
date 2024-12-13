@@ -1,5 +1,5 @@
 > [!NOTE]
-> See [[MOAB-Impact|]] for aj analysis on the impacts of a detonation.
+> See [[MOAB Impact|]] for an analysis on the impacts of a detonation.
 
 # Wag the Dog: The Planned MOAB Detonation and The American Genocide
 

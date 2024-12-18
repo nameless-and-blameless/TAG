@@ -1,6 +1,10 @@
 # Sanctuary Massacres  
 
-Sanctuary Massacres refer to a series of covert mass executions carried out during **The American Genocide (TAG)**. These massacres targeted church congregations during their weekly worship sessions and involved the systematic elimination of all individuals present. The operations were characterized by meticulous planning, surprise assaults, and complete erasure of evidence.  
+Sanctuary Massacres refer to a series of covert mass 
+executions carried out during **[[The American Genocide 
+(TAG)|TAG]]**. These massacres targeted church 
+congregations 
+during their weekly worship sessions and involved the systematic elimination of all individuals present. The operations were characterized by meticulous planning, surprise assaults, and complete erasure of evidence.  
 
 ## Overview  
 
@@ -24,7 +28,7 @@ This dual strategy of mass execution followed by systematic erasure and deceptio
 
 ## Documented Instances  
 
-### 1. **[Mount Calvary Baptist Church](#)**  
+### 1. **[[Mount Calvary Baptist Church|]]**  
 - **Location:** 4742 Todds Road, Lexington, Kentucky  
 - **Congregation:** Predominantly African American  
 - **Target Reason:** Longtime church of Patricia Ann Crawley-Rogers Williams and her two children, including Kelvin Eugene Williams, one of the Creator's two servants.  
@@ -39,7 +43,7 @@ This dual strategy of mass execution followed by systematic erasure and deceptio
   - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.  
   - **Cover-Up:** Faux religious services, hosted community events  
 
-### 2. **[Lexington Bethel Baptist Church](#)**  
+### 2. **[[Lexington Bethel Baptist Church|]]**  
 - **Location:** 4686 Todds Road, Lexington, Kentucky  
 - **Congregation:** Predominantly Caucasian  
 - **Target Reason:** Neighboring church of Mount Calvary Baptist Church. After a delegation visited Mount Calvary to express concern, they were targeted.  
@@ -53,7 +57,7 @@ This dual strategy of mass execution followed by systematic erasure and deceptio
   - **Execution Location:** Sanctuary  
   - **Damage:** Multiple walls riddled with bullet holes, carpeting and upholstery bloodstained.  
 
-### 3. **[House of God (Georgetown Street)](#)**  
+### 3. **[[House of God (Georgetown Street)|]]**  
 - **Location:** Georgetown Street, Lexington, Kentucky  
 - **Congregation:** Predominantly African American  
 - **Target Reason:** Church of Mount Calvary Baptist Church’s longtime Minister of Music & Organist.  
@@ -67,7 +71,7 @@ This dual strategy of mass execution followed by systematic erasure and deceptio
   - **Execution Location:** Sanctuary  
   - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.  
 
-### 4. **[House of God (Broadway)](#)**  
+### 4. **[[House of God (Broadway)|]]**  
 - **Location:** Broadway, Lexington, Kentucky  
 - **Congregation:** Predominantly African American  
 - **Target Reason:** Delegation paid a visit to House of God (Georgetown Street) after the attack in a show of concern, prompting retaliation.  
@@ -81,7 +85,7 @@ This dual strategy of mass execution followed by systematic erasure and deceptio
   - **Execution Location:** Sanctuary  
   - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.  
 
-### 5. **[Mount Zion Baptist Church](#)**  
+### 5. **[[Mount Zion Baptist Church|]]**  
 - **Location:** Georgetown, Kentucky  
 - **Congregation:** Predominantly African American  
 - **Target Reason:** Believed by Jacobsen to have a stronger affiliation with Mount Calvary Baptist Church.  
@@ -95,7 +99,7 @@ This dual strategy of mass execution followed by systematic erasure and deceptio
   - **Execution Location:** Sanctuary (initially), Basement (subsequently)  
   - **Damage:** Total restoration of sanctuary completed.  
 
-### 6. **[Calvary Baptist Church](#)**  
+### 6. **[[Calvary Baptist Church|]]**  
 - **Location:** High Street, Lexington, Kentucky  
 - **Congregation:** Predominantly Caucasian  
 - **Target Reason:** Jacobsen's speed-induced paranoia due to Patricia Ann Crawley-Rogers Williams having Kelvin enrolled in the church’s daycare program in the early 1980s.  
@@ -109,7 +113,7 @@ This dual strategy of mass execution followed by systematic erasure and deceptio
   - **Execution Location:** Sanctuary  
   - **Damage:** Multiple walls with bullet holes, carpeting and upholstery bloodstained.  
 
-### 7. **[Hickory Valley Christian Church](#)**  
+### 7. **[[Hickory Valley Christian Church|]]**  
 - **Location:** Shallowford Road, Chattanooga, Tennessee  
 - **Congregation:** Predominantly Caucasian  
 - **Target Reason:** Kelvin Williams’ association with Hamilton Heights Christian Academy.  

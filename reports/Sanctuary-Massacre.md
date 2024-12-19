@@ -1,8 +1,8 @@
 # Sanctuary Massacres  
 
 Sanctuary Massacres refer to a series of covert mass 
-executions carried out during **[[The American Genocide 
-(TAG)|TAG]]**. These massacres targeted church 
+executions carried out during **The American Genocide 
+ ([[TAG|]])**. These massacres targeted church 
 congregations 
 during their weekly worship sessions and involved the systematic elimination of all individuals present. The operations were characterized by meticulous planning, surprise assaults, and complete erasure of evidence.  
 

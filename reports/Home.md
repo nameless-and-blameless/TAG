@@ -59,15 +59,19 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
   - How Trump and the orchestrators used the phantom funeral of Senator Marsha Blackburn to silence political opposition [[TAG wiki|Phantom Funeral of Senator Marsha Blackburn]]
 
 ## Targeted Groups
-### Alpha Males and Genocide
-- The solutions for alpha males [[TAG wiki|Targeting Alpha Males]]
-- The Treatment of Alpha Males During The American Genocide [[TAG wiki|Treatment of Alpha Males during TAG]]
+### Christians
+- 7 Sanctuary Massacres [[TAG Wiki|Sanctuary Massacre]]
 
 ### Impoverished
 - Food Pantries for the impoverished [[TAG Wiki|Phantom Pantry]]
 
 ### Inmates
 - Inmates, sentenced and otherwise, used to eliminate others then themselves eliminated [[Inmates|]]
+
+### Alpha Males and Genocide
+- The solutions for alpha males [[TAG wiki|Targeting Alpha Males]]
+- The Treatment of Alpha Males During The American Genocide [[TAG >
+
 ## Arts and Murders
 - Numerous performing artists and musicians murdered [[TAG wiki|Artists TAGd]]
   - Madonna is dead and Impersonated [[TAG wiki|Madonna]]
@@ -76,4 +80,3 @@ Welcome to The American Genocide (TAG) Wiki, where we reveal the harrowing reali
 - Why 911 failed & How they keep a genocide hidden [[TAG wiki|Tactics Utilized In TAG]]
 - The CIA's masquerade: Mount Calvary Missionary Baptist Church, Inc. [[TAG wiki|_MCMBCI]]
 - The Revelation & Apocalypse [[TAG wiki|Revelation]]
-  - The Judgment of Satan, Donald J. Trump [[TAG wiki|The Judgment of Satan]]

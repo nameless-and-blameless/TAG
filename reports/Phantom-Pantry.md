@@ -50,8 +50,7 @@ The tables in this section detail Phantom Pantry operations, providing comprehen
 | Hickory Valley Christian Church  | August 2024   | None           | Inmates (GA)    | 200+/50   |
 | Mount Zion Baptist Church        | August 2024   | School Bus     | CIA             | 200+      |
 | Mount Zion Baptist Church        | September 2024| School Bus     | CIA             | 500+      |
-| Hickory Valley Christian Church  | December 6, 2024 | School Bus  | Inmates (GA)    | N / N     |
-| Mount Zion Baptist Church        | December 6, 2024 | None        | CIA             | N / N     |
+
 
 * Operatives: "Inmates" indicates that inmates were used as perpetrators. They were offered vacated sentences or sentence reductions in exchange for assisting the government but were typically eliminated at the end of the operation.
 

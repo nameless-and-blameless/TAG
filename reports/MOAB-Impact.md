@@ -2,7 +2,7 @@
 
 ## Executive Summary
 
-This report provides a detailed analysis of the immediate and long-term impacts of a Massive Ordnance Air Blast (MOAB) detonation in the center of the West End neighborhood in southwest Atlanta. The blast is set to have a catastrophic effect on surrounding areas within a 5-mile radius. The report breaks down casualties by zone, including direct casualties (fatalities, critical, severe, and moderate injuries), indirect casualties (resulting from delayed rescue efforts, overwhelmed hospitals, or cold weather exposure), and health impacts on individuals, with an emphasis on both physical and mental health.
+This report provides a detailed analysis of the immediate and long-term impacts of a Massive Ordnance Air Blast (MOAB), commonly referred to as the "Mother Of All Bombs," detonation in the center of the West End neighborhood in southwest Atlanta. The blast is set to have a catastrophic effect on surrounding areas within a 5-mile radius. The report breaks down casualties by zone, including direct casualties (fatalities, critical, severe, and moderate injuries), indirect casualties (resulting from delayed rescue efforts, overwhelmed hospitals, or cold weather exposure), and health impacts on individuals, with an emphasis on both physical and mental health.
 
 This comprehensive analysis also extends to the socio-economic and infrastructure consequences at the local, state, and national levels. The included zones, as defined by the blast radius, contain residential, commercial, and institutional areas, which will be analyzed for both immediate and secondary impacts.
 

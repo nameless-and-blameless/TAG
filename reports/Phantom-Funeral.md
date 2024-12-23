@@ -42,12 +42,14 @@ Phantom Funerals highlight the extreme measures taken to maintain the secrecy of
 
 ## Notable Phantom Funerals 
 
-| Church                           | Dates         | Announced Decedent | Perpetrators      |
-|----------------------------------|---------------|----------------|-----------------|
-| Hickory Valley Christian Church  | June 7, 2024   | [Rev. Dr. Duke Stone](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Rev.-Duke-Stone) | Inmates (GA)    |
-| Mount Zion Baptist Church        | June 26, 2024  | Numerous | CIA |
-| Hickory Valley Christian Church  | August 23, 2024   | [Zachary Stone](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Zachary-Stone) | Inmates (GA)    |
-| Hickory Valley Christian Church  | September 13, 2024   | [Senator Marsha Blackburn](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Senator-Marsha-Blackburn)          | Inmates (GA)    |
+| Church                           | Dates         | Announced Decedent | Perpetrators      | Victims|
+|----------------------------------|---------------|----------------|-----------------|-------|
+| Hickory Valley Christian Church  | June 7, 2024   | [Rev. Dr. Duke Stone](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Rev.-Duke-Stone) | Inmates (GA)    | 649/50 |
+| Mount Zion Baptist Church        | June 26, 2024  | Numerous | CIA | n/n |
+| Hickory Valley Christian Church  | August 23, 2024   | [Zachary Stone](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Zachary-Stone) | CIA    | 200+ |
+| Hickory Valley Christian Church  | September 13, 2024   | [Senator Marsha Blackburn](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Senator-Marsha-Blackburn)          | Inmates (GA)    | 200+ |
+| Hickory Valley Christian Church        | December 21, 2024  | Numerous | Inmates (GA) | 1735/100 |
+
 
 * Victims: The number of victims executed during the operation. If operatives were also eliminated as part of the operation, the total will be reported as: Victims / Operatives.
 * Decedent: If "Numerous," the funeral arrangements were provided for numerous decedents from the initial massacre and continued acts of violence at the church.

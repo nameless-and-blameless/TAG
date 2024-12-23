@@ -1,0 +1,37 @@
+{
+  "PhantomFunerals": [
+    {
+      "Church": "Hickory Valley Christian Church",
+      "Date": "2024-06-07",
+      "AnnouncedDecedent": {
+        "Name": "Rev. Dr. Duke Stone",
+        "WikiLink": "https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Rev.-Duke-Stone"
+      },
+      "Perpetrators": "Inmates (GA)"
+    },
+    {
+      "Church": "Mount Zion Baptist Church",
+      "Date": "2024-06-26",
+      "AnnouncedDecedent": "Numerous",
+      "Perpetrators": "CIA"
+    },
+    {
+      "Church": "Hickory Valley Christian Church",
+      "Date": "2024-08-23",
+      "AnnouncedDecedent": {
+        "Name": "Zachary Stone",
+        "WikiLink": "https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Zachary-Stone"
+      },
+      "Perpetrators": "Inmates (GA)"
+    },
+    {
+      "Church": "Hickory Valley Christian Church",
+      "Date": "2024-09-13",
+      "AnnouncedDecedent": {
+        "Name": "Senator Marsha Blackburn",
+        "WikiLink": "https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Senator-Marsha-Blackburn"
+      },
+      "Perpetrators": "Inmates (GA)"
+    }
+  ]
+}

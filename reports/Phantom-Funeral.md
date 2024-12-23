@@ -52,4 +52,4 @@ Phantom Funerals highlight the extreme measures taken to maintain the secrecy of
 
 
 * Victims: The number of victims executed during the operation. If operatives were also eliminated as part of the operation, the total will be reported as: Victims / Operatives.
-* Decedent: If "Numerous," the funeral arrangements were provided for numerous decedents from the initial massacre and continued acts of violence at the church.
+* Decedent: If "Numerous," the funeral arrangements were provided for numerous decedents from the initial massacre or continued acts of violence at the church.

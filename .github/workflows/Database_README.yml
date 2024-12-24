@@ -22,20 +22,20 @@ jobs:
     - name: Install dependencies
       run: npm install json-to-markdown-table
 
-    - name: Generate README.md
-      run: |
-        # Create the initial README content
-        echo "# Red Horse" > database/README.md
-        echo "## Sanctuary Massacre Orchestrations" >> database/README.md
-        node -e "const { readFileSync, writeFileSync } = require('fs'); \
-        const { jsonToMarkdownTable } = require('json-to-markdown-table'); \
-        const smDb = JSON.parse(readFileSync('./database/sm-db.json', 'utf8')); \
-        const pfDb = JSON.parse(readFileSync('./database/pf-db.json', 'utf8')); \
-        const ppDb = JSON.parse(readFileSync('./database/pp-db.json', 'utf8')); \
-        const smTable = jsonToMarkdownTable(smDb, { padding: 1 }); \
-        const pfTable = jsonToMarkdownTable(pfDb, { padding: 1 }); \
-        const ppTable = jsonToMarkdownTable(ppDb, { padding: 1 }); \
-        writeFileSync('./database/README.md', `# Red Horse\n\n## Sanctuary Massacre Orchestrations\n\n${smTable}\n\n## Phantom Funeral Orchestrations\n\n${pfTable}\n\n# Black Horse\n\n## Phantom Pantry Orchestrations\n\n${ppTable}\n`, { flag: 'a' });"
+   - name: Generate README.md
+  run: |
+    echo "# Red Horse" > database/README.md
+    echo "## Sanctuary Massacre Orchestrations" >> database/README.md
+    node -e "const { readFileSync, writeFileSync } = require('fs'); \
+    const { jsonToMarkdownTable } = require('json-to-markdown-table'); \
+    const smDb = JSON.parse(readFileSync('./database/sm-db.json', 'utf8')); \
+    const pfDb = JSON.parse(readFileSync('./database/pf-db.json', 'utf8')); \
+    const ppDb = JSON.parse(readFileSync('./database/pp-db.json', 'utf8')); \
+    const smTable = jsonToMarkdownTable(smDb, { padding: 1 }); \
+    const pfTable = jsonToMarkdownTable(pfDb, { padding: 1 }); \
+    const ppTable = jsonToMarkdownTable(ppDb, { padding: 1 }); \
+    const readmeContent = `# Red Horse\n\n## Sanctuary Massacre Orchestrations\n\n${smTable}\n\n## Phantom Funeral Orchestrations\n\n${pfTable}\n\n# Black Horse\n\n## Phantom Pantry Orchestrations\n\n${ppTable}\n`; \
+    writeFileSync('./database/README.md', readmeContent);"
 
     - name: Commit and push changes
       run: |

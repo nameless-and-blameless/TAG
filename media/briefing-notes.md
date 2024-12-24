@@ -1,4 +1,67 @@
 # Media Briefing: The American Genocide (TAG)
+> [!NOTE]
+> The Creator has provided us with the topics for this briefing in music. Listen to [SERVING OVAHNESS - PODCAST EPISODE 1:  THE GAME - JAN. 2013 by ServingOvahness on #SoundCloud](https://soundcloud.com/servingovahness/serving-ovahness-podcast?ref=clipboard&p=a&c=0&si=7cce9afc23a943338f7f14f78b731f4a&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
+
+- The Creator
+- The Creator's two servants 
+- The Divide & Conquer 
+- Apocalypse/Game over
+- Spark, a gift from the Creator 
+- Gilead and the CIA's campaign to suffocate Spark 
+    - Families and associates 
+    - Extended associate network 
+        - Madonna 
+    - Sandy Hook, TN
+    - Orr Chapel Tragedy
+        - Chapel Demolished 
+        - Desecration of Orr Chapel and Sheepneck cemeteries 
+        - Targeted killings of Orr Chapel members and families 
+            - Waves of killing in Mount Pleasant and Maury county, TN
+    - Mount Calvary Baptist Church 
+        - "Hurricane Annie"
+        - Masquerade established 
+        - Phantom Funerals 
+        - Social Events 
+- The American Genocide 
+    - White Horse
+        - Donald J. Trump 
+    - Red Horse
+        - Sanctuary Massacres 
+            - Lexington Bethel Baptist Church 
+            - House of God (Georgetown Street)
+            - House of God (Broadway)
+            - Mount Zion Baptist Church
+            - Calvary Baptist Church
+            - Hickory Valley Christian Church
+        - Phantom Funerals 
+            - Rev. Dr. Duke Stone 
+            - Zachary Stone 
+            - Senator Marsha Blackburn 
+    - Black Horse
+        - Phantom Pantries 
+    - Pale Horse
+        - West End Massacre 
+- The Creator's Intervention 
+    - Decision to Intervene 
+        - Hidden genocide within the borders of a superpower.
+        - Death Toll would exceed that of the Holocaust.
+    - Is the second coming of Jesus 
+    - Seven Co-conspirators
+        - President Donald J. Trump
+        - Annie Jacobsen 
+        - Michael Blackmon 
+        - President Joe Biden 
+        - Former Speaker Nancy Pelosi 
+        - Senate Minority Leader Mitch McConnell 
+        - CIA Director William Burns
+    - Special Mission
+- Questions 
+- Closing 
+    - The Creator reminds us all: "You got to have hope in your soul, you got to have faith in yourself, you got to have strength to carry on. When things get down, get off the ground and hold your head up high. You got to be believe in your dreams, no matter how hard it may seem."
+
+
+> [!NOTE]
+>  AI generated content follows 
 
 ## 1. Introduction
    - **Opening Statement:**
@@ -19,6 +82,13 @@
    - **Scope and Scale of the Genocide:**
      - TAG targets political dissidents, marginalized groups, and anyone who opposes the authoritarian agenda.
      - It infiltrates media, politics, and society, operating in secrecy while silencing dissent and erasing evidence of atrocities.
+     
+## 3. Pre-TAG: Suffocating Spark 
+    - Gilead Sciences and the CIA launch brutal campaign to suffocate Spark.
+    - Campaign against the Creator's two servants, their families and associates.
+    - Sandy Hook Massacre 
+    - Orr Chapel Tragedy 
+    - Mount Calvary Baptist Church
 
 ## 3. The Four Horsemen of TAG
 
@@ -30,7 +100,6 @@
    - The Red Horse signifies escalating violence and chaos, marked by widespread persecution, suppression of dissent, and civil unrest.
    - **Key Atrocities:**
      - The Sanctuary Massacre, targeting seven churches:
-       - Mount Calvary Baptist Church
        - Lexington Bethel Baptist Church
        - House of God (Georgetown Street)
        - House of God (Broadway)

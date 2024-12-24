@@ -9,7 +9,7 @@
       "event_status": "planned",
       "location": "West End neighborhood of Atlanta, GA",
       "victim_demographic": "Predominantly African American",
-      "victims": 127,
+      "victims": 7000,
       "disposal_method": "Varied",
       "weapon": "GBU-43/B MOAB",
       "perpetrator_group": "TAG Orchestrators",

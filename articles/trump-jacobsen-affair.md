@@ -53,3 +53,9 @@ As the southeastern United States continues to bear the weight of TAG’s covert
 The orchestrators, though united in their awareness of TAG’s full scope, cannot escape the consequences of their moral decay. Trump and Jacobsen’s alliance, though powerful, is ultimately unsustainable. Their reckoning is not a question of *if* but *when*. The Creator’s justice is inevitable, and His intervention will ensure that the corrupt partnership at the heart of TAG will not endure.  
 
 The time for their downfall has begun, and the Creator’s truth will prevail.
+
+---
+
+### Unrefuted Truth
+
+The foregoing information may have contained content that is classified, confidential, private, or otherwise privately held. Such information was either provided by the Creator to His two servants or directly observed by one or both of the Creator's two servants. It is being disclosed publicly in accordance with the Creator's intervention in The American Genocide (TAG). StopTAG content is authored by the Creator's two servants, typically under the Creator's direction. Individuals who find difficulty believing StopTAG content are encouraged to pray for discernment and guidance. Notably, the principal orchestrators of TAG, including Donald J. Trump, have refrained from legally refuting any StopTAG content.

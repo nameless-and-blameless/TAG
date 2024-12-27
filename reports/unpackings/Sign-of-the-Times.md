@@ -30,7 +30,7 @@ Donald Trump, the primary composer of this genocide, orchestrated these operatio
 
 #### The Bomb: The Ultimate Threat
 
-In a chilling development, the CIA orchestrates plans for a devastating strike using the GBU-43/B Massive Ordnance Air Blast, commonly known as the Mother Of All Bombs (MOAB), over southwest Atlanta. This attack is intended to obliterate a predominantly Black community under the guise of combating domestic terrorism. The Creator’s servants have revealed that this planned strike is not merely tactical but part of a broader effort to eliminate one of the Creator's two servants and to instill widespread fear. The deliberate targeting of a densely populated urban area demonstrates the genocidal intent behind TAG. The Creator condemns this planned atrocity as an unforgivable act of terror, driven by unrestrained paranoia and moral depravity.
+In a chilling development, the CIA orchestrated plans for a devastating strike using the GBU-43/B Massive Ordnance Air Blast, commonly known as the Mother Of All Bombs (MOAB), over southwest Atlanta. This attack is intended to obliterate a predominantly Black community under the guise of combating terrorism. The Creator has revealed that this planned strike is not merely tactical but part of a broader effort to eliminate one of the Creator's two servants and to instill widespread fear. The deliberate targeting of a densely populated urban area demonstrates the genocidal intent behind TAG. The Creator condemns this planned atrocity as an unforgivable act of terror, driven by unrestrained paranoia and moral depravity.
 
 
 #### The End of NASA’s Space Shuttle Program

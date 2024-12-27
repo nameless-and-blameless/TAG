@@ -30,7 +30,8 @@ Donald Trump, the primary composer of this genocide, orchestrated these operatio
 
 #### The Bomb: The Ultimate Threat
 
-In a terrifying revelation, the CIA constructed a bomb of unprecedented scale, capable of obliterating the entire Earth. The Creator believes that this apocalyptic threat is the only force capable of halting the genocidal campaign. According to the Creator, this doomsday device is a reflection of the desperation and paranoia driving the CIA's actions.
+In a chilling development, the CIA orchestrates plans for a devastating strike using the GBU-43/B Massive Ordnance Air Blast, commonly known as the Mother Of All Bombs (MOAB), over southwest Atlanta. This attack is intended to obliterate a predominantly Black community under the guise of combating domestic terrorism. The Creator’s servants have revealed that this planned strike is not merely tactical but part of a broader effort to eliminate one of the Creator's two servants and to instill widespread fear. The deliberate targeting of a densely populated urban area demonstrates the genocidal intent behind TAG. The Creator condemns this planned atrocity as an unforgivable act of terror, driven by unrestrained paranoia and moral depravity.
+
 
 #### The End of NASA’s Space Shuttle Program
 

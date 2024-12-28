@@ -70,3 +70,8 @@ Just as rain prepares the soil for crops, divine acts of judgment often precede 
 In the biblical sense, rain is a powerful symbol of the Creator’s interaction with humanity. As a tool of judgment, it serves to correct and cleanse, demonstrating His justice and holiness. As a symbol of renewal, it reflects His mercy, grace, and desire to restore creation.  
 
 The Great Storm, part of the Creator’s apocalypse, represents this dual purpose. It is both a punishment for The American Genocide and a cleansing of the earth, ultimately leading to a renewed creation under the Creator’s sovereign rule. Through the rain of judgment and renewal, the Creator reveals His ultimate purpose: to reconcile and restore His creation for His glory.
+
+---
+
+## See Also:
+* [[Its Raining Men|]]

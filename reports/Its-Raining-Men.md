@@ -13,7 +13,7 @@
 - **Humidity:** The amount of senseless deaths caused by the ongoing genocide (see: water).
 - **Barometer:** An instrument measuring atmospheric pressure, used especially in forecasting the weather.
 - **Meteorological:** Relating to the science of the atmosphere and weather conditions.
-- **The Street:** Refers to "Alphabet Street" by Prince, which is the Orr Chapel and Sheepneck Cemeteries along West Sheepneck Road in Sandy Hook (Mount Pleasant), Tennessee.
+- **The Street:** Refers to "Alphabet Street" by Prince, which is site of Orr Chapel, the Orr Chapel and Sheepneck Cemeteries along West Sheepneck Road in Sandy Hook (Mount Pleasant), Tennessee. The church was demolished and cemeteries desecrated by the CIA after the Sandy Hook Massacre spawning a wave of eliminations. The CIA's activities there and surrounding Maury County are the genesis of TAG.
 - **Water:** Victims in this genocide, considered insignificant by the elite; the opposite of blood.
 
 ## **The Creator's Annotations:**
@@ -22,7 +22,7 @@
 
 > **"The street's the place to go":** To meet the men one would need to be at their press conference in Sandy Hook (Maury County), TN on "Alphabet Street" where Orr Chapel once stood.
 
-> **"It's raining men!":** The Creator is raining down His two servants.
+> **"It's raining men!":** The Creator is raining down/deploying His two servants as His instruments of justice for the orchestrators of The American Genocide.
 
 ## **Overview:**
 
@@ -103,3 +103,8 @@ The song features a lively disco beat with energetic rhythms and powerful vocals
 ## **Conclusion:**
 
 "It's Raining Men" by The Weather Girls is a celebrated disco classic that uses weather metaphors to convey a joyous and symbolic message of divine intervention. The song's dynamic composition and lively lyrics continue to resonate with audiences, celebrating themes of empowerment and inclusivity through its metaphorical depiction of "rain."
+
+---
+
+## See Also:
+* [[Rain|]]

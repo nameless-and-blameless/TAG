@@ -1,0 +1,72 @@
+{
+  "pre-genocide_events": [
+      {
+      "id": "PG-1",
+      "color": "none",
+      "type": "Direct Assassination",
+      "date": "2017-11-01",
+      "description": "Targeted direct assassinations of the family, friends and associates of His servant Kelvin Eugene Williams",
+      "event_status": "completed",
+      "location": "Global, Primarily Jessamine County, KY",
+      "victim_demographic": "Varied, Predominantly Caucasian",
+      "victims": 10,000,
+      "disposal_method": "Dissolution",
+      "weapon": "Handgun",
+      "perpetrator_group": "Gilead Sciences and the CIA",
+      "perpetrator_demographic": "Caucasian",
+      "perpetrator_number": 200,
+      "perpetrator_status": "Partially Eliminated"
+    },
+    {
+      "id": "PG-2",
+      "color": "none",
+      "type": "Direct Assassination",
+      "date": "2019-06-01",
+      "description": "Targeted direct assassinations of the family, friends and associates of His servant Thomas Allen Chadwell",
+      "event_status": "completed",
+      "location": "Global, primarily Kanawha County, WV",
+      "victim_demographic": "Varied, Predominantly Caucasian",
+      "victims": 2,000,
+      "disposal_method": "Dissolution",
+      "weapon": "Handgun",
+      "perpetrator_group": "Gilead Sciences and the CIA",
+      "perpetrator_demographic": "Caucasian",
+      "perpetrator_number": 200,
+      "perpetrator_status": "Partially Eliminated"
+    },
+    {
+      "id": "PG-3",
+      "color": "none",
+      "type": "Massacre",
+      "date": "2022-11-15",
+      "description": "Aerial irradiation remaining family of His servant Kelvin Eugene Williams in Sandy Hook, TN",
+      "event_status": "completed",
+      "location": "Sandy Hook, Maury County, TN",
+      "victim_demographic": "Black",
+      "victims": 250,
+      "disposal_method": "Mass burial",
+      "weapon": "Handgun",
+      "perpetrator_group": "Gilead Sciences and the CIA",
+      "perpetrator_demographic": "Caucasian",
+      "perpetrator_number": 5,
+      "perpetrator_status": "Active"
+    },
+    {
+      "id": "PG-4",
+      "color": "none",
+      "type": "Direct Assassination",
+      "date": "2022-11-20",
+      "description": "Targeted direct assassinations of the members of Orr Chapel, their families and associates after destruction of Orr Chapel and desecration of the adjacent cemeteries in Sandy Hook, Tennessee",
+      "event_status": "ongoing",
+      "location": "Maury County and middle Tennessee",
+      "victim_demographic": "Varied, Predominantly Black",
+      "victims": 3,000,
+      "disposal_method": "Dissolution",
+      "weapon": "Handgun",
+      "perpetrator_group": "Gilead Sciences and the CIA",
+      "perpetrator_demographic": "Caucasian",
+      "perpetrator_number": 200,
+      "perpetrator_status": "Partially Eliminated"
+    }
+  ]
+}

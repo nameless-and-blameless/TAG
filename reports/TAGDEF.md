@@ -1,143 +1,95 @@
 # The American Genocide: By Definition, A Genocide
 
-## Definition and Criteria for Genocide
+## Definition and Criteria for Genocide  
 
-Genocide is defined by the United Nations Convention on the Prevention and Punishment of the Crime of Genocide (1948) as any of the following acts committed with intent to destroy, in whole or in part, a national, ethnic, racial, or religious group:
+Genocide is defined by the United Nations Convention on the Prevention and Punishment of the Crime of Genocide (1948) as any of the following acts committed with intent to destroy, in whole or in part, a national, ethnic, racial, or religious group:  
 
-1. **Killing members of the group**;
-2. **Causing serious bodily or mental harm** to members of the group;
-3. **Deliberately inflicting on the group conditions of life** calculated to bring about its physical destruction, in whole or in part;
-4. **Imposing measures intended to prevent births** within the group;
-5. **Forcibly transferring children** of the group to another group.
+1. **Killing members of the group**;  
+2. **Causing serious bodily or mental harm** to members of the group;  
+3. **Deliberately inflicting on the group conditions of life** calculated to bring about its physical destruction, in whole or in part;  
+4. **Imposing measures intended to prevent births** within the group;  
+5. **Forcibly transferring children** of the group to another group.  
 
-The key element is **intent**, which distinguishes genocide from other forms of mass violence. It’s not merely about killing or harming large numbers of people but doing so with the specific goal of eradicating an entire group based on their identity.
+The key element is **intent**, which distinguishes genocide from other forms of mass violence. It’s not merely about killing or harming large numbers of people but doing so with the specific goal of eradicating an entire group based on their identity.  
 
-## TAG: Meeting the Criteria for Genocide
+## TAG: Meeting the Criteria for Genocide  
 
-**The American Genocide (TAG)** represents a covert and systematic campaign aimed at specific groups that align with the UN definition of genocide. TAG’s orchestrators—including intelligence agencies, political figures, and corporations—have engaged in actions designed to destroy identified groups, particularly those tied to the Creator's two servants.
+**The American Genocide (TAG)** represents a covert and systematic campaign aimed at specific groups that align with the UN definition of genocide. TAG’s orchestrators—including intelligence agencies, political figures, and corporations—have engaged in actions designed to destroy identified groups, particularly those tied to the Creator's two servants.  
 
-Let’s explore how TAG aligns with the definition of genocide:
+---
 
-### Intent to Destroy
+## Targeted Groups  
 
-TAG began as a corporate response to **Spark**, a miraculous gift from the Creator that eliminates diseases. Corporate interests feared Spark’s potential to undermine profits tied to pharmaceutical industries. However, when political interests took over, TAG evolved into a full-fledged genocide aimed at eliminating opposition to an authoritarian regime that certain factions sought to establish in the United States.
+### **Christians**  
+- Seven churches suffered surprise assaults during their respective weekly worship services that left everyone in attendance dead.  
+- Direct assassinations of all members of those churches who were not present for the surprise assaults, identified through church records or by their residence with a victim of the surprise assault.  
+- Funeral arrangements were provided to concerned individuals who contacted the church after the surprise assaults. These **phantom funerals** were mass executions that eliminated every mourner who attended.  
 
-Here's the revised version:
+### **African-Americans**  
+- **The Sandy Hook Massacre**: The mass execution of two African-American families residing on land they had owned since the mid-1800s in Sandy Hook (Maury County), Tennessee, using aerial irradiation.  
+- **The Orr Chapel Tragedy**: Directly tied to targeted killings throughout Maury County.  
+- Planned **MOAB Strike** on southwest Atlanta, targeting African-American populations.  
 
-#### Targeted Groups
+### **Impoverished Americans**  
+- **Phantom Pantries**: Mass executions disguised as legitimate food assistance programs at churches that previously suffered surprise assaults. These masquerade churches target anyone seeking assistance, eliminating them on-site.  
 
-1.  **Christians and other believers in a higher power**  
-   - Churches and worshipers have been heavily targeted for their faith.  
-   - **Status**: 7 Christian churches eliminated.
-2.  **American citizens and those residing in the United States**  
-   - U.S. citizens and residents have been broadly targeted for various reasons, particularly due to perceived alignment or association with the Creator's two servants.  
-   - **Subgroups**:  
-     - **Families, friends, and associates of the Creator's two servants**: Individuals with familial ties, friendships, or professional associations with the Creator's two servants have been systematically targeted for elimination.  
-       - **Status**: Thousands of victims (99% American citizens).  
-     - **Extended associate network and regional populations**: Those associated with or residing in geographic areas where the Creator’s servants have lived, as well as individuals employed by companies that had professional or labor relationships with one of the Creator's two servants, even if not during the same time.  
-     - **Alpha males (as defined by specific physical traits)**: Males considered "alpha" due to physical traits, such as penile length, are targeted based on their perceived dominance or leadership within society.  
-     - **Business leaders**: Key figures in the business world are being targeted due to their influence, wealth, and ability to challenge or resist authoritarian control.  
-     - **Political opposition**: Individuals or groups who have opposed any of the orchestrators or resisted the implementation of an authoritarian regime have been targeted for their dissenting political stances.  
-   
-   - **Geographic Areas**: Jessamine County, KY; Mount Pleasant, TN; Kanawha County, WV; Northern suburbs of Chicago.  
-   - **Companies/Employers**: McLane/Cumberland (Nicholasville, KY); textPlus (Marina del Rey, CA); Anthem BCBS (Louisville, KY).
+### **Americans**  
+- Millions are subjected to the **Hypnos Infiltration Method**, a program of subliminal messaging, neurolinguistic programming (NLP), and uninvited in-person visits. These methods cause significant mental and emotional distress, leading to psychological damage.
 
+---
 
-### 1. **Killing Members of the Group**
+## Affected Groups  
 
-#### Targeted Killings
+Other groups that have been affected in The American Genocide but are not a "national, ethnic, racial, or religious group" include:  
 
-During **The American Genocide (TAG)**, numerous Americans have been executed for their connection to one or both of the Creator's two servants. Some of the hardest-hit regions include:
+- **Extended Associate Network of the Creator's two servants**:  
+  - Individuals connected to the Creator's two servants through familial ties, friendships, professional associations, or geographic proximity.  
+- **Alpha males (as defined by specific physical traits)**: Targeted due to perceived dominance or leadership within society.  
+- **Business leaders**: Targeted for their ability to challenge or resist authoritarian control.  
+- **Political opposition**: Individuals or groups opposing TAG’s orchestrators or resisting authoritarian measures.  
 
-* **Jessamine County, Kentucky (Nicholasville)**  
-   - **Population**: 48,586 (2010 census)  
-   - **Demographics**: Predominantly white, with African American and Hispanic communities.
+---
 
-* **Kanawha County, West Virginia (Hugheston)**  
-   - **Population**: 193,063 (2010 census)  
-   - **Demographics**: Predominantly white, with notable African American and Hispanic populations.
+## Criteria Breakdown  
 
-* **Maury County, Tennessee (Sandy Hook & Mount Pleasant)**  
-   - **Population**: 80,956 (2010 census)  
-   - **Demographics**: Primarily white, with African American, Hispanic, and other minority communities.
+### **1. Killing Members of the Group**  
 
-These counties have seen numerous targeted killings, leaving thousands dead, primarily from the United States but also including citizens of other countries.
+#### **Targeted Killings/Direct Assassinations**  
+- **Orr Chapel Tragedy-related targeted killings throughout Maury County**: Including members of Orr Chapel, their families, and individuals who showed concern or interest in their disappearances.  
+- **Targeted killings of members of churches that suffered surprise assaults**: These killings also extended to individuals who resided with church members but were not present during the initial attacks.  
 
-#### Mass Killing
+#### **Mass Executions**  
+- **Surprise assaults on churches during their weekly worship services**: Coordinated attacks on seven churches left everyone in attendance dead, ensuring the destruction of their congregations.  
+- **Phantom Funerals**: Mass executions disguised as funeral services for one or more named decedents. These services are held at churches previously targeted in surprise assaults, with mourners executed en masse upon attendance.  
+- **Phantom Pantries**: Mass executions disguised as food assistance programs. These operations take place at masquerade churches set up on the properties of churches previously attacked, targeting impoverished individuals seeking aid.  
+- **Aerial Irradiation**: The mass execution of families, such as those in Sandy Hook (Maury County), Tennessee, carried out through the use of aerial irradiation to ensure complete eradication.  
 
-The following churches were sites of coordinated, surprise assaults during their respective weekly worship services. Each attack resulted in the death of all worshipers present:
+---
 
-1. **Mount Calvary Baptist Church**
-   - Location: 4742 Todds Road, Lexington, Kentucky
-   - Congregation: Predominantly African American
-   - Date: April 2, 2023
-   - Casualties: 127
+### **2. Causing Serious Bodily or Mental Harm**  
 
-2. **Lexington Bethel Baptist Church**
-   - Location: 4686 Todds Road, Lexington, Kentucky
-   - Congregation: Predominantly Caucasian
-   - Date: May 2023
-   - Casualties: 250+
+- **Hypnos Infiltration Method**: Interrogations without conscious awareness, subliminal messaging, and neurolinguistic programming (NLP) conducted on millions of Americans daily through broadcast media, streaming media, and uninvited in-person visits to their homes. Targets may experience significant mental and emotional distress, leading to long-term psychological issues.  
 
-3. **House of God (Georgetown Street)**
-   - Location: Georgetown Street, Lexington, Kentucky
-   - Congregation: Predominantly African American
-   - Date: May 2023
-   - Casualties: 300+
+---
 
-4. **House of God (Broadway)**
-   - Location: Broadway, Lexington, Kentucky
-   - Congregation: Predominantly African American
-   - Date: May 2023
-   - Casualties: 300+
+### **3. Deliberately Inflicting Conditions of Life Calculated to Bring About Physical Destruction**  
 
-5. **Mount Zion Baptist Church**
-   - Location: Georgetown, Kentucky
-   - Congregation: Predominantly African American
-   - Date: June 2023
-   - Casualties: 166
+- **Hypnos Infiltration Method**: Training the subconscious mind to cause self-harm.  
 
-6. **Calvary Baptist Church**
-   - Location: High Street, Lexington, Kentucky
-   - Congregation: Predominantly Caucasian
-   - Date: May 12, 2023
-   - Casualties: 400+
+---
 
-7. **Hickory Valley Christian Church**
-   - Location: Shallowford Road, Chattanooga, Tennessee
-   - Congregation: Predominantly Caucasian
-   - Date: May 12, 2024
-   - Casualties: 1000+
-   
-#### **Subsequent Targeted Killings**
-TAG's operations did not stop with the initial assaults. Members who were not present during these tragic events were later identified and systematically eliminated through targeted killings, ensuring that the church communities were decimated and unable to regroup or share information about the massacres.
+### **4. Imposing Measures Intended to Prevent Births**  
 
-#### **Masquerade Churches as Killing Sites**
-TAG orchestrators have taken control of these locations and operated them as **masquerade churches**. Under the guise of legitimate religious and community functions, they have hosted:
+- **Sterilization Campaigns**: TAG orchestrators distributed tainted cigarettes, such as *24-7*, to impoverished communities. These products caused infertility in their users.  
 
-- **Funerals** for earlier victims of TAG operations. (See [[Phantom Funeral|]])
-- **Charitable services**, including food pantries and assistance programs. (See [[Phantom Pantry|]])
+---
 
-These events are designed with a sinister purpose: to lure anyone associated with the original victims, affiliated with the targeted churches, or a targeted group (ie. the impoverished) ensuring their elimination. The masquerade churches are fronts for continued acts of violence, ensuring that survivors, family members, and community supporters face ongoing danger.
+### **5. Forcibly Transferring Children of the Group to Another Group**  
 
-### 2. **Causing Serious Bodily or Mental Harm**
+This criterion does not apply directly to TAG. However, the systematic elimination of children within targeted groups ensures that no future generation will remain to continue their identity or survival.  
 
-**Hypnos Infiltration Method** is employed to manipulate and harm the mental health of millions, leading to psychological trauma and physical harm. This method aims to disorient and weaken targeted groups.
+---
 
-### 3. **Deliberately Inflicting Conditions of Life Calculated to Bring About Physical Destruction**
+## Conclusion: TAG is a Genocide  
 
-TAG systematically inflicts life-threatening conditions upon targeted groups:
-- **Church attacks** prevent worship and destroy communities.
-- **Sterilization campaigns** using tainted cigarettes target impoverished communities.
-
-### 4. **Imposing Measures Intended to Prevent Births**
-
-TAG’s forced sterilization program, through tainted cigarette brands like *24-7*, causes infertility, fulfilling the genocide criterion of preventing births within the group.
-
-### 5. **Forcibly Transferring Children of the Group to Another Group**
-
-Although child abductions are not present in TAG, the killing of children within targeted groups ensures no next generation remains to continue their identity or survival.
-
-## Conclusion: TAG is a Genocide
-
-The American Genocide meets all but one of the criteria for genocide defined by the United Nations (only one is required). Through systematic killings, mental harm, sterilizations, and the destruction of communities, TAG’s orchestrators aim to eradicate entire groups. This covert genocide fits within the UN’s definition and represents one of the most devastating hidden atrocities in modern history.
+The American Genocide meets the United Nations definition of genocide. Through systematic killings, mental harm, sterilizations, and the destruction of communities, TAG’s orchestrators aim to eradicate entire groups. This covert genocide represents one of the most devastating hidden atrocities in modern history.

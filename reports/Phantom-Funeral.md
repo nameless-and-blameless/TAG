@@ -50,6 +50,7 @@ Phantom Funerals highlight the extreme measures taken to maintain the secrecy of
 | Hickory Valley Christian Church  | September 13, 2024   | [Senator Marsha Blackburn](https://github.com/nameless-and-blameless/TAG/wiki/Phantom-Funeral-of-Senator-Marsha-Blackburn)          | Inmates (GA)    | 200+ |
 | Hickory Valley Christian Church        | December 21, 2024  | Numerous | Inmates (GA) | 1735/100 |
 | Hickory Valley Christian Church        | December 30, 2024  | Numerous | Inmates (GA) | 2021 (inc. inmates) |
+| Mount Zion Baptist Church        | December 30, 2024  | Numerous | CIA | 2000+ |
 
 * Victims: The number of victims executed during the operation. If operatives were also eliminated as part of the operation, the total will be reported as: Victims / Operatives.
 * Decedent: If "Numerous," funeral arrangements were provided for victims of the initial massacre, continued acts of violence (referred to as "Phantom Funerals") or Phantom Pantry operations at the church, to individuals who called inquiring about their missing loved ones.

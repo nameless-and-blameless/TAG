@@ -55,14 +55,21 @@ Other groups that have been affected in The American Genocide but are not a "nat
 ### **1. Killing Members of the Group**  
 
 #### **Targeted Killings/Direct Assassinations**  
-- **Orr Chapel Tragedy-related targeted killings throughout Maury County**: Including members of Orr Chapel, their families, and individuals who showed concern or interest in their disappearances.  
+- **[[Orr Chapel Tragedy|]]-related targeted killings throughout Maury County**: Including members of Orr Chapel, their families, and individuals who showed concern or interest in their disappearances.  
 - **Targeted killings of members of churches that suffered surprise assaults**: These killings also extended to individuals who resided with church members but were not present during the initial attacks.  
 
 #### **Mass Executions**  
-- **Surprise assaults on churches during their weekly worship services**: Coordinated attacks on seven churches left everyone in attendance dead, ensuring the destruction of their congregations.  
-- **Phantom Funerals**: Mass executions disguised as funeral services for one or more named decedents. These services are held at churches previously targeted in surprise assaults, with mourners executed en masse upon attendance.  
-- **Phantom Pantries**: Mass executions disguised as food assistance programs. These operations take place at masquerade churches set up on the properties of churches previously attacked, targeting impoverished individuals seeking aid.  
-- **Aerial Irradiation**: The mass execution of families, such as those in Sandy Hook (Maury County), Tennessee, carried out through the use of aerial irradiation to ensure complete eradication.  
+- **[[Surprise assaults on churches during their weekly worship services|Congregation Massacre]]**: Coordinated attacks on seven churches left everyone in attendance dead, ensuring the destruction of their congregations.  
+    - [[Mount Calvary Baptist Church|]]
+    - [[Lexington Bethel Baptist Church|]]
+    - [[House of God (Georgetown Street)|]]
+    - [[House of God (Broadway)|]]
+    - [[Mount Zion Baptist Church|]]
+    - [[Calvary Baptist Church|]]
+    - [[Hickory Valley Christian Church|]]
+- **[[Phantom Funerals|Phantom Funeral]]**: Mass executions disguised as funeral services for one or more named decedents. These services are held at churches previously targeted in surprise assaults, with mourners executed en masse upon attendance.  
+- **[[Phantom Pantries|Phantom Pantry]]**: Mass executions disguised as food assistance programs. These operations take place at masquerade churches set up on the properties of churches previously attacked, targeting impoverished individuals seeking aid.  
+- **[[Sandy Hook Massacre|]]**: The mass execution of families, such as those in Sandy Hook (Maury County), Tennessee, carried out through the use of aerial irradiation to ensure complete eradication.  
 
 ---
 

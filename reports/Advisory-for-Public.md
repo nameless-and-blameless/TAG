@@ -1,14 +1,10 @@
 # Public Advisory
 
-## Chattanooga Food Pantry Warning
+Seven churches, six in central Kentucky and one in Chattanooga, Tennessee, have been attacked and massacred in surprise assaults, leaving everyone dead. The orchestrators have set up masquerades in these churches to portray a sense of normalcy. These church properties are now being used to kill anyone who comes near or enters them.
 
-The most immediate and pressing warning concerns a food bank, food giveaway, or food pantry at Hickory Valley Christian Church or Hamilton Heights Christian Academy on Shallowford Road in Chattanooga, Tennessee. Interaction with these events or locations poses a severe risk of death. People who enter will not be permitted to leave and will be killed. Calling 911 will not result in aid.
+Any interaction with these masquerades or locations poses a severe risk of death. People who enter will not be permitted to leave and will be killed. Calling 911 will not result in aid.
 
-## Attacked Churches
-
-Seven churches, six in central Kentucky and one in Chattanooga, Tennessee, have been attacked and massacred in surprise assaults, leaving everyone dead. The orchestrators have set up masquerades in these churches to portray a sense of normalcy. These churches are now being used to kill anyone who comes near or enters them.
-
-Below is the list of the targeted churches, displaying their true names. Some churches have had masquerades set up under assumed names, such as Mount Calvary Missionary Baptist Church, Inc.:
+Below is the list of the targeted churches, displaying their true names. Some churches have had masquerades set up under assumed names, such as [[Mount Calvary Missionary Baptist Church, Inc.|_MCMBCI]]:
 
 1. **Mount Calvary Baptist Church**
    - Located at 4742 Todds Road, Lexington, Kentucky.

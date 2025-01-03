@@ -14,7 +14,7 @@ The key element is **intent**, which distinguishes genocide from other forms of 
 
 ## TAG: Meeting the Criteria for Genocide  
 
-**The American Genocide (TAG)** represents a covert and systematic campaign aimed at specific groups that align with the UN definition of genocide. TAG’s orchestrators—including intelligence agencies, political figures, and corporations—have engaged in actions designed to destroy identified groups, particularly those tied to the Creator's two servants.  
+**[[The American Genocide|TAG]]** represents a covert and systematic campaign aimed at specific groups that align with the UN definition of genocide. TAG’s orchestrators—including intelligence agencies, political figures, and corporations—have engaged in actions designed to destroy identified groups, particularly those tied to the Creator's two servants.  
 
 ---
 
@@ -26,15 +26,15 @@ The key element is **intent**, which distinguishes genocide from other forms of 
 - Funeral arrangements were provided to concerned individuals who contacted the church after the surprise assaults. These **phantom funerals** were mass executions that eliminated every mourner who attended.  
 
 ### **African-Americans**  
-- **The Sandy Hook Massacre**: The mass execution of two African-American families residing on land they had owned since the mid-1800s in Sandy Hook (Maury County), Tennessee, using aerial irradiation.  
-- **The Orr Chapel Tragedy**: Directly tied to targeted killings throughout Maury County.  
-- Planned **MOAB Strike** on southwest Atlanta, targeting African-American populations.  
+- **The [[Sandy Hook Massacre|]]**: The mass execution of two African-American families residing on land they had owned since the mid-1800s in Sandy Hook (Maury County), Tennessee, using aerial irradiation.  
+- **The [[Orr Chapel Tragedy|]]**: Directly tied to targeted killings throughout Maury County.  
+- Planned **[[MOAB Strike|MOAB]]** on southwest Atlanta, targeting African-American populations.  
 
 ### **Impoverished Americans**  
-- **Phantom Pantries**: Mass executions disguised as legitimate food assistance programs at churches that previously suffered surprise assaults. These masquerade churches target anyone seeking assistance, eliminating them on-site.  
+- **[[Phantom Pantries|Phantom Pantry]]**: Mass executions disguised as legitimate food assistance programs at churches that previously suffered surprise assaults. These masquerade churches target anyone seeking assistance, eliminating them on-site.  
 
 ### **Americans**  
-- Millions are subjected to the **Hypnos Infiltration Method**, a program of subliminal messaging, neurolinguistic programming (NLP), and uninvited in-person visits. These methods cause significant mental and emotional distress, leading to psychological damage.
+- Millions are subjected to the **[[Hypnos Infiltration Method|Hypnos Infiltration Tactic]]**, a program of subliminal messaging, neurolinguistic programming (NLP), and uninvited in-person visits. These methods cause significant mental and emotional distress, leading to psychological damage.
 
 ---
 

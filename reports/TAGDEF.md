@@ -23,7 +23,7 @@ The key element is **intent**, which distinguishes genocide from other forms of 
 ### **Christians**  
 - Seven churches suffered surprise assaults during their respective weekly worship services that left everyone in attendance dead.  
 - Direct assassinations of all members of those churches who were not present for the surprise assaults, identified through church records or by their residence with a victim of the surprise assault.  
-- Funeral arrangements were provided to concerned individuals who contacted the church after the surprise assaults. These **phantom funerals** were mass executions that eliminated every mourner who attended.  
+- Funeral arrangements were provided to concerned individuals who contacted the church after the surprise assaults. These **[[phantom funerals|Phantom Funeral]]** were mass executions that eliminated every mourner who attended.  
 
 ### **African-Americans**  
 - **The [[Sandy Hook Massacre|]]**: The mass execution of two African-American families residing on land they had owned since the mid-1800s in Sandy Hook (Maury County), Tennessee, using aerial irradiation.  
@@ -87,7 +87,7 @@ Other groups that have been affected in The American Genocide but are not a "nat
 
 ### **4. Imposing Measures Intended to Prevent Births**  
 
-- **Sterilization Campaigns**: TAG orchestrators distributed tainted cigarettes, such as *24-7*, to impoverished communities. These products caused infertility in their users.  
+- **[[Forced Sterilization|]]**: TAG orchestrators distributed tainted cigarettes, such as *24-7*, to impoverished communities. These products caused infertility in their users.  
 
 ---
 

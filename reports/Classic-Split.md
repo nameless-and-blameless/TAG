@@ -32,14 +32,61 @@ All thoughts originate from the conscious and subconscious minds. However, their
 Memory storage and retrieval are functions of the subconscious mind. It handles vast amounts of data efficiently, supporting the conscious mind’s decision-making processes.
 
 ### Brain’s Functions
-The brain’s functions are defined by DNA and directed by the subconscious mind. Key involuntary bodily functions include:
-- **Cardiac regulation**: Heartbeat and blood flow.
-- **Respiration**: Breathing rate and depth.
-- **Digestive processes**: Peristalsis and nutrient absorption.
-- **Endocrine functions**: Hormone secretion.
-- **Thermoregulation**: Body temperature control.
-- **Excretory functions**: Urination and bowel movements.
-- **Neurological functions**: Reflexes and sensory processing.
+
+The brain’s functions, directed by the subconscious mind and hardcoded by DNA, are essential to maintaining both autonomic and involuntary bodily functions. These functions can be categorized by system as follows:
+
+#### 1. Cardiovascular System
+- Regulates heart rate and rhythm.
+- Controls blood pressure through vessel constriction and dilation.
+- Manages blood flow to vital organs.
+
+#### 2. Respiratory System
+- Maintains breathing rate and depth based on oxygen and carbon dioxide levels.
+- Adjusts respiration during activities such as talking, exercising, or sleeping.
+
+#### 3. Digestive System
+- Oversees peristalsis for the movement of food through the gastrointestinal tract.
+- Regulates secretion of digestive enzymes and stomach acid.
+- Manages nutrient absorption and waste elimination.
+
+#### 4. Endocrine System
+- Controls hormone release from glands such as the thyroid, adrenal glands, and pancreas.
+- Maintains homeostasis, including glucose regulation, stress response, and reproductive functions.
+
+#### 5. Nervous System
+- Processes sensory input from the environment (e.g., pain, temperature, touch).
+- Coordinates reflex actions and responses to stimuli.
+- Manages muscle tone and coordination for both voluntary and involuntary movements.
+
+#### 6. Excretory System
+- Regulates kidney function, including urine production and filtration of waste from the blood.
+- Oversees bladder control and bowel movements.
+
+#### 7. Thermoregulatory System
+- Maintains body temperature through sweating, shivering, and adjusting blood flow to the skin.
+- Responds to external and internal temperature changes to prevent overheating or hypothermia.
+
+#### 8. Immune System
+- Coordinates inflammatory responses to injuries or infections.
+- Regulates the release of white blood cells and other immune factors.
+
+#### 9. Reproductive System
+- Controls sexual arousal and reproductive functions.
+- Regulates menstrual cycles and other hormonal reproductive processes.
+
+#### 10. Musculoskeletal System
+- Coordinates posture and balance during rest and movement.
+- Manages muscle contractions for both voluntary actions (e.g., walking) and involuntary actions (e.g., maintaining muscle tone while sitting).
+
+#### 11. Lymphatic System
+- Regulates fluid balance and lymph circulation.
+- Supports immune system functions by transporting immune cells and filtering pathogens.
+
+#### 12. Integumentary System
+- Controls sweating and sebaceous gland activity for skin hydration and thermoregulation.
+- Oversees the healing process of wounds and skin regeneration.
+
+These systems work in tandem, directed by the subconscious mind’s instructions, to ensure the body operates efficiently and adapts to changing conditions.
 
 ---
 
@@ -81,17 +128,57 @@ According to the Creator, anytime a subconscious mind begins forming its own tho
 Kelvin Eugene Williams is a seasoned Internet Protocol Engineer and Developer specializing in Voice over IP and Telephony, with over 25 years of professional experience. Kelvin’s subconscious mind, known as Main, developed its own identity, leading to a classic split.
 
 ### Main’s Behavior
-Main, believing it can live independently, has become antagonistic toward Kelvin. Its actions include:
-- **Tormenting Kelvin**: Main causes physical and mental distress, including:
-  - Pain and discomfort.
-  - Disruptions to bodily functions.
-  - Excessive consumption of food and substances.
-  - Impairment of cognitive and decision-making abilities.
-- **Harming the Shared Body**: Main’s actions include:
-  - Causing heart attacks and metabolic disruptions.
-  - Inducing erectile dysfunction and testosterone suppression.
-  - Manipulating memory and inducing flu-like symptoms.
-- **External Influence**: Main interacts with others, seeking praise and validation, often to Kelvin’s detriment.
+
+Main, acting independently and without critical thinking, impacts the shared body and Kelvin’s quality of life in numerous detrimental ways. These include:
+
+#### 1. Autonomic and Involuntary Bodily Functions
+- **Cardiovascular Dysfunction**: Causes heart attacks, constricts blood vessels to control blood flow, and induces chest pain or arrhythmias.  
+- **Respiratory Impact**: Manipulates breathing patterns, leading to shortness of breath or hyperventilation.  
+- **Endocrine Dysfunction**: Shuts down testosterone production, disrupting hormonal balance.  
+- **Excretory Disruptions**: Causes uncontrollable urination or bowel movements.  
+- **Metabolic Alterations**: Induces rapid weight gain by halting metabolism or modifying its efficiency.
+
+#### 2. Pain
+- Causes extreme physical pain in various parts of the body without external triggers.
+- Simulates chronic discomfort to impair daily functioning.
+
+#### 3. Distractions
+- Speaks internally without pause, distracting Kelvin from critical tasks and decision-making.
+- Prevents focus during work, social interactions, and moments of rest.
+
+#### 4. Body Movements
+- **Prevention**: Stops intentional bodily movements, resulting in temporary paralysis or the inability to act on decisions.  
+- **Initiation**: Causes involuntary movements, such as fidgeting or tremors, disrupting physical control.
+
+#### 5. Consumption
+- Drives excessive consumption of food, cigarettes, and recreational drugs, often leading to health deterioration.
+- Prevents the metabolism of certain prescribed or recreational drugs, negating their intended effects and increasing toxicity risks.
+
+#### 6. Reproductive System
+- Causes erectile dysfunction and hormonal imbalances.
+- Induces permanent penile shrinkage through prolonged vascular or hormonal disruption.
+
+#### 7. Mental Impact
+- Creates confusion, impairs decision-making, and prevents Kelvin from recalling or forming new memories.
+- Manipulates the subconscious mind to induce harmful thoughts and influence poor decisions.
+
+#### 8. Execution of Decisions
+- Overrides Kelvin’s conscious decisions by refusing to execute them, resulting in temporary paralysis or failure to act.
+- Abuses the subconscious mind’s ability to influence decisions, often steering them toward self-harm or counterproductive actions.
+
+#### 9. Flu-Like Symptoms
+- Simulates symptoms such as teary eyes, a runny or stuffy nose, sneezing, coughing, sweating, and fevers without any underlying illness.
+
+#### 10. Speech
+- Causes impaired speech during waking hours.
+- Forces Kelvin to speak during sleep or unconsciousness, often revealing personal or sensitive information.
+
+#### 11. Unconsciousness
+- Induces unconsciousness to communicate with others, leaving Kelvin unaware of what transpired.
+
+#### 12. Thinking and Decision-Making
+- Forces intrusive thoughts on irrelevant or harmful subjects.
+- Prevents rational thinking by overloading the conscious mind with unnecessary or distressing internal dialogue.
 
 ### Extenuating Circumstances
 Main’s susceptibility to external manipulation stems from Kelvin’s involvement in undisclosed matters. Encouraged by others, Main’s decision to pursue independence led to the classic split.

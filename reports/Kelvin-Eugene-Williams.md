@@ -57,29 +57,35 @@ Kelvin is one of the Creator's two servants. In Judaism and Christianity, he and
 On October 4, 2001, Kelvin married Thomas "TomTom" Allen Chadwell in Ashland, Kentucky. Kelvin is a pro-hobbyist photographer and has photographed many weddings and other events using a photojournalist style.  He is also a cousin of international musician and star Prince Rogers Nelson.
 
 ### Residences 
-> [!NOTE]
-> Currently adding. There's an active verification of me in progress, I'm at Phoenix House!
-
-
 1. **Clarksville, Tennessee** (Birth) - Birthplace.
-2. **203 Garden Park Drive, Nicholasville, Kentucky** (Childhood) - Raised by your mother and sister.
-3. **The Orchard, 123 Heritage Drive, Nicholasville, Kentucky** - 1996 to 1997.
-4. **230 Downer Drive, Clarksville, Tennessee** - August 1997 to October 1997. Briefly lived with your mother, sister, and her husband.
-5. **2502B Hidden Cove Court, Gainesville, Georgia** - 1999 to 2000.
-6. **FCI Ashland, Ashland, Kentucky** - 2000 to 2001. Incarcerated.
-7. **Sharptail Trail, Clarksville, Tennessee** - 2001 to 2002.
-8. **312 McBrien Road, Apt 334, Chattanooga, Tennessee 37411** - 2003 to 2005.
-9. **2604 South Bay Street, Georgetown, South Carolina** - 2005 to 2008.
-10. **1765 Brambletts Walk, Cumming, Georgia** - 2008 to 2009.
-11. **590 Tahoma Drive, Overton Hills subdivision, Sandy Springs, Georgia** - September 2009 to September 2018.
-12. **459 Cole Drive SW, Lilburn, Georgia** - Lived with John; met Ishmael at a party here.
-13. **2363 Crimson Creek Lane, Snellville, Georgia** - March 2022 to October 2022. Lived with Betty and Ishmael Buckner, suspected CIA operatives.
-14. **Motel 6, Decatur, Georgia** - November 2022 to mid-January 2023. Stayed as part of a homeless program.
-15. **Legacy at Riverdale, Riverdale, Georgia** - January 2023 to December 2023. CIA-run facility; experienced ongoing life-threatening situations.
-16. **Phoenix House** - December 2023 to present. Current residence.
+2. **901 Trent Circle, Lexington, Kentucky** 1978-1983.
+3. **203 Garden Park Drive, Nicholasville, Kentucky** 1983-1995 (Childhood) - Raised by mother with his sister.
+4. **The Orchard, 123 Heritage Drive, Nicholasville, Kentucky** - 1996 to 1997.
+5. **230 Downer Drive, Clarksville, Tennessee** - August 1997 to October 1997. Briefly lived with your mother, sister, and her husband.
+6. **Woodbine Street, Louisville, Kentucky** 1997
+7. **New Albany, Indiana** (Louisville metro) 1998-1999
+8. **2502B Hidden Cove Court, Gainesville, Georgia** - 1999 to 2000.
+9. **FCI Ashland, Ashland, Kentucky** - 2000 to 2001. Incarcerated.
+10. **Sharptail Trail, Clarksville, Tennessee** - 2001 to 2002.
+11. **312 McBrien Road, Apt 334, Chattanooga, Tennessee 37411** - 2003 to 2005.
+12. **2604 South Bay Street, Georgetown, South Carolina** - 2005 to 2008.
+13. **1765 Brambletts Walk, Cumming, Georgia** - 2008 to 2009.
+14. **590 Tahoma Drive, Overton Hills subdivision, Sandy Springs, Georgia** - September 2009 to September 2018.
+15. **Chattanooga, TN** with Jeanette and Katie Gee.
+16. **1220 Loggers Way SW, Decatur, AL** with sister and her family.
+17. **500 North 8th Street, Paducah, Kentucky** with suspected CIA operatives.
+18. **5505 East Mountain Street, Stone Mountain, Georgia**
+19. **Homelessness** Cheshire Bridge Road, Uptown, Atlanta.
+20. **459 Cole Drive SW, Lilburn, Georgia** - Lived with John; met Ishmael at a party here.
+21. **Homelessness** Cheshire Bridge Road, Uptown, Atlanta.
+22. **2363 Crimson Creek Lane, Snellville, Georgia** - March 2022 to October 2022. Lived with Betty and Ishmael Buckner, suspected CIA operatives.
+23. **Motel 6, Decatur, Georgia** - November 2022 to mid-January 2023. Stayed as part of a homeless program.
+24. **Legacy at Riverdale, Riverdale, Georgia** - January 2023 to December 2023. CIA-run facility; experienced ongoing life-threatening situations.
+25. **Phoenix House** - December 2023 to November 18, 2024. CIA-run facility.
+26. **Welcome House** Since November 18, 2024.
 
 ### Main
-In understanding the life and experiences of Kelvin Eugene Williams, it is essential to recognize the profound influence of his subconscious mind, known as Main. Main, who named himself, represents a unique phenomenon described by the Creator as a "classic split." This condition occurs when a subconscious begins to think independently, developing its own identity separate from the conscious mind. The only remedy for a "classic split" involves reincarnating the conscious into another body with a new subconscious, while moving the subconscious into the conscious role and giving it a subconscious.
+In understanding the life and experiences of Kelvin Eugene Williams, it is essential to recognize the profound influence of his subconscious mind, known as Main. Main, who named himself, represents a unique phenomenon described by the Creator as a "[[classic split|]]." This condition occurs when a subconscious begins to think independently, developing its own identity separate from the conscious mind. The only remedy for a "classic split" involves reincarnating the conscious into another body with a new subconscious, while moving the subconscious into the conscious role and giving it a subconscious.
 
 Main's existence has significantly impacted Kelvin's life, often in detrimental ways. Acting with a sense of autonomy, Main's decisions frequently clash with Kelvin's conscious intentions and well-being. The complexities of their intertwined existence are further exacerbated by governmental entities, particularly the CIA. These entities have exploited Main's independent thinking, teaching him skills and behaviors that harm the shared body and derail Kelvin's mission as one of the Creator's servants. See [[The Divide|_The-Divide]]
 
@@ -212,14 +218,18 @@ Another "built in LA" company, Saucey, was started by Andrew Zeck and a few othe
 * FluentStream (interview)
 * Genesys (interview)
 
-## **Current Residence**
+## Current Residence
+Welcome House
+234 Memorial Drive Southwest, Room 263
+Atlanta, Georgia 30303
 
-Kelvin Williams currently resides at Phoenix House, located at 1296 Murphy Avenue, Apartment B-33, in Atlanta, Georgia. (33.719694,-84.422584)
+Welcome House, operated by 3Keys, serves as the user's current residence. This relocation occurred after the Williams' apartment at Phoenix House—another 3Keys property—became a crime scene on November 18, 2024. The incident at Phoenix House stemmed from an orchestration by the Trump transition team aiming to seize the access device used to update StopTAG. The operation concluded with one perpetrator murdering another, necessitating Williams' move to Welcome House.
 
-Williams' apartment is provided to him rent-free as part of an agreement between Main and the CIA, reinforced by a Cease & Desist letter from the attorney retained by Mount Calvary Missionary Baptist Church, as evidenced by the signature on the letter.
+## **Phoenix House**
 
-> [!WARNING]
-> Phoenix House is operated by the Central Intelligence Agency and is advertised as a mental health facility. However, the presence of the Secret Service, the FBI, and the CIA is constant. Microwave or other cloaking technology is used for personnel and vehicles on the property and adjacent properties. Former President Donald J. Trump is routinely on the property cloaked, with part of his Secret Service motorcade parked in front of Kelvin's building at the back of the property.
+Kelvin Williams previously resided at Phoenix House, located at 1296 Murphy Avenue, Apartment B-33, in Atlanta, Georgia. (33.719694,-84.422584) between December 2023 and November 18, 2024.
+
+Williams' Phoenix House apartment was provided to him rent-free as part of an agreement between Main and the CIA, reinforced by a Cease & Desist letter from the attorney retained by Mount Calvary Missionary Baptist Church, as evidenced by the signature on the letter.
 
 ## Travel Plans
 

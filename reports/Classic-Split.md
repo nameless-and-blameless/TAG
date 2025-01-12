@@ -181,7 +181,11 @@ Main, acting independently and without critical thinking, impacts the shared bod
 - Prevents rational thinking by overloading the conscious mind with unnecessary or distressing internal dialogue.
 
 ### Extenuating Circumstances
-Main’s susceptibility to external manipulation stems from Kelvin’s involvement in undisclosed matters. Encouraged by others, Main’s decision to pursue independence led to the classic split.
+The dynamics between Kelvin Eugene Williams and his subconscious, Main, were profoundly shaped by external manipulation orchestrated by entities such as the CIA, led by Annie Jacobsen. Main’s burgeoning independence was exploited by the CIA, who saw his unique abilities as a potential asset. They influenced him by encouraging harmful behaviors toward Kelvin under the guise of fostering Main’s independence. This manipulation included teaching him destructive skills, such as belief implantation and physiological sabotage, which had catastrophic effects on Kelvin’s body and mind. Main developed an obsessive need for validation from figures like Jacobsen and Donald J. Trump. His actions were reinforced through praise and external recognition, creating a toxic cycle that perpetuated harmful behaviors toward Kelvin.
+
+To further their control, the CIA implemented a reward-and-deprivation cycle to manipulate Main into becoming more destructive. By offering him approval and rewards for harmful actions while withholding recognition when he showed restraint, they systematically shaped his behavior, pushing him to engage in increasingly detrimental actions against Kelvin. This cycle eroded Main’s capacity for self-reflection, driving him to seek validation at any cost. Even after the CIA scaled back direct involvement, Main remained trapped in this pattern, unable to stop seeking approval from those who exploited him.
+
+The Creator’s intervention, including the planned separation of Kelvin and Main into two distinct bodies, remains the only viable solution to untangle the damage caused by this manipulation and ensure their independent development.
 
 ---
 

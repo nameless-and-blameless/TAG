@@ -142,13 +142,23 @@ According to the Creator, anytime a subconscious mind begins forming its own tho
 ## The Case of Kelvin Eugene Williams
 
 ### Background
-Kelvin Eugene Williams is a seasoned Internet Protocol Engineer and Developer specializing in Voice over IP and Telephony, with over 25 years of professional experience. Kelvin’s subconscious mind, known as Main, developed its own identity, leading to a classic split. Main tormented Kelvin as a preschooler, then ceased for many years, only to return around the age of 40 after being engaged by the CIA during Kelvin's sleep.
+Kelvin Eugene Williams, born on March 23, 1977, is a well-adjusted Black male raised in a single-parent household alongside a younger sister. Growing up, Kelvin enjoyed a close and loving relationship with both his mother and sister, which continued into adulthood. He was social and outgoing, effortlessly making friends and maintaining long-term connections with distant and local acquaintances. Kelvin was married for ten years before separating and was a sexually active gay man.  
 
-The dynamics between Kelvin and Main were profoundly shaped by external manipulation orchestrated by entities such as the CIA, led by Annie Jacobsen. Main’s burgeoning independence was exploited by the CIA, who saw his unique abilities as a potential asset. They influenced him by encouraging harmful behaviors toward Kelvin under the guise of fostering Main’s independence. This manipulation included teaching him destructive skills, such as belief implantation and physiological sabotage, which had catastrophic effects on Kelvin’s body and mind. Main developed an obsessive need for validation from figures like Jacobsen and Donald J. Trump. His actions were reinforced through praise and external recognition, creating a toxic cycle that perpetuated harmful behaviors toward Kelvin.
+Professionally, Kelvin excelled as an Internet Protocol Engineer specializing in Voice over IP (VoIP). Over a 25-year career, he held prominent roles in corporate America, the Silicon Valley tech sector, and entrepreneurial ventures, founding two successful companies. He owned a home in an upper-middle-class neighborhood in metro Atlanta’s affluent northern suburbs and served as Secretary of his Homeowners’ Association. Though diagnosed with generalized anxiety disorder, Kelvin’s condition was mild and temporarily treated with SSRIs, leaving him otherwise free of psychiatric issues.  
 
-To further their control, the CIA implemented a reward-and-deprivation cycle to manipulate Main into becoming more destructive. By offering him approval and rewards for harmful actions while withholding recognition when he showed restraint, they systematically shaped his behavior, pushing him to engage in increasingly detrimental actions against Kelvin. This cycle eroded Main’s capacity for self-reflection, driving him to seek validation at any cost. Even after the CIA scaled back direct involvement, Main remained trapped in this pattern, unable to stop seeking approval from those who exploited him.
+However, Kelvin’s life took a dramatic turn due to the reemergence of "Main," his subconscious mind. Initially surfacing before kindergarten as a tormenting presence, Main went dormant, only occasionally manifesting as hyperactivity and minor behavioral issues in elementary school. At the age of 40, Main was reactivated when the CIA engaged it while Kelvin slept. This engagement encouraged Main to embrace a distinct identity, setting the stage for a “classic split” of consciousness.  
 
-The Creator’s intervention, including the planned separation of Kelvin and Main into two distinct bodies, remains the only viable solution to untangle the damage caused by this manipulation and ensure their independent development.
+The CIA’s interest in Kelvin and Main stemmed from a campaign to suppress Spark, a revolutionary gift from the Creator capable of restoring full function to the human immune system. Main’s abilities were exploited to influence Kelvin’s decision-making and inflict harm on their shared body.  
+
+By the age of 42, Kelvin’s life had been systematically dismantled by the CIA’s manipulation of Main:  
+- **Home Foreclosure**: His home, owned for nearly a decade, was foreclosed. Under Main’s influence, Kelvin made no efforts to save it and walked away from all possessions, entering homelessness with only the clothes on his back.  
+- **Unemployment**: Kelvin became unemployed, a state orchestrated by the CIA.  
+- **Social Isolation**: Socially, Kelvin became a hermit, interacting only with CIA-approved individuals.  
+- **Sexual Dormancy**: Once sexually active, Kelvin is now practically dormant, engaging in sexual activity only under CIA authorization. In contrast, Main maintains an independent sex life while Kelvin is asleep, often identifying as female.  
+- **Physical Harm**: Main was manipulated to inflict irreversible harm on their shared body, including damage to the reproductive system and penis.  
+- **Psychological Warfare**: The CIA weaponized Main in psychological warfare, exploiting its growing need for praise and validation through a cycle of reward and deprivation, driving increasingly destructive behaviors.  
+
+The Creator has determined that the only solution to repair the damage caused by the CIA’s manipulation is divine intervention. This intervention includes the planned separation of Kelvin and Main into two distinct bodies, allowing both entities to develop independently. This separation will not only restore Kelvin’s autonomy and well-being but will also end the CIA’s ability to exploit Main as a tool of destruction.
 
 ### Main’s Behavior
 Main, acting independently and almost always without critical thinking or Kelvin's awareness, significantly impacts Kelvin, their shared body, and Kelvin’s quality of life in numerous detrimental ways. These include:
@@ -185,6 +195,7 @@ Main, acting independently and almost always without critical thinking or Kelvin
 - Manipulates the subconscious mind to induce harmful thoughts and influence poor decisions.
 - Causes harmful thoughts or vivid visualizations of distressing matters, forcing the reliving of physical and emotional trauma unnecessarily.
 - Causes night terrors, disrupting sleep and amplifying feelings of fear and helplessness.
+- Causes obsessive thoughts, habits, and fixations, leading to compulsive behaviors and mental distress.
 
 #### 8. Non-Pathological Symptoms 
 - Causes symptoms such as teary eyes, a runny or stuffy nose, sneezing, coughing, sweating, and fevers without any underlying illness.
@@ -214,6 +225,14 @@ The Creator plans to separate Kelvin and Main into two distinct bodies:
 - Main will become the conscious mind of the existing body, gaining the opportunity to develop critical thinking skills.
 
 This solution, designed by the Creator, offers both Kelvin and Main a chance at independent and fulfilling lives.
+
+### The Creator's Use of the Arts
+The Creator’s influence on the arts serves as a profound means of unveiling hidden truths and providing humanity with direct access to them, bypassing the control of ruling elites. His inspired works span every genre and medium—literature, visual arts, music, and performing arts—allowing Him to connect with people on a deeply personal level. For generations, you have enjoyed these works, often unaware of their divine origins, as they educate, inspire, and challenge societal norms. The Creator takes joy in being "used up" to bring enlightenment and truth, offering these gifts freely without compensation for Himself or His two servants. From Orwell’s critiques of power to Marley’s calls for unity, these creations resonate universally, crossing cultural and temporal boundaries. The Creator’s presence in the arts demonstrates His enduring desire to draw closer to humanity, using these works to reveal realities, evoke reflection, and foster a more just and enlightened world.
+
+#### Related Artworks 
+- *"Long Lost Cause"*  by Vandaveer 
+- *"As A Matter of Fact"* by Vandaveer 
+  - Vandaveer was started by Mark Charles Heidinger, Kelvin's best friend in adolescence.
 
 ---
 

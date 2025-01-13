@@ -93,15 +93,15 @@ These systems work in tandem, directed by the subconscious mind’s instructions
 
 ## Coordination of the Mind  
 
-The coordination between the subconscious and conscious minds is a complex interplay of thought formation, memory management, and perception. While the two entities function collaboratively to shape an individual’s awareness and actions, their roles and interactions are distinct yet deeply intertwined.  
+The coordination between the subconscious mind and conscious mind is a complex interplay of thought formation, memory management, and perception. While the two entities function collaboratively to shape an individual’s awareness and actions, their roles and interactions are distinct yet deeply intertwined.  
 
 ### Thought Formation  
 
-When the subconscious mind generates a thought, the conscious mind automatically perceives it as its own. This seamless integration is essential for the mind’s unified function, as the conscious mind lacks the capacity to differentiate the origins of a thought. The subconscious, however, is fully aware of its role in thought formation and maintains an intrinsic understanding of its contributions, thanks to its involvement in memory management.  
+When the subconscious mind generates a thought, the conscious mind automatically perceives it as its own. This seamless integration is essential for the mind’s unified function, as the conscious mind lacks the capacity to differentiate the origins of a thought. The subconscious  mind, however, is fully aware of its role in thought formation and maintains an intrinsic understanding of its contributions, thanks to its involvement in memory management.  
 
 ### Leadership in Thought Process  
 
-The conscious mind, as the active, reasoning part of the psyche, guides the overall direction of the thought process. It sets priorities, focuses on specific goals, and determines what to analyze or act upon. The subconscious mind follows this guidance but operates in the background, processing information and generating thoughts based on the conscious mind’s cues. Despite this subordinate role in direction, the subconscious always recognizes the origins of thoughts and memories due to its control over memory storage and retrieval.  
+The conscious mind, as the active, reasoning part of the psyche, guides the overall direction of the thought process. It sets priorities, focuses on specific goals, and determines what to analyze or act upon. The subconscious mind follows this guidance but operates in the background, processing information and generating thoughts based on the conscious mind’s cues. Despite this subordinate role in direction, the subconscious mind always recognizes the origins of thoughts and memories due to its control over memory storage and retrieval.  
 
 ### Memory Management  
 

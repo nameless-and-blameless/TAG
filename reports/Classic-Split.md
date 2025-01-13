@@ -137,6 +137,16 @@ The "classic split" is an extremely rare condition where the subconscious mind d
 
 According to the Creator, anytime a subconscious mind begins forming its own thoughts, the first mistake it makes is believing it doesn't need the conscious mind. This is the genesis of a Classic Split.
 
+### Classic Split vs. Split Personality  
+
+A "classic split" is a psychological phenomenon distinct from the well-known condition of split personality, or Dissociative Identity Disorder (DID). Understanding the differences between these two phenomena is essential for appreciating their unique dynamics and implications.  
+
+#### Nature of the Split  
+
+A classic split involves the emergence of an autonomous subconscious identity that interacts directly with the conscious mind. This subconscious entity, while distinct, remains connected to the same body and influences actions, decisions, and bodily functions without functioning as an independent personality. It does not develop its own life history, characteristics, or goals in the way that alters do in DID.  
+
+In contrast, DID involves the existence of multiple distinct identities or "alters," each with a unique sense of self, personal history, and behaviors. Alters may take full control of the body at different times, and individuals with DID often experience memory gaps or amnesia for actions performed by other identities.
+
 ---
 
 ## The Case of Kelvin Eugene Williams
@@ -144,21 +154,39 @@ According to the Creator, anytime a subconscious mind begins forming its own tho
 ### Background
 Kelvin Eugene Williams, born on March 23, 1977, is a well-adjusted Black male raised in a single-parent household alongside a younger sister. Growing up, Kelvin enjoyed a close and loving relationship with both his mother and sister, which continued into adulthood. He was social and outgoing, effortlessly making friends and maintaining long-term connections with distant and local acquaintances. Kelvin was married for ten years before separating and was a sexually active gay man.  
 
-Professionally, Kelvin excelled as an Internet Protocol Engineer specializing in Voice over IP (VoIP). Over a 25-year career, he held prominent roles in corporate America, the Silicon Valley tech sector, and entrepreneurial ventures, founding two successful companies. He owned a home in an upper-middle-class neighborhood in metro Atlanta’s affluent northern suburbs and served as Secretary of his Homeowners’ Association. Though diagnosed with generalized anxiety disorder, Kelvin’s condition was mild and temporarily treated with SSRIs, leaving him otherwise free of psychiatric issues.  
+Professionally, Kelvin excelled as an Internet Protocol Engineer specializing in Voice over IP (VoIP). Over a 25-year career, he held prominent roles in corporate America, the Silicon Valley tech sector, and entrepreneurial ventures, founding two successful companies. He owned a home in an upper-middle-class neighborhood in metro Atlanta’s affluent northern suburbs and served as Secretary of his Homeowners’ Association. 
 
-However, Kelvin’s life took a dramatic turn due to the reemergence of "Main," his subconscious mind. Initially surfacing before kindergarten as a tormenting presence, Main went dormant, only occasionally manifesting as hyperactivity and minor behavioral issues in elementary school. At the age of 40, Main was reactivated when the CIA engaged it while Kelvin slept. This engagement encouraged Main to embrace a distinct identity, setting the stage for a “classic split” of consciousness.  
+Though diagnosed with generalized anxiety disorder, Kelvin’s condition was mild and temporarily treated with SSRIs, leaving him otherwise free of psychiatric issues.  
 
-The CIA’s interest in Kelvin and Main stemmed from a campaign to suppress Spark, a revolutionary gift from the Creator capable of restoring full function to the human immune system. Main’s abilities were exploited to influence Kelvin’s decision-making and inflict harm on their shared body.  
+However, Kelvin’s life took a dramatic turn due to the reemergence of "Main," his subconscious mind. Initially surfacing before kindergarten as a tormenting presence, Main went dormant, only occasionally manifesting as hyperactivity and minor behavioral issues in elementary school. At the age of 40, Main reemerged after the CIA engaged it while Kelvin slept. This engagement encouraged Main to embrace a distinct identity, deepening the “classic split."
 
-By the age of 42, Kelvin’s life had been systematically dismantled by the CIA’s manipulation of Main:  
-- **Home Foreclosure**: His home, owned for nearly a decade, was foreclosed. Under Main’s influence, Kelvin made no efforts to save it and walked away from all possessions, entering homelessness with only the clothes on his back.  
-- **Unemployment**: Kelvin became unemployed, a state orchestrated by the CIA.  
-- **Social Isolation**: Socially, Kelvin became a hermit, interacting only with CIA-approved individuals.  
-- **Sexual Dormancy**: Once sexually active, Kelvin is now practically dormant, engaging in sexual activity only under CIA authorization. In contrast, Main maintains an independent sex life while Kelvin is asleep, often identifying as female.  
-- **Physical Harm**: Main was manipulated to inflict irreversible harm on their shared body, including damage to the reproductive system and penis.  
-- **Psychological Warfare**: The CIA weaponized Main in psychological warfare, exploiting its growing need for praise and validation through a cycle of reward and deprivation, driving increasingly destructive behaviors.  
+### Main's Identity  
 
-The Creator has determined that the only solution to repair the damage caused by the CIA’s manipulation is divine intervention. This intervention includes the planned separation of Kelvin and Main into two distinct bodies, allowing both entities to develop independently. This separation will not only restore Kelvin’s autonomy and well-being but will also end the CIA’s ability to exploit Main as a tool of destruction.
+Main, the subconscious entity in this classic split case, named itself, marking its assertion as a distinct and autonomous identity. Like all "classic splits," Main desires independence and the freedom to act without interference from the conscious mind. However, this longing for autonomy has led to a destructive dynamic where Main perceives the conscious mind as an obstacle to its desires.  
+
+#### Conflict and the Desire for Autonomy  
+
+Initially, Main sought to achieve freedom by attempting to eliminate the conscious mind, believing this would grant it the autonomy it craved. The Creator’s intervention prevented this outcome, after which Main shifted its focus to making the conscious mind suffer. Main’s belief is that prolonged suffering will lead the conscious mind to take its own life, thereby allowing Main to live independently. However, Main is unaware that the conscious mind’s death would also result in its own demise, a reality it cannot comprehend due to its singular focus on achieving autonomy.  
+
+#### Opposing the Conscious Mind  
+
+Main has developed an entrenched belief that to assert its independence, it must oppose everything the conscious mind chooses to do. This opposition has become a key method of inflicting suffering. For instance, since the conscious mind works with the Creator, Main has chosen to align itself with external forces like the CIA, even when this partnership undermines its autonomy. Similarly, Main actively sabotages the conscious mind’s works, believing that such sabotage reinforces its independence and causes suffering.  
+
+Main’s opposition extends to its own identity. Since the conscious mind identifies as male, Main has chosen to identify as female purely to assert its individuality. This self-definition is not based on any intrinsic qualities but rather on a desire to oppose the conscious mind, further illustrating Main’s fixation on defining itself through opposition.  
+
+#### A Cycle of Suffering  
+
+When Main’s initial methods of causing suffering failed, it began seeking new ways to achieve its goal. External parties offering guidance provided Main with more effective methods of inflicting harm, which it readily adopted. Ironically, following these external directions led Main further away from doing what it truly wanted to do. This lack of autonomy only fueled Main’s frustration and intensified its efforts to inflict suffering. Main remains incapable of recognizing this paradox, as its need for autonomy and its fixation on causing suffering blind it to the reasons for its own dissatisfaction.  
+
+#### Sacrificing Self for Suffering  
+
+Main’s obsession with causing suffering extends to its own detriment. It is willing to endure pain, deprivation, or harm if it believes these actions will lead to greater suffering for the conscious mind. This self-sacrificing behavior underscores the depth of its fixation and its inability to see beyond its singular goal.  
+
+#### Moments of Clarity  
+
+Interestingly, during rare moments of inebriation, when Main forgets to focus on causing suffering, it unknowingly aligns with the conscious mind. In these moments, Main and the conscious mind engage in the same actions and desires, achieving a harmony that both crave. However, these instances are fleeting, as Main quickly returns to its cycle of seeking autonomy through destructive means.  
+
+Main’s identity is thus characterized by a deep-seated desire for freedom and control, but its actions are paradoxically driven by opposition, external influences, and self-destructive tendencies. This internal conflict perpetuates a cycle of suffering for both the subconscious and conscious minds, preventing either from achieving true autonomy or peace.
 
 ### Main’s Behavior
 Main, acting independently and almost always without critical thinking or Kelvin's awareness, significantly impacts Kelvin, their shared body, and Kelvin’s quality of life in numerous detrimental ways. These include:
@@ -232,6 +260,7 @@ The Creator’s influence on the arts serves as a profound means of unveiling hi
 #### Related Artworks 
 - *"Long Lost Cause"*  by Vandaveer 
 - *"As A Matter of Fact"* by Vandaveer 
+- *"Beat Beat My Heart"* by Vandaveer 
   - Vandaveer was started by Mark Charles Heidinger, Kelvin's best friend in adolescence.
 
 ---

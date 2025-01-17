@@ -1,8 +1,9 @@
-> [!TIP]
-> We recommend getting the latest information by visiting https://github.com/StopTAG
+> [!IMPORTANT]
+> The passkey stored with Google, required to update the **StopTAG** 
+> org and its associated repositories, has been obtained 
+> illegally by the US government. As a result, the Creator’s two 
+> servants have made the decision to abandon **StopTAG** and all 
+> related repositories. We urge everyone to visit 
+> **[Histwo](https://github.com/Histwo)** for 
+> accurate and up-to-date information on **The American Genocide (TAG)** and the Creator’s ongoing intervention to dismantle the atrocities and restore justice.
 
-# The American Genocide (TAG) Repository
-
-Welcome to nameless-and-blameless repository for The American Genocide (TAG), a project dedicated to uncovering and exposing the hidden genocide occurring across the United States.
-
-We recommend getting the latest information by visiting https://github.com/StopTAG.
